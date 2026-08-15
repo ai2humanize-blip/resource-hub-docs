@@ -1,2 +1,3 @@
-# resource-hub-docs
-Mintlify docs site - network resource articles
+# Resource Hub docs
+
+Mintlify docs site. Content in `*.mdx`, config in `docs.json`.
