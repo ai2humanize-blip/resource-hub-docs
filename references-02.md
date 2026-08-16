@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://app.zentrack.net/mastering-business-finance-productivity-essential-reads-and-25-2-2/">mastering business finance productivity essential reads and </a> 
+<a href="https://app.zentrack.net/mastering-business-finance-productivity-essential-reads-and-25-2/">mastering business finance productivity essential reads and </a> 
 <a href="https://app.zentrack.net/mastering-business-finance-productivity-essential-resources-25-2/">mastering business finance productivity essential resources </a> 
 <a href="https://app.zentrack.net/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
 <a href="https://app.zentrack.net/mastering-local-seo-a-comprehensive-guide-to-boosting-your-b/">mastering local seo a comprehensive guide to boosting your b</a> 
@@ -800,5 +802,3 @@
 <a href="https://captainjackinterview.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://captainjackinterview.com/transforming-daily-life-how-technology-and-apps-shape-our-di/">transforming daily life how technology and apps shape our di</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
