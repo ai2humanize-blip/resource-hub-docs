@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://landscape-paintings.net/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://landscape-paintings.net/digital-tools-online-resources-50-resources-worth-bookmarkin-105-8/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://landscape-paintings.net/discovering-the-hidden-gems-of-asian-cuisine-a-culinary-jour/">discovering the hidden gems of asian cuisine a culinary jour</a> 
 <a href="https://landscape-paintings.net/essential-digital-tools-online-resources-for-modern-needs-105-8/">essential digital tools online resources for modern needs 10</a> 
 <a href="https://landscape-paintings.net/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
 <a href="https://landscape-paintings.net/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
@@ -799,6 +802,3 @@
 <a href="https://linkstack.ewr1.vultrobjects.com/navigating-the-cryptocurrency-landscape-news-insights-and-pr.html">navigating the cryptocurrency landscape news insights and pr</a> 
 <a href="https://linkstack.ewr1.vultrobjects.com/navigating-the-ever-changing-news-landscape-analysis-and-ins.html">navigating the ever changing news landscape analysis and ins</a> 
 <a href="https://linkstack.ewr1.vultrobjects.com/navigating-the-evolving-landscape-of-news-consumption-in-202.html">navigating the evolving landscape of news consumption in 202</a> 
-<a href="https://linkstack.ewr1.vultrobjects.com/navigating-the-future-of-finance-cryptocurrency-bitcoin-and-.html">navigating the future of finance cryptocurrency bitcoin and</a> 
-<a href="https://linkstack.ewr1.vultrobjects.com/navigating-the-future-of-finance-understanding-cryptocurrenc.html">navigating the future of finance understanding cryptocurrenc</a> 
-<a href="https://linkstack.ewr1.vultrobjects.com/navigating-the-future-understanding-cryptocurrency-bitcoin-a.html">navigating the future understanding cryptocurrency bitcoin a</a> 
