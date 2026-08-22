@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://bandemusic.com/creative-event-planning-unique-ideas-and-tips-for-memorable/">creative event planning unique ideas and tips for memorable</a> 
+<a href="https://bandemusic.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-81-1/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://bandemusic.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-81-1/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://bandemusic.com/digital-tools-online-resources-50-resources-worth-bookmarkin-81-7-2/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://bandemusic.com/digital-tools-online-resources-50-resources-worth-bookmarkin-81-7-3/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -800,5 +802,3 @@
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

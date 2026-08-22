@@ -674,6 +674,7 @@
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-thedailycoins-io">a closer look at thedailycoins io</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-tiliasnews-com">a closer look at tiliasnews com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-tokenpr-net">a closer look at tokenpr net</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/curated-resource-hub-independent-publications-directory">curated resource hub independent publications directory</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/exploring-blackpearlbitcoin-com">exploring blackpearlbitcoin com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/exploring-carmannews">exploring carmannews</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/exploring-chandlerweekly-com">exploring chandlerweekly com</a> 
@@ -801,4 +802,3 @@
 <a href="https://algiamedical.com/mastering-the-art-of-financial-management-for-small-business/">mastering the art of financial management for small business</a> 
 <a href="https://algiamedical.com/mastering-the-art-of-growing-your-own-herb-garden-a-beginner/">mastering the art of growing your own herb garden a beginner</a> 
 <a href="https://algiamedical.com/maximizing-business-finance-and-productivity-with-thedigital-77-10/">maximizing business finance and productivity with thedigital</a> 
-<a href="https://algiamedical.com/maximizing-productivity-how-to-leverage-the-latest-apps-and/">maximizing productivity how to leverage the latest apps and</a> 
