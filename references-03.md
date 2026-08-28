@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://autumnfallsinterview.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://autumnfallsinterview.com/discover-the-best-digital-tools-online-resources-for-your-ne-80-3/">discover the best digital tools online resources for your ne</a> 
 <a href="https://autumnfallsinterview.com/discover-the-top-5-benefits-of-adopting-a-plant-based-diet/">discover the top 5 benefits of adopting a plant based diet</a> 
 <a href="https://autumnfallsinterview.com/discover-unique-event-ideas-and-planning-tips-for-every-occa/">discover unique event ideas and planning tips for every occa</a> 
 <a href="https://autumnfallsinterview.com/discovering-the-art-of-home-coffee-roasting-a-beginner-s-gui/">discovering the art of home coffee roasting a beginner s gui</a> 
@@ -800,5 +802,3 @@
 <a href="https://cbd-stone.com/mastering-the-art-of-budgeting-boost-your-business-and-perso/">mastering the art of budgeting boost your business and perso</a> 
 <a href="https://cbd-stone.com/mastering-the-art-of-business-finance-and-productivity-a-com-83-4/">mastering the art of business finance and productivity a com</a> 
 <a href="https://cbd-stone.com/mastering-the-art-of-business-personal-finance-and-marketing/">mastering the art of business personal finance and marketing</a> 
-<a href="https://cbd-stone.com/mastering-your-digital-life-top-apps-for-productivity-and-le/">mastering your digital life top apps for productivity and le</a> 
-<a href="https://cbd-stone.com/mastering-your-digital-life-top-apps-for-productivity-and-or-2/">mastering your digital life top apps for productivity and or</a> 
