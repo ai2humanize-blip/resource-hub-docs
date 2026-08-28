@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/why-it-is-worth-following-bitcoindigital">why it is worth following bitcoindigital</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/why-it-is-worth-following-bitcoinprime-info">why it is worth following bitcoinprime info</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/why-it-is-worth-following-boostelearning-com-certified-digital-academy">why it is worth following boostelearning com certified digit</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/why-it-is-worth-following-coincrafty-com">why it is worth following coincrafty com</a> 
@@ -412,6 +413,7 @@
 <a href="https://app.zentrack.net/mastering-business-finance-productivity-essential-reads-and-25-2-2/">mastering business finance productivity essential reads and </a> 
 <a href="https://app.zentrack.net/mastering-business-finance-productivity-essential-reads-and-25-2/">mastering business finance productivity essential reads and </a> 
 <a href="https://app.zentrack.net/mastering-business-finance-productivity-essential-resources-25-2/">mastering business finance productivity essential resources </a> 
+<a href="https://app.zentrack.net/mastering-business-finance-productivity-with-ai-art-prompt-g-25-2/">mastering business finance productivity with ai art prompt g</a> 
 <a href="https://app.zentrack.net/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
 <a href="https://app.zentrack.net/mastering-local-seo-a-comprehensive-guide-to-boosting-your-b/">mastering local seo a comprehensive guide to boosting your b</a> 
 <a href="https://app.zentrack.net/mastering-marketing-seo-growth-strategies-for-success-in-the-25-1/">mastering marketing seo growth strategies for success in the</a> 
@@ -800,5 +802,3 @@
 <a href="https://autumnfallsinterview.com/discovering-the-art-of-home-coffee-roasting-a-beginner-s-gui/">discovering the art of home coffee roasting a beginner s gui</a> 
 <a href="https://autumnfallsinterview.com/embrace-organic-living-10-health-and-wellness-tips-for-a-bal/">embrace organic living 10 health and wellness tips for a bal</a> 
 <a href="https://autumnfallsinterview.com/embracing-the-800080-palette-how-to-rock-purple-in-your-ward/">embracing the 800080 palette how to rock purple in your ward</a> 
-<a href="https://autumnfallsinterview.com/essential-digital-tools-online-resources-for-modern-living-80-3/">essential digital tools online resources for modern living 8</a> 
-<a href="https://autumnfallsinterview.com/essential-digital-tools-online-resources-for-staying-informe-80-3/">essential digital tools online resources for staying informe</a> 
