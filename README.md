@@ -85,6 +85,10 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://currencynews.co/">currencynews.co</a> 
 <a href="https://bitcoinprime.info/">bitcoinprime.info</a> 
 <a href="https://satsspin.de.com/">satsspin.de.com</a> 
+<a href="https://voozon.xyz/">voozon.xyz</a> 
+<a href="https://cryptopronetworkcom.org/">cryptopronetworkcom.org</a> 
+<a href="https://aavotcom.cc/">aavotcom.cc</a> 
+<a href="https://666game.com.im/">666game.com.im</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -108,4 +112,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 19](references-19.md)
 - [Reference set 20](references-20.md)
 
-_15,563 curated references across 20 sets._
+_15,596 curated references across 20 sets._
