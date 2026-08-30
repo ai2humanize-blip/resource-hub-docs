@@ -193,6 +193,10 @@
 <a href="https://1mother.diowebhost.com/98086943/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
 <a href="https://1mother.diowebhost.com/98086948/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
 <a href="https://1mother.diowebhost.com/98086950/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
+<a href="https://1mother.full-design.com/a-reading-list-of-independent-news-and-finance-sites-85514251">a reading list of independent news and finance sites 8551425</a> 
+<a href="https://1mother.full-design.com/independent-crypto-and-finance-publications-to-bookmark-85514254">independent crypto and finance publications to bookmark 8551</a> 
+<a href="https://1mother.full-design.com/more-independent-websites-worth-exploring-85514249">more independent websites worth exploring 85514249</a> 
+<a href="https://1mother.full-design.com/useful-independent-sites-tools-and-crypto-resources-85514255">useful independent sites tools and crypto resources 85514255</a> 
 <a href="https://1mother.net/gindex.html">gindex</a> 
 <a href="https://1mother.pages10.com/a-reading-list-of-independent-sites-78307153">a reading list of independent sites 78307153</a> 
 <a href="https://1mother.pages10.com/independent-publications-to-bookmark-78307156">independent publications to bookmark 78307156</a> 
@@ -798,7 +802,3 @@
 <a href="https://ai2humanize.ghost.io/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ai2humanize.ghost.io/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ai2humanize.ghost.io/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ai2humanize.ghost.io/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ai2humanize.ghost.io/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ai2humanize.ghost.io/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ai2humanize.ghost.io/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
