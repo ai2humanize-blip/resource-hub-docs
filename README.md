@@ -90,6 +90,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://aavotcom.cc/">aavotcom.cc</a> 
 <a href="https://666game.com.im/">666game.com.im</a> 
 <a href="https://cplemaire.co/">cplemaire.co</a> 
+<a href="https://ttweakflight.cc/">ttweakflight.cc</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -114,4 +115,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 20](references-20.md)
 - [Reference set 21](references-21.md)
 
-_16,620 curated references across 21 sets._
+_16,785 curated references across 21 sets._
