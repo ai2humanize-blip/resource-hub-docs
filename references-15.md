@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://ls-navigating-the-future-how-blockchain--msst0uct-dot-stnews-489814.uc.r.appspot.com/">ls-navigating-the-future-how-blockchain--msst0uct-dot-stnews-489814.uc.r.appspot.com</a> 
 <a href="https://ls-navigating-the-future-how-blockchain-msssez7p.wasmer.app/">ls-navigating-the-future-how-blockchain-msssez7p.wasmer.app</a> 
 <a href="https://ls-navigating-the-future-of-news-current-mss1j5lm-dot-stnews-489814.uc.r.appspot.com/">ls-navigating-the-future-of-news-current-mss1j5lm-dot-stnews-489814.uc.r.appspot.com</a> 
 <a href="https://ls-navigating-the-future-the-latest-in-cryptocurrency-.ai2hmnz-rhub.workers.dev/">ls-navigating-the-future-the-latest-in-cryptocurrency-.ai2hmnz-rhub.workers.dev</a> 
@@ -371,6 +372,7 @@
 <a href="https://madeleine-dore.com/web-tech-content-navigating-the-digital-age-with-cutting-edg-107-7/">web tech content navigating the digital age with cutting edg</a> 
 <a href="https://madeleine-dore.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
 <a href="https://madwirebuild.com/gindex.html">gindex</a> 
+<a href="https://madwirebuild.com/picks.html">picks</a> 
 <a href="https://magenta-arithmetic-409861.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-and-.html">understanding the impact of ai on modern news reporting and</a> 
 <a href="https://magenta-melba-e4a69c.netlify.app/professional-construction-network.html">professional construction network</a> 
 <a href="https://magical-donut-ca7937.netlify.app/discovering-the-vibrant-world-of-asianpinay-a-deep-dive-into.html">discovering the vibrant world of asianpinay a deep dive into</a> 
@@ -636,6 +638,7 @@
 <a href="https://marvelous-biscochitos-a2039e.netlify.app/exploring-the-vibrant-world-of-independent-music-culture.html">exploring the vibrant world of independent music culture</a> 
 <a href="https://marvelous-lamington-26c103.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://masterwriter.org/gindex.html">gindex</a> 
+<a href="https://masterwriter.org/picks.html">picks</a> 
 <a href="https://mastodon.social/@linkstack/117030545536252759">117030545536252759</a> 
 <a href="https://mastodon.social/@linkstack/117036116495604248">117036116495604248</a> 
 <a href="https://mastodon.social/@linkstack/117038239355633640">117038239355633640</a> 
@@ -799,6 +802,3 @@
 <a href="https://modernwritingdesk.com/understanding-the-global-impact-of-ai-news-latest-developmen/">understanding the global impact of ai news latest developmen</a> 
 <a href="https://modernwritingdesk.com/understanding-the-impact-of-ai-on-modern-news-reporting-a-de/">understanding the impact of ai on modern news reporting a de</a> 
 <a href="https://modernwritingdesk.com/understanding-the-latest-trends-in-news-consumption-and-anal-2/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://modernwritingdesk.com/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://modernwritingdesk.com/understanding-today-s-news-landscape-in-depth-analysis-and-e/">understanding today s news landscape in depth analysis and e</a> 
-<a href="https://modernwritingdesk.com/unlocking-the-future-how-ai-driven-apps-are-transforming-our-2/">unlocking the future how ai driven apps are transforming our</a> 
