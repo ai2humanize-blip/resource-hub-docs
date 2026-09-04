@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://cbdpuffbars.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cbdpuffbars.com/the-future-of-apps-how-ai-and-personalization-are-transformi/">the future of apps how ai and personalization are transformi</a> 
+<a href="https://cbdpuffbars.com/the-future-of-news-ai-algorithms-and-the-role-of-human-journ/">the future of news ai algorithms and the role of human journ</a> 
 <a href="https://cbdpuffbars.com/the-future-of-news-how-ai-and-technology-are-transforming-jo/">the future of news how ai and technology are transforming jo</a> 
 <a href="https://cbdpuffbars.com/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-84-5/">the practical guide to ai art prompt generators web tech con</a> 
 <a href="https://cbdpuffbars.com/the-practical-guide-to-web-tech-content-navigating-reports-p-84-5/">the practical guide to web tech content navigating reports p</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/unpacking-the-latest-news-a-deep-dive-into-current-events-an/">unpacking the latest news a deep dive into current events an</a> 
 <a href="https://crediblenews24.com/unpacking-the-latest-trends-in-news-consumption-and-analysis/">unpacking the latest trends in news consumption and analysis</a> 
 <a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-2/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-86-8/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://crediblenews24.com/vaeyc/">vaeyc</a> 

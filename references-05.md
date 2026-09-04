@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-2023-81-2/">exploring essential digital tools online resources for 2023 </a> 
+<a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-moder-81-2-2/">exploring essential digital tools online resources for moder</a> 
+<a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-moder-81-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-moder-81-7/">exploring essential digital tools online resources for moder</a> 
 <a href="https://bandemusic.com/exploring-independent-business-finance-and-productivity-reso-81-6/">exploring independent business finance and productivity reso</a> 
 <a href="https://bandemusic.com/exploring-the-best-digital-tools-online-resources-for-modern-81-2/">exploring the best digital tools online resources for modern</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
