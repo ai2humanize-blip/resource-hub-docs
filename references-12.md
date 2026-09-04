@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a615957/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a6cdf53/what-to-look-for-in-a-good-news-website-and-why-it-matters.html">what to look for in a good news website and why it matters</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a747fab/how-to-use-the-web-to-learn-a-new-skill.html">how to use the web to learn a new skill</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a820a95/how-to-get-the-most-out-of-online-guides-a-quick-guide.html">how to get the most out of online guides a quick guide</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ab32091/getting-understanding-digital-literacy-right.html">getting understanding digital literacy right</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ac00b6f/what-to-look-for-in-a-good-news-website-explained-simply.html">what to look for in a good news website explained simply</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ae93556/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters.html">how to find balanced coverage of a topic and why it matters</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@afa23d1/a-closer-look-at-a-simple-framework-for-researching-any-topi.html">a closer look at a simple framework for researching any topi</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b01fee0/the-evolution-of-sports-news-how-modern-analysis-is-transfor.html">the evolution of sports news how modern analysis is transfor</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b085258/mastering-the-art-of-budgeting-boost-your-business-and-perso.html">mastering the art of budgeting boost your business and perso</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b31b414/how-to-find-reliable-how-to-guides-a-practical-guide.html">how to find reliable how to guides a practical guide</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b60fe1e/unlocking-the-power-of-social-media-a-comprehensive-guide-fo.html">unlocking the power of social media a comprehensive guide fo</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b6c6edd/how-to-read-the-news-without-getting-overwhelmed-the-basics.html">how to read the news without getting overwhelmed the basics</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ba7a597/a-closer-look-at-understanding-digital-literacy.html">a closer look at understanding digital literacy</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@bb1daaa/understanding-the-impact-of-recent-economic-news-on-global-m.html">understanding the impact of recent economic news on global m</a> 
@@ -790,15 +802,3 @@
 <a href="https://fabulouspoetry.it.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://fabulouspoetry.it.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://fabulouspoetry.it.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://fabulouspoetry.it.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-a-practical-guid-2/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://fabulouspoetry.it.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://fabulouspoetry.it.com/how-to-leverage-personal-finance-strategies-for-business-gro/">how to leverage personal finance strategies for business gro</a> 
-<a href="https://fabulouspoetry.it.com/how-to-navigate-the-digital-world-essential-apps-and-tools-f/">how to navigate the digital world essential apps and tools f</a> 
-<a href="https://fabulouspoetry.it.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
