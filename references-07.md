@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://cbdpuffbars.com/the-future-of-news-how-ai-and-technology-are-transforming-jo/">the future of news how ai and technology are transforming jo</a> 
+<a href="https://cbdpuffbars.com/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-84-5/">the practical guide to ai art prompt generators web tech con</a> 
+<a href="https://cbdpuffbars.com/the-practical-guide-to-web-tech-content-navigating-reports-p-84-5/">the practical guide to web tech content navigating reports p</a> 
 <a href="https://cbdpuffbars.com/the-rise-of-ai-generated-news-how-it-s-changing-journalism/">the rise of ai generated news how it s changing journalism</a> 
 <a href="https://cbdpuffbars.com/the-rise-of-ai-powered-apps-transforming-our-digital-lives/">the rise of ai powered apps transforming our digital lives</a> 
 <a href="https://cbdpuffbars.com/the-rise-of-data-driven-sports-analysis-transforming-how-we/">the rise of data driven sports analysis transforming how we</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-86-8/">unpacking today s top news in depth analysis and expert insi</a> 
 <a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
 <a href="https://crediblenews24.com/vaeyc/">vaeyc</a> 
-<a href="https://crediblenews24.com/web-tech-content-your-ultimate-guide-to-digital-productivity-86-8/">web tech content your ultimate guide to digital productivity</a> 
-<a href="https://crediblenews24.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://crediblenews24.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 

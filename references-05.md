@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-moder-81-7/">exploring essential digital tools online resources for moder</a> 
+<a href="https://bandemusic.com/exploring-independent-business-finance-and-productivity-reso-81-6/">exploring independent business finance and productivity reso</a> 
+<a href="https://bandemusic.com/exploring-the-best-digital-tools-online-resources-for-modern-81-2/">exploring the best digital tools online resources for modern</a> 
 <a href="https://bandemusic.com/exploring-the-best-in-web-tech-content-a-comprehensive-round-81-3/">exploring the best in web tech content a comprehensive round</a> 
 <a href="https://bandemusic.com/exploring-the-best-in-web-tech-content-a-curated-guide-81-3/">exploring the best in web tech content a curated guide 81 3</a> 
 <a href="https://bandemusic.com/exploring-the-best-independent-web-tech-crypto-resources-81-3/">exploring the best independent web tech crypto resources 81 </a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 

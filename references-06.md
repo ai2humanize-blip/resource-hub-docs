@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://cbdpuffbars.com/the-future-of-apps-how-ai-and-personalization-are-transformi/">the future of apps how ai and personalization are transformi</a> 
 <a href="https://cbdpuffbars.com/the-future-of-news-ai-algorithms-and-the-role-of-human-journ/">the future of news ai algorithms and the role of human journ</a> 
-<a href="https://cbdpuffbars.com/the-future-of-news-how-ai-and-technology-are-transforming-jo/">the future of news how ai and technology are transforming jo</a> 
-<a href="https://cbdpuffbars.com/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-84-5/">the practical guide to ai art prompt generators web tech con</a> 
-<a href="https://cbdpuffbars.com/the-practical-guide-to-web-tech-content-navigating-reports-p-84-5/">the practical guide to web tech content navigating reports p</a> 
