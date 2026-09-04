@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@94215a2/thedigitalweekly-overview-and-latest-updates.html">thedigitalweekly overview and latest updates</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@94bd834/recognizing-credible-experts-online-a-practical-guide.html">recognizing credible experts online a practical guide</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@95b7727/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@99d2b71/how-to-find-reliable-how-to-guides-a-practical-guide.html">how to find reliable how to guides a practical guide</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@9bfa3f8/navigating-the-ever-changing-media-landscape-current-news-ex.html">navigating the ever changing media landscape current news ex</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@9c2a5c8/how-to-find-reliable-how-to-guides-a-practical-guide.html">how to find reliable how to guides a practical guide</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@9fe159d/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a03886d/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -797,8 +802,3 @@
 <a href="https://fabulouspoetry.it.com/how-ai-and-machine-learning-are-revolutionizing-everyday-app/">how ai and machine learning are revolutionizing everyday app</a> 
 <a href="https://fabulouspoetry.it.com/how-ai-and-machine-learning-are-transforming-daily-mobile-ap/">how ai and machine learning are transforming daily mobile ap</a> 
 <a href="https://fabulouspoetry.it.com/how-ai-and-machine-learning-are-transforming-mobile-apps-in/">how ai and machine learning are transforming mobile apps in</a> 
-<a href="https://fabulouspoetry.it.com/how-ai-driven-news-aggregators-are-revolutionizing-journalis/">how ai driven news aggregators are revolutionizing journalis</a> 
-<a href="https://fabulouspoetry.it.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
-<a href="https://fabulouspoetry.it.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://fabulouspoetry.it.com/how-optimistindia-transforms-marketing-strategies-with-data/">how optimistindia transforms marketing strategies with data</a> 
-<a href="https://fabulouspoetry.it.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 

@@ -93,6 +93,20 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://ttweakflight.cc/">ttweakflight.cc</a> 
 <a href="https://tlt.ng/">tlt.ng</a> 
 <a href="https://newsreverse.xyz/">newsreverse.xyz</a> 
+<a href="https://quikconsolecom.net/">quikconsolecom.net</a> 
+<a href="https://oxpoll.cc/">oxpoll.cc</a> 
+<a href="https://virtualseoexpert.com/">virtualseoexpert.com</a> 
+<a href="https://arcenturf.co/">arcenturf.co</a> 
+<a href="https://newsrealtors.xyz/">newsrealtors.xyz</a> 
+<a href="https://crunchbanglinux.org/">crunchbanglinux.org</a> 
+<a href="https://tsam.net/">tsam.net</a> 
+<a href="https://retirewithcrypto.net/">retirewithcrypto.net</a> 
+<a href="https://thedigitalwise.com/">thedigitalwise.com</a> 
+<a href="https://analyzingmarket.com/">analyzingmarket.com</a> 
+<a href="https://ecoonomia.com/">ecoonomia.com</a> 
+<a href="https://newzcryptos.com/">newzcryptos.com</a> 
+<a href="https://scenefordummies.com/">scenefordummies.com</a> 
+<a href="https://abcyapi.net/">abcyapi.net</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -131,4 +145,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 34](references-34.md)
 - [Reference set 35](references-35.md)
 
-_27,497 curated references across 35 sets._
+_27,517 curated references across 35 sets._
