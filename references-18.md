@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB">QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd">Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR">Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G">QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv">QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R">QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource-2/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
@@ -785,20 +802,3 @@
 <a href="https://labmagickite.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://labmagickite.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://labmagickite.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://labmagickite.com/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
-<a href="https://labmagickite.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://labmagickite.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
-<a href="https://labmagickite.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://labmagickite.com/the-future-of-digital-currencies-latest-news-and-expert-anal/">the future of digital currencies latest news and expert anal</a> 
-<a href="https://labmagickite.com/the-latest-news-trends-in-depth-analysis-and-what-they-mean/">the latest news trends in depth analysis and what they mean</a> 
-<a href="https://labmagickite.com/the-rise-of-ai-in-news-reporting-current-trends-and-future-i/">the rise of ai in news reporting current trends and future i</a> 
-<a href="https://labmagickite.com/the-rise-of-ai-in-news-reporting-opportunities-and-challenge/">the rise of ai in news reporting opportunities and challenge</a> 
-<a href="https://labmagickite.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-every-o-104-7/">the ultimate guide to choosing the perfect watch for every o</a> 
-<a href="https://labmagickite.com/the-ultimate-watch-buying-guide-how-to-choose-the-perfect-ti/">the ultimate watch buying guide how to choose the perfect ti</a> 
-<a href="https://labmagickite.com/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
-<a href="https://labmagickite.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
-<a href="https://labmagickite.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
-<a href="https://labmagickite.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://labmagickite.com/transform-your-lifestyle-top-health-wellness-and-organic-liv/">transform your lifestyle top health wellness and organic liv</a> 
-<a href="https://labmagickite.com/transforming-daily-life-ai-productivity-apps-and-data-driven-104-5/">transforming daily life ai productivity apps and data driven</a> 
-<a href="https://labmagickite.com/transforming-daily-life-and-work-the-impact-of-ai-driven-app-104-7/">transforming daily life and work the impact of ai driven app</a> 

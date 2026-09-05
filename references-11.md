@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://dev.to/ai2humanizeblip/how-to-tell-explainer-journalism-from-opinion-a-quick-guide-1m61">how to tell explainer journalism from opinion a quick guide </a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-tell-explainer-journalism-from-opinion-the-basics-27mm">how to tell explainer journalism from opinion the basics 27m</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-tell-if-a-website-is-trustworthy-1e1m">how to tell if a website is trustworthy 1e1m</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters-46gi">how to tell if a website is trustworthy and why it matters 4</a> 
+<a href="https://dev.to/ai2humanizeblip/is-there-an-official-aavot-app-to-download-yet-20h0">is there an official aavot app to download yet 20h0</a> 
+<a href="https://dev.to/ai2humanizeblip/making-sense-of-todays-fast-paced-news-cycle-a-comprehensive-guide-ijj">making sense of todays fast paced news cycle a comprehensive</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-local-seo-a-comprehensive-guide-for-small-business-owners-36n8">mastering local seo a comprehensive guide for small business</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-local-seo-a-comprehensive-guide-to-boosting-your-business-visibility-2emo">mastering local seo a comprehensive guide to boosting your b</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-modern-communication-a-deep-dive-into-web-tech-content-2m7">mastering modern communication a deep dive into web tech con</a> 
@@ -35,6 +41,8 @@
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-online-research-and-consumption-4eee">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-online-research-and-evaluation-57o6">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-online-research-and-evaluation-59d">mastering web tech content a comprehensive guide to online r</a> 
+<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-reliable-information-and-personal-growth-27ad">mastering web tech content a comprehensive guide to reliable</a> 
+<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-reliable-information-and-skills-1bdg">mastering web tech content a comprehensive guide to reliable</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-smart-online-reading-and-research-4pmg">mastering web tech content a comprehensive guide to smart on</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-smarter-news-consumption-and-learning-1ek6">mastering web tech content a comprehensive guide to smarter </a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-roundup-for-2023-3jaa">mastering web tech content a comprehensive roundup for 2023 </a> 
@@ -78,6 +86,7 @@
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-modern-readers-1ojo">navigating web tech content a comprehensive guide for modern</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-smart-readers-502n">navigating web tech content a comprehensive guide for smart </a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-the-modern-enthusiast-56g5">navigating web tech content a comprehensive guide for the mo</a> 
+<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-the-modern-reader-cek">navigating web tech content a comprehensive guide for the mo</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-to-cryptocurrency-online-casinos-and-2f86">navigating web tech content a comprehensive guide to cryptoc</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-to-informed-reading-and-trustworthy-sources-1178">navigating web tech content a comprehensive guide to informe</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-to-quality-information-4j3h">navigating web tech content a comprehensive guide to quality</a> 
@@ -793,12 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@3568d2d/navigating-the-future-understanding-cryptocurrency-bitcoin-a.html">navigating the future understanding cryptocurrency bitcoin a</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@35e9978/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@367adaa/revolutionizing-creativity-how-ai-powered-apps-are-transform.html">revolutionizing creativity how ai powered apps are transform</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@3809303/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh.html">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@3864e99/mastering-digital-productivity-top-apps-for-a-smarter-workda.html">mastering digital productivity top apps for a smarter workda</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@3d3f85d/what-to-look-for-in-a-good-news-website-explained-simply.html">what to look for in a good news website explained simply</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4031054/making-sense-of-complex-topics-online-a-practical-guide.html">making sense of complex topics online a practical guide</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@40c7978/the-value-of-slow-careful-reading-a-quick-guide.html">the value of slow careful reading a quick guide</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@42c4eda/discovering-the-best-craft-breweries-a-guide-to-unearthing-l.html">discovering the best craft breweries a guide to unearthing l</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4347e14/understanding-digital-literacy-the-basics.html">understanding digital literacy the basics</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@437fe9d/what-to-look-for-in-a-good-news-website-a-quick-guide.html">what to look for in a good news website a quick guide</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@43e564c/why-browser-games-are-perfect-for-a-quick-break.html">why browser games are perfect for a quick break</a> 
