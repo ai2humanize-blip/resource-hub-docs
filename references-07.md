@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://cbdpuffbars.com/reportspedia/">reportspedia</a> 
+<a href="https://cbdpuffbars.com/revolutionizing-business-finance-productivity-the-ai-driven-84-8/">revolutionizing business finance productivity the ai driven </a> 
+<a href="https://cbdpuffbars.com/revolutionizing-creativity-how-ai-tools-are-transforming-dig/">revolutionizing creativity how ai tools are transforming dig</a> 
 <a href="https://cbdpuffbars.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-84-7/">revolutionizing daily life how ai powered apps are transform</a> 
 <a href="https://cbdpuffbars.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 
 <a href="https://cbdpuffbars.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-86-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-3/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
