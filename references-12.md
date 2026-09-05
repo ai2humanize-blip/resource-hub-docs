@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8034696/how-to-evaluate-online-reviews-and-recommendations-explained.html">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@81892a4/le-quint-comprendre-le-pari-hippique-le-plus-suivi.html">le quint comprendre le pari hippique le plus suivi</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@81baf2c/how-to-read-the-news-without-getting-overwhelmed-explained-s.html">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8312f07/navigating-the-future-of-finance-understanding-bitcoin-block.html">navigating the future of finance understanding bitcoin block</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8481a54/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi.html">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@86453af/understanding-digital-literacy.html">understanding digital literacy</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@86bf5ec/getting-making-sense-of-complex-topics-online-right.html">getting making sense of complex topics online right</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@873a351/how-to-evaluate-online-reviews-and-recommendations-a-practic.html">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@895c503/what-to-know-about-what-to-look-for-in-a-good-news-website.html">what to know about what to look for in a good news website</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8b123bc/navigating-the-digital-world-top-apps-for-boosting-productiv.html">navigating the digital world top apps for boosting productiv</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8eeea8a/leveraging-the-latest-apps-for-a-more-productive-digital-lif.html">leveraging the latest apps for a more productive digital lif</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@9100dfa/getting-how-to-tell-if-a-website-is-trustworthy-right.html">getting how to tell if a website is trustworthy right</a> 
@@ -793,12 +802,3 @@
 <a href="https://fabulouspoetry.it.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
 <a href="https://fabulouspoetry.it.com/getting-how-to-tell-explainer-journalism-from-opinion-right-2/">getting how to tell explainer journalism from opinion right </a> 
 <a href="https://fabulouspoetry.it.com/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://fabulouspoetry.it.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://fabulouspoetry.it.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
-<a href="https://fabulouspoetry.it.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://fabulouspoetry.it.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
-<a href="https://fabulouspoetry.it.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://fabulouspoetry.it.com/guides-reviews-how-tos-32-resources-worth-bookmarking-27-3/">guides reviews how tos 32 resources worth bookmarking 27 3</a> 
-<a href="https://fabulouspoetry.it.com/guides-reviews-how-tos-40-resources-worth-bookmarking-27-3/">guides reviews how tos 40 resources worth bookmarking 27 3</a> 
-<a href="https://fabulouspoetry.it.com/guides-reviews-how-tos-45-resources-worth-bookmarking-27-3/">guides reviews how tos 45 resources worth bookmarking 27 3</a> 
-<a href="https://fabulouspoetry.it.com/how-ai-and-apps-are-transforming-our-daily-digital-lives/">how ai and apps are transforming our daily digital lives</a> 
