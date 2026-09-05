@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://ls-boosting-produc-msro9yji.web.app/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://ls-boosting-your-business-and-personal-finances-with-s.ai2hmnz-rhub.workers.dev/">ls-boosting-your-business-and-personal-finances-with-s.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-breaking-down-t-msrje4o9.firebaseapp.com/">ls-breaking-down-t-msrje4o9.firebaseapp.com</a> 
+<a href="https://ls-breaking-down-t-msrje4o9.web.app/">ls-breaking-down-t-msrje4o9.web.app</a> 
+<a href="https://ls-breaking-down-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app">ls-breaking-down-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-building-a-daily-reading-habit-with-s-mtd70d3x-dot-stnews-489814.uc.r.appspot.com/">ls-building-a-daily-reading-habit-with-s-mtd70d3x-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-building-a-healthy-daily-reading-habi-mtmm16kv-dot-stnews-489814.uc.r.appspot.com/">ls-building-a-healthy-daily-reading-habi-mtmm16kv-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-building-a-healthy-daily-reading-habi-mtmmh9l2-dot-stnews-489814.uc.r.appspot.com/">ls-building-a-healthy-daily-reading-habi-mtmmh9l2-dot-stnews-489814.uc.r.appspot.com</a> 
 <a href="https://ls-building-a-healthy-daily-reading-habit-a-pr-mt-imncw2y54a-uc.a.run.app">ls-building-a-healthy-daily-reading-habit-a-pr-mt-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-careers-and-jobs-resources-in-india-mte8l5qm.wasmer.app/">ls-careers-and-jobs-resources-in-india-mte8l5qm.wasmer.app</a> 
 <a href="https://ls-choosing-the-perfect-watch-a-comprehensive--ms-imncw2y54a-uc.a.run.app">ls-choosing-the-perfect-watch-a-comprehensive--ms-imncw2y54a-uc.a.run.app</a> 
@@ -793,12 +802,3 @@
 <a href="https://madeleine-dore.com/how-to-stay-informed-the-best-news-sources-for-2023/">how to stay informed the best news sources for 2023</a> 
 <a href="https://madeleine-dore.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
 <a href="https://madeleine-dore.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://madeleine-dore.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://madeleine-dore.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
-<a href="https://madeleine-dore.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://madeleine-dore.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
-<a href="https://madeleine-dore.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
-<a href="https://madeleine-dore.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://madeleine-dore.com/master-the-art-of-online-growth-guides-reviews-and-how-tos-f-107-8/">master the art of online growth guides reviews and how tos f</a> 
-<a href="https://madeleine-dore.com/mastering-business-and-personal-finance-a-marketing-centric/">mastering business and personal finance a marketing centric</a> 
-<a href="https://madeleine-dore.com/mastering-business-finance-and-productivity-with-the-digital-107-10/">mastering business finance and productivity with the digital</a> 

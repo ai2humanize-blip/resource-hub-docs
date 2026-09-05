@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://madeleine-dore.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://madeleine-dore.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://madeleine-dore.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://madeleine-dore.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
+<a href="https://madeleine-dore.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://madeleine-dore.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://madeleine-dore.com/master-the-art-of-online-growth-guides-reviews-and-how-tos-f-107-8/">master the art of online growth guides reviews and how tos f</a> 
+<a href="https://madeleine-dore.com/mastering-business-and-personal-finance-a-marketing-centric/">mastering business and personal finance a marketing centric</a> 
+<a href="https://madeleine-dore.com/mastering-business-finance-and-productivity-with-the-digital-107-10/">mastering business finance and productivity with the digital</a> 
 <a href="https://madeleine-dore.com/mastering-business-finance-productivity-a-comprehensive-guid-107-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://madeleine-dore.com/mastering-business-finance-productivity-essential-resources-107-10/">mastering business finance productivity essential resources </a> 
 <a href="https://madeleine-dore.com/mastering-business-growth-personal-finance-strategies-for-en/">mastering business growth personal finance strategies for en</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
 <a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
 <a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
-<a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://modernwritingdesk.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it-2/">how to read the news without getting overwhelmed and why it </a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 

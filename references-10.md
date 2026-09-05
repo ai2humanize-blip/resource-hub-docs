@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/wallets-and-self-custody-the-safety-first-basics-3/">wallets and self custody the safety first basics 3</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/web-tech-content-a-comprehensive-guide-to-cryptocurrency-onl-51-3/">web tech content a comprehensive guide to cryptocurrency onl</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/web-tech-content-navigating-the-future-of-digital-learning-a-51-3/">web tech content navigating the future of digital learning a</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
@@ -791,6 +793,7 @@
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-digital-literacy-4gh5">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-digital-skills-and-certifications-484o">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-digital-success-2pp6">mastering web tech content a comprehensive guide to digital </a> 
+<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-navigating-the-digital-landscape-33jm">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-smarter-news-consumption-and-learning-1ek6">mastering web tech content a comprehensive guide to smarter </a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-roundup-for-2023-3jaa">mastering web tech content a comprehensive roundup for 2023 </a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-ai-tools-durable-gadgets-and-trends-to-watch-58po">mastering web tech content ai tools durable gadgets and tren</a> 
@@ -799,6 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/maximizing-productivity-top-apps-for-organizing-your-digital-life-9j6">maximizing productivity top apps for organizing your digital</a> 
 <a href="https://dev.to/ai2humanizeblip/maximizing-your-websites-potential-a-comprehensive-guide-to-seo-content-and-local-strategies-287l">maximizing your websites potential a comprehensive guide to </a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-career-transitions-and-legal-news-strategies-for-success-in-web-tech-and-content-jog">navigating career transitions and legal news strategies for </a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-the-complex-world-of-ai-regulation-current-news-and-expert-analysis-2ga4">navigating the complex world of ai regulation current news a</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-the-cryptocurrency-craze-key-news-analysis-and-what-it-means-for-you-4p7e">navigating the cryptocurrency craze key news analysis and wh</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-and-beyond-3j60">navigating the cryptocurrency landscape bitcoin blockchain a</a> 

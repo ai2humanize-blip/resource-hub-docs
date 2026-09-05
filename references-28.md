@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://pastelink.net/tz25k7oh">tz25k7oh</a> 
+<a href="https://pastelink.net/wxjb1l63">wxjb1l63</a> 
+<a href="https://pastelink.net/xkylfv1x">xkylfv1x</a> 
+<a href="https://pathway2prevention.org/gindex.html">gindex</a> 
+<a href="https://pathway2prevention.org/picks.html">picks</a> 
+<a href="https://peaceful-buttercream-3e3fdd.netlify.app/staying-safe-and-responsible-the-latest-online-casino-and-ga.html">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://peaceful-kangaroo-492943.netlify.app/the-basics-of-staying-safe-while-browsing-and-why-it-matters.html">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://peaceful-melba-03e27d.netlify.app/how-to-tell-explainer-journalism-from-opinion-a-quick-guide.html">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://peachpuff-hawk-865930.hostingersite.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://peachpuff-hawk-865930.hostingersite.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://peachpuff-hawk-865930.hostingersite.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
@@ -792,13 +802,3 @@
 <a href="https://playboicartinetworth.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
 <a href="https://playboicartinetworth.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
 <a href="https://playboicartinetworth.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://playboicartinetworth.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://playboicartinetworth.com/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
-<a href="https://playboicartinetworth.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
-<a href="https://playboicartinetworth.com/boost-your-business-and-personal-finances-with-strategic-mar/">boost your business and personal finances with strategic mar</a> 
-<a href="https://playboicartinetworth.com/boosting-your-digital-life-top-apps-and-tech-tips-for-a-smar/">boosting your digital life top apps and tech tips for a smar</a> 
-<a href="https://playboicartinetworth.com/breaking-down-the-latest-cybersecurity-threats-what-you-need/">breaking down the latest cybersecurity threats what you need</a> 
-<a href="https://playboicartinetworth.com/building-a-healthy-daily-reading-habit-a-quick-guide-2/">building a healthy daily reading habit a quick guide 2</a> 

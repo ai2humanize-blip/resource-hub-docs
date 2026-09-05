@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://landscape-paintings.net/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://landscape-paintings.net/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://landscape-paintings.net/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
+<a href="https://landscape-paintings.net/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://landscape-paintings.net/how-to-evaluate-online-reviews-and-recommendations-the-basic-2/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://landscape-paintings.net/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://landscape-paintings.net/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://landscape-paintings.net/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
 <a href="https://landscape-paintings.net/how-to-find-balanced-coverage-of-a-topic-a-quick-guide-2/">how to find balanced coverage of a topic a quick guide 2</a> 
 <a href="https://landscape-paintings.net/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
@@ -346,6 +353,7 @@
 <a href="https://lapzoocom.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-31-5/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://lapzoocom.it.com/mastering-marketing-seo-growth-strategies-for-success-31-5/">mastering marketing seo growth strategies for success 31 5</a> 
 <a href="https://lapzoocom.it.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-31-8/">mastering modern communication a deep dive into web tech con</a> 
+<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-and-how-tos-for-31-9/">mastering online information guides reviews and how tos for </a> 
 <a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-31-9-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-31-9/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-31-9-2/">mastering online information guides reviews how tos for smar</a> 
@@ -794,11 +802,3 @@
 <a href="https://lightgreen-chamois-841460.hostingersite.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://lightgreen-chamois-841460.hostingersite.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
 <a href="https://lightgreen-chamois-841460.hostingersite.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 

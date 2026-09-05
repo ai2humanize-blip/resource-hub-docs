@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://livejournal.micro.blog/2026/09/02/web-and-blockchain-policy-what.html">web and blockchain policy what</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/070646.html">070646</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071541.html">071541</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071621.html">071621</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071743.html">071743</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071914.html">071914</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072047.html">072047</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072130.html">072130</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/072214.html">072214</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/072421.html">072421</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/072719.html">072719</a> 
@@ -204,6 +212,7 @@
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-4/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-5/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-guide-to-smart-32-10/">mastering business finance and productivity a guide to smart</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-essential-insigh-32-10/">mastering business finance and productivity essential insigh</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-in-the-crypto-an-32-10/">mastering business finance and productivity in the crypto an</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-in-the-digital-a-32-10/">mastering business finance and productivity in the digital a</a> 
@@ -793,12 +802,3 @@
 <a href="https://ls-boosting-produc-msro9yji.web.app/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://ls-boosting-your-business-and-personal-finances-with-s.ai2hmnz-rhub.workers.dev/">ls-boosting-your-business-and-personal-finances-with-s.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-breaking-down-t-msrje4o9.firebaseapp.com/">ls-breaking-down-t-msrje4o9.firebaseapp.com</a> 
-<a href="https://ls-breaking-down-t-msrje4o9.web.app/">ls-breaking-down-t-msrje4o9.web.app</a> 
-<a href="https://ls-breaking-down-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app">ls-breaking-down-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-building-a-daily-reading-habit-with-s-mtd70d3x-dot-stnews-489814.uc.r.appspot.com/">ls-building-a-daily-reading-habit-with-s-mtd70d3x-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-building-a-healthy-daily-reading-habi-mtmm16kv-dot-stnews-489814.uc.r.appspot.com/">ls-building-a-healthy-daily-reading-habi-mtmm16kv-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-building-a-healthy-daily-reading-habi-mtmmh9l2-dot-stnews-489814.uc.r.appspot.com/">ls-building-a-healthy-daily-reading-habi-mtmmh9l2-dot-stnews-489814.uc.r.appspot.com</a> 
