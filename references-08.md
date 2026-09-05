@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://crediblenews24.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
+<a href="https://crediblenews24.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
 <a href="https://crediblenews24.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://crediblenews24.com/understanding-legal-news-a-guide-to-staying-informed-and-mak/">understanding legal news a guide to staying informed and mak</a> 
 <a href="https://crediblenews24.com/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
@@ -466,6 +469,7 @@
 <a href="https://cyberkannadig.it.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
 <a href="https://cyberkannadig.it.com/baginda168/">baginda168</a> 
 <a href="https://cyberkannadig.it.com/choosing-comfortable-shoes-daily-foot-care-and-walking-for-w-26-4/">choosing comfortable shoes daily foot care and walking for w</a> 
+<a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-for-effective-onlin-26-4/">comprehensive guides reviews and how tos for effective onlin</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-for-every-need-26-4/">comprehensive guides reviews and how tos for every need 26 4</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-for-independent-cry-26-4/">comprehensive guides reviews and how tos for independent cry</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-for-tech-career-suc-26-4/">comprehensive guides reviews and how tos for tech career suc</a> 
@@ -631,6 +635,8 @@
 <a href="https://cyberkannadig.it.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-26-4/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-reading-research-and-digital-literacy-a-com-26-4/">mastering online reading research and digital literacy a com</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-26-4/">mastering online research guides reviews and how tos for sav</a> 
+<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-and-how-tos-for-the-26-4/">mastering online research guides reviews and how tos for the</a> 
+<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-26-4/">mastering online research guides reviews how tos for smart l</a> 
 <a href="https://cyberkannadig.it.com/mastering-personal-finance-a-business-owner-s-guide-to-finan/">mastering personal finance a business owner s guide to finan</a> 
 <a href="https://cyberkannadig.it.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
@@ -796,9 +802,3 @@
 <a href="https://cyberkannadig.it.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://cyberkannadig.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
-<a href="https://cyberkannadig.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://cyberkannadig.it.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://cyberkannadig.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://cyberkannadig.it.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://cyberkannadig.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
