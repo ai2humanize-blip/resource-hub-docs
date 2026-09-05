@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://bandemusic.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://bandemusic.com/business-finance-productivity-essential-resources-for-succes-81-6/">business finance productivity essential resources for succes</a> 
+<a href="https://bandemusic.com/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
 <a href="https://bandemusic.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-81-4/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-for-every-need-81-4/">comprehensive guides reviews and how tos for every need 81 4</a> 
 <a href="https://bandemusic.com/cplemaire-quoi-sert-un-annuaire-du-turf/">cplemaire quoi sert un annuaire du turf</a> 
@@ -799,6 +802,3 @@
 <a href="https://builtwith.com/newsrealtors.xyz">newsrealtors.xyz</a> 
 <a href="https://builtwith.com/newzcryptos.com">newzcryptos.com</a> 
 <a href="https://builtwith.com/oxpoll.cc">oxpoll.cc</a> 
-<a href="https://builtwith.com/pqrnews.com">pqrnews.com</a> 
-<a href="https://builtwith.com/quikconsolecom.net">quikconsolecom.net</a> 
-<a href="https://builtwith.com/retirewithcrypto.net">retirewithcrypto.net</a> 
