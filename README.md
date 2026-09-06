@@ -107,6 +107,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://newzcryptos.com/">newzcryptos.com</a> 
 <a href="https://scenefordummies.com/">scenefordummies.com</a> 
 <a href="https://abcyapi.net/">abcyapi.net</a> 
+<a href="https://serpinsight.link/">serpinsight.link</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -144,5 +145,6 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 33](references-33.md)
 - [Reference set 34](references-34.md)
 - [Reference set 35](references-35.md)
+- [Reference set 36](references-36.md)
 
-_27,857 curated references across 35 sets._
+_28,651 curated references across 36 sets._
