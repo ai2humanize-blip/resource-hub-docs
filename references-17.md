@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://heatherburrisphotography.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://heatherburrisphotography.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
+<a href="https://heatherburrisphotography.com/stay-safe-and-informed-navigating-online-casino-and-gambling/">stay safe and informed navigating online casino and gambling</a> 
+<a href="https://heatherburrisphotography.com/stay-safe-and-informed-the-latest-online-casino-and-gambling/">stay safe and informed the latest online casino and gambling</a> 
+<a href="https://heatherburrisphotography.com/staying-informed-a-deep-dive-into-today-s-top-news-stories-a/">staying informed a deep dive into today s top news stories a</a> 
+<a href="https://heatherburrisphotography.com/staying-informed-the-best-strategies-for-consuming-current-n/">staying informed the best strategies for consuming current n</a> 
+<a href="https://heatherburrisphotography.com/staying-informed-top-independent-sites-for-web-tech-content-99-10/">staying informed top independent sites for web tech content </a> 
+<a href="https://heatherburrisphotography.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga-99-8/">staying safe and informed the latest in online casino and ga</a> 
+<a href="https://heatherburrisphotography.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
+<a href="https://heatherburrisphotography.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://heatherburrisphotography.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://heatherburrisphotography.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://heatherburrisphotography.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
+<a href="https://heatherburrisphotography.com/the-basics-of-staying-safe-while-browsing-2/">the basics of staying safe while browsing 2</a> 
+<a href="https://heatherburrisphotography.com/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 
+<a href="https://heatherburrisphotography.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://heatherburrisphotography.com/the-rise-of-ai-generated-news-opportunities-and-ethical-chal/">the rise of ai generated news opportunities and ethical chal</a> 
+<a href="https://heatherburrisphotography.com/the-rise-of-ai-in-news-media-current-trends-and-future-impli/">the rise of ai in news media current trends and future impli</a> 
+<a href="https://heatherburrisphotography.com/the-rise-of-ai-news-generators-revolutionizing-journalism-or/">the rise of ai news generators revolutionizing journalism or</a> 
+<a href="https://heatherburrisphotography.com/the-rise-of-ai-powered-apps-transforming-the-digital-landsca/">the rise of ai powered apps transforming the digital landsca</a> 
+<a href="https://heatherburrisphotography.com/the-rise-of-data-driven-sports-analysis-transforming-how-we/">the rise of data driven sports analysis transforming how we</a> 
 <a href="https://heatherburrisphotography.com/the-rise-of-super-apps-transforming-the-digital-world/">the rise of super apps transforming the digital world</a> 
 <a href="https://heatherburrisphotography.com/the-rise-of-sustainable-fashion-how-eco-friendly-trends-are/">the rise of sustainable fashion how eco friendly trends are</a> 
 <a href="https://heatherburrisphotography.com/the-ultimate-guide-to-choosing-the-best-kitchen-appliances-f/">the ultimate guide to choosing the best kitchen appliances f</a> 
@@ -781,24 +802,3 @@
 <a href="https://influencersgonewild.eu.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
 <a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right-3/">getting understanding digital literacy right 3</a> 
-<a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://influencersgonewild.eu.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://influencersgonewild.eu.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://influencersgonewild.eu.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://influencersgonewild.eu.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://influencersgonewild.eu.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://influencersgonewild.eu.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 

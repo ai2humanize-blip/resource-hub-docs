@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://influencersgonewild.eu.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://influencersgonewild.eu.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://influencersgonewild.eu.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://influencersgonewild.eu.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://influencersgonewild.eu.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://influencersgonewild.eu.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://influencersgonewild.eu.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
 <a href="https://influencersgonewild.eu.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
 <a href="https://influencersgonewild.eu.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
 <a href="https://influencersgonewild.eu.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
@@ -781,24 +802,3 @@
 <a href="https://jiurui9.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
 <a href="https://jiurui9.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://jiurui9.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
-<a href="https://jiurui9.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://jiurui9.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://jiurui9.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://jiurui9.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://jiurui9.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://jiurui9.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
-<a href="https://jiurui9.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://jiurui9.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
-<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
-<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://jiurui9.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
-<a href="https://jiurui9.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
-<a href="https://jiurui9.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://jiurui9.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://jiurui9.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
-<a href="https://jiurui9.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://jiurui9.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://jiurui9.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
