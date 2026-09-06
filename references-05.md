@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://bandemusic.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://bandemusic.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://bandemusic.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
@@ -799,6 +802,3 @@
 <a href="https://builtwith.com/cryptocomman.com">cryptocomman.com</a> 
 <a href="https://builtwith.com/cryptocurrencyminers.net">cryptocurrencyminers.net</a> 
 <a href="https://builtwith.com/cryptonews.co.bz">cryptonews.co.bz</a> 
-<a href="https://builtwith.com/cryptonewsus.com">cryptonewsus.com</a> 
-<a href="https://builtwith.com/cubednews.com">cubednews.com</a> 
-<a href="https://builtwith.com/cyberkannadigs.org">cyberkannadigs.org</a> 
