@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtyupi37lm2b">3mtyupi37lm2b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mu5tglhpbq2e">3mu5tglhpbq2e</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mu5udck7r222">3mu5udck7r222</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mu5vcnkubr22">3mu5vcnkubr22</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mu5wburwo62d">3mu5wburwo62d</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mubzbhk3sx22">3mubzbhk3sx22</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
 <a href="https://cbd-stone.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://cbd-stone.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
-<a href="https://cbd-stone.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 

@@ -2,6 +2,30 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://livejournal.micro.blog/2026/08/28/casual-puzzle-and-arcade-games.html">casual puzzle and arcade games</a> 
+<a href="https://livejournal.micro.blog/2026/08/28/how-to-safely-follow-an.html">how to safely follow an</a> 
+<a href="https://livejournal.micro.blog/2026/08/28/proof-of-work-vs-proof.html">proof of work vs proof</a> 
+<a href="https://livejournal.micro.blog/2026/08/30/cplemaire-quoi-sert-un-annuaire.html">cplemaire quoi sert un annuaire</a> 
+<a href="https://livejournal.micro.blog/2026/09/01/choosing-the-right-online-learning.html">choosing the right online learning</a> 
+<a href="https://livejournal.micro.blog/2026/09/01/flight-deal-hunting-timing-tools.html">flight deal hunting timing tools</a> 
+<a href="https://livejournal.micro.blog/2026/09/02/understanding-how-indias-public-institutions.html">understanding how indias public institutions</a> 
+<a href="https://livejournal.micro.blog/2026/09/02/web-and-blockchain-policy-what.html">web and blockchain policy what</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/070646.html">070646</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071541.html">071541</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071621.html">071621</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071743.html">071743</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071914.html">071914</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072047.html">072047</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072130.html">072130</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072214.html">072214</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072421.html">072421</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072719.html">072719</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072835.html">072835</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073338.html">073338</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073425.html">073425</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073753.html">073753</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073835.html">073835</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073917.html">073917</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/073959.html">073959</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/074041.html">074041</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/074245.html">074245</a> 
@@ -207,6 +231,7 @@
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-4/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-5/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-6/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-guide-to-smart-32-10/">mastering business finance and productivity a guide to smart</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-essential-insigh-32-10/">mastering business finance and productivity essential insigh</a> 
@@ -236,6 +261,7 @@
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-29/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-30/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-31/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-6/">mastering business finance productivity a comprehensive guid</a> 
@@ -335,6 +361,7 @@
 <a href="https://llmseoservices.org/maximizing-business-finance-and-productivity-essential-tools-32-10/">maximizing business finance and productivity essential tools</a> 
 <a href="https://llmseoservices.org/maximizing-business-finance-and-productivity-with-ai-and-sma-32-10/">maximizing business finance and productivity with ai and sma</a> 
 <a href="https://llmseoservices.org/maximizing-business-finance-productivity-top-independent-res-32-10/">maximizing business finance productivity top independent res</a> 
+<a href="https://llmseoservices.org/maximizing-productivity-a-deep-dive-into-business-finance-an-32-10/">maximizing productivity a deep dive into business finance an</a> 
 <a href="https://llmseoservices.org/maximizing-your-business-growth-a-deep-dive-into-marketing-s-32-9/">maximizing your business growth a deep dive into marketing s</a> 
 <a href="https://llmseoservices.org/navigating-business-finance-productivity-a-comprehensive-gui-32-10/">navigating business finance productivity a comprehensive gui</a> 
 <a href="https://llmseoservices.org/navigating-business-finance-productivity-a-guide-to-effectiv-32-10/">navigating business finance productivity a guide to effectiv</a> 
@@ -775,30 +802,3 @@
 <a href="https://ls-boosting-produc-msro9yji.web.app/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/affordable-seo-services-for-small-businesses-a-2026-guide/">affordable seo services for small businesses a 2026 guide</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/crypto-security-protecting-your-wallet-keys-and-funds/">crypto security protecting your wallet keys and funds</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/cybersecurity-awareness-and-digital-literacy-for-everyone/">cybersecurity awareness and digital literacy for everyone</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/digital-productivity-tools-and-habits-that-actually-work/">digital productivity tools and habits that actually work</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 

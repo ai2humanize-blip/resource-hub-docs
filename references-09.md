@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cyberkannadig.it.com/le-turf-pour-d-butants-lire-et-suivre-les-courses-hippiques/">le turf pour d butants lire et suivre les courses hippiques</a> 
+<a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://cyberkannadig.it.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-26-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/master-cheap-flight-booking-guides-reviews-how-tos-for-real-26-4/">master cheap flight booking guides reviews how tos for real </a> 
 <a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4/">master guides reviews how tos your ultimate resource roundup</a> 
 <a href="https://cyberkannadig.it.com/master-news-consumption-guides-reviews-how-tos-for-savvy-rea-26-4/">master news consumption guides reviews how tos for savvy rea</a> 
@@ -26,6 +29,7 @@
 <a href="https://cyberkannadig.it.com/mastering-event-planning-creative-ideas-and-tips-for-memorab/">mastering event planning creative ideas and tips for memorab</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-26-4-2/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-26-4-3/">mastering guides reviews and how tos a comprehensive roundup</a> 
+<a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-26-4-4/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-26-4/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-2/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-3/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
@@ -49,6 +53,7 @@
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-the-26-4-2/">mastering online information guides reviews how tos for the </a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-the-26-4-3/">mastering online information guides reviews how tos for the </a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-the-26-4/">mastering online information guides reviews how tos for the </a> 
+<a href="https://cyberkannadig.it.com/mastering-online-learning-and-research-guides-reviews-how-to-26-4/">mastering online learning and research guides reviews how to</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-learning-guides-reviews-and-how-tos-for-suc-26-4/">mastering online learning guides reviews and how tos for suc</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-26-4/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-reading-guides-reviews-how-tos-for-smarter-26-4/">mastering online reading guides reviews how tos for smarter </a> 
@@ -61,6 +66,7 @@
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-digital-26-4/">mastering online research guides reviews how tos for digital</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-effecti-26-4/">mastering online research guides reviews how tos for effecti</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4-2/">mastering online research guides reviews how tos for savvy r</a> 
+<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4-3/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-26-4/">mastering online research guides reviews how tos for smart i</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-26-4/">mastering online research guides reviews how tos for smart l</a> 
@@ -796,9 +802,3 @@
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 

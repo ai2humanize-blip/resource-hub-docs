@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://crediblenews24.com/digital-tools-online-resources-50-resources-worth-bookmarkin-86-2/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://crediblenews24.com/discover-essential-digital-tools-online-resources-for-every-86-2/">discover essential digital tools online resources for every </a> 
+<a href="https://crediblenews24.com/discover-the-art-of-home-coffee-brewing-a-beginner-s-guide/">discover the art of home coffee brewing a beginner s guide</a> 
 <a href="https://crediblenews24.com/discover-the-best-ai-art-prompt-generators-online-creative-t-86-7/">discover the best ai art prompt generators online creative t</a> 
 <a href="https://crediblenews24.com/discover-the-best-browser-games-digital-tools-for-endless-en-86-2/">discover the best browser games digital tools for endless en</a> 
 <a href="https://crediblenews24.com/discover-the-best-digital-tools-online-resources-for-success-86-2/">discover the best digital tools online resources for success</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
 <a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
 <a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
-<a href="https://cyberkannadig.it.com/le-turf-pour-d-butants-lire-et-suivre-les-courses-hippiques/">le turf pour d butants lire et suivre les courses hippiques</a> 
-<a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://cyberkannadig.it.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-26-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
