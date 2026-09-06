@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmWfDwsezjZcYWYDyTG26iVwpLKtkKHKAEA9nRR2EZav6f">QmWfDwsezjZcYWYDyTG26iVwpLKtkKHKAEA9nRR2EZav6f</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWhNr4QUMfJDgF15YdqK8yJgnAcmjo2GXvMwBxcBhCni4">QmWhNr4QUMfJDgF15YdqK8yJgnAcmjo2GXvMwBxcBhCni4</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWqFCSRfr7SCnTSL6xqsVfSm2Zp363FkFCTxdakvJg3kU">QmWqFCSRfr7SCnTSL6xqsVfSm2Zp363FkFCTxdakvJg3kU</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWqm2F9QbKhetquJ4i6RxfqMDVievw674jbtuxQ18cYqd">QmWqm2F9QbKhetquJ4i6RxfqMDVievw674jbtuxQ18cYqd</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWtPJZzdV8t91Wuosb3HMMyVnNrvzrJqCdXdkCZHrx4ii">QmWtPJZzdV8t91Wuosb3HMMyVnNrvzrJqCdXdkCZHrx4ii</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWz7Rsamzi1Y1grkx2fDY5uzGu8CRYeseFsVySLJWPwsH">QmWz7Rsamzi1Y1grkx2fDY5uzGu8CRYeseFsVySLJWPwsH</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmX9ukeqpt4Ch21evfvoUWeKsG1NKSd3T8FD7oxaxQ1tFF">QmX9ukeqpt4Ch21evfvoUWeKsG1NKSd3T8FD7oxaxQ1tFF</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmX9xuPWBpnGT7Ku3P6tQceMkEPX43X9j1ieNMWB1pdZtj">QmX9xuPWBpnGT7Ku3P6tQceMkEPX43X9j1ieNMWB1pdZtj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXSZ2tsNiqHheidwzvxwxTQT5WYFUPQGHt73gvx3visg2">QmXSZ2tsNiqHheidwzvxwxTQT5WYFUPQGHt73gvx3visg2</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp">QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA">QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW">QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw">QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp">QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa">QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc">QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw">QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7">QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYi5zaYpxyatQtDPfy1oFCJGjJDBeCxzwJmi4tsyehJZB">QmYi5zaYpxyatQtDPfy1oFCJGjJDBeCxzwJmi4tsyehJZB</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3">QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX">QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj">QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o">QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA">QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA</a> 
@@ -781,24 +802,3 @@
 <a href="https://labmagickite.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://labmagickite.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://labmagickite.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://labmagickite.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
-<a href="https://labmagickite.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
-<a href="https://labmagickite.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://labmagickite.com/how-to-find-reliable-how-to-guides-2/">how to find reliable how to guides 2</a> 
-<a href="https://labmagickite.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://labmagickite.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://labmagickite.com/how-to-get-the-most-out-of-online-guides-the-basics-2/">how to get the most out of online guides the basics 2</a> 
-<a href="https://labmagickite.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://labmagickite.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://labmagickite.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
-<a href="https://labmagickite.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
-<a href="https://labmagickite.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://labmagickite.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://labmagickite.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://labmagickite.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
-<a href="https://labmagickite.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://labmagickite.com/how-to-stay-informed-a-guide-to-navigating-current-news-expl/">how to stay informed a guide to navigating current news expl</a> 
-<a href="https://labmagickite.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://labmagickite.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
-<a href="https://labmagickite.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://labmagickite.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 

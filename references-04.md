@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://arcadefloristbedford.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://arcadefloristbedford.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
 <a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
 <a href="https://arcadefloristbedford.com/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
 <a href="https://bandemusic.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://bandemusic.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
-<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
