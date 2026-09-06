@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mu5vcnkubr22">3mu5vcnkubr22</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mu5wburwo62d">3mu5wburwo62d</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mubzbhk3sx22">3mubzbhk3sx22</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muhyrvrrie24">3muhyrvrrie24</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mui3xsrefl2x">3mui3xsrefl2x</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mujpeucpof2l">3mujpeucpof2l</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 

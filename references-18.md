@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-making-sense-of-complex-topics-online-3/">a closer look at making sense of complex topics online 3</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://influencersgonewild.eu.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
+<a href="https://influencersgonewild.eu.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://influencersgonewild.eu.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://influencersgonewild.eu.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
+<a href="https://influencersgonewild.eu.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/building-a-healthy-daily-reading-habit-and-why-it-matters-2/">building a healthy daily reading habit and why it matters 2</a> 
+<a href="https://influencersgonewild.eu.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://influencersgonewild.eu.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://influencersgonewild.eu.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://influencersgonewild.eu.com/getting-how-to-fact-check-something-in-five-minutes-right-2/">getting how to fact check something in five minutes right 2</a> 
+<a href="https://influencersgonewild.eu.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://influencersgonewild.eu.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://influencersgonewild.eu.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://influencersgonewild.eu.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
+<a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right-3/">getting understanding digital literacy right 3</a> 
 <a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://influencersgonewild.eu.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://influencersgonewild.eu.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
@@ -781,24 +802,3 @@
 <a href="https://jiurui9.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://jiurui9.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
 <a href="https://jiurui9.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://jiurui9.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://jiurui9.com/how-to-be-a-smarter-news-reader-in-2026/">how to be a smarter news reader in 2026</a> 
-<a href="https://jiurui9.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://jiurui9.com/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
-<a href="https://jiurui9.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
-<a href="https://jiurui9.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://jiurui9.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://jiurui9.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://jiurui9.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://jiurui9.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://jiurui9.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://jiurui9.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
-<a href="https://jiurui9.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://jiurui9.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://jiurui9.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://jiurui9.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
-<a href="https://jiurui9.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
-<a href="https://jiurui9.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
-<a href="https://jiurui9.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
-<a href="https://jiurui9.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://jiurui9.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
