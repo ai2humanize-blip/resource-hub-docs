@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-a-practical-guide-3lcj">how to compare sources on the same story a practical guide 3</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-a-practical-guide-5486">how to compare sources on the same story a practical guide 5</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide-57o6">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-the-basics-269p">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-and-why-it-matters-1d1m">how to fact check something in five minutes and why it matte</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-and-why-it-matters-m36">how to fact check something in five minutes and why it matte</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-explained-simply-565l">how to fact check something in five minutes explained simply</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-find-clear-no-nonsense-how-to-articles-online-27k9">how to find clear no nonsense how to articles online 27k9</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-find-genuinely-cheap-flights-avoiding-fake-deals-and-saving-money-1j32">how to find genuinely cheap flights avoiding fake deals and </a> 
@@ -30,6 +36,7 @@
 <a href="https://dev.to/ai2humanizeblip/mastering-the-art-of-effective-time-management-a-comprehensive-guide-5e9">mastering the art of effective time management a comprehensi</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-the-intersection-of-business-personal-finance-and-marketing-180l">mastering the intersection of business personal finance and </a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-and-content-a-comprehensive-guide-to-digital-life-50eg">mastering web tech and content a comprehensive guide to digi</a> 
+<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-savvy-readers-2g06">mastering web tech content a comprehensive guide for savvy r</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-savvy-users-fle">mastering web tech content a comprehensive guide for savvy u</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-1a1m">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-1iha">mastering web tech content a comprehensive guide for smart r</a> 
@@ -39,9 +46,11 @@
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-5755">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-success-1kdb">mastering web tech content a comprehensive guide for success</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-the-digital-age-4eoh">mastering web tech content a comprehensive guide for the dig</a> 
+<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-the-modern-learner-3ikj">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-the-modern-reader-15lg">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-the-modern-reader-e15">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-the-modern-reader-e5d">mastering web tech content a comprehensive guide for the mod</a> 
+<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-the-modern-reader-gdk">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-the-modern-user-9">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-oip">mastering web tech content a comprehensive guide oip</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-digital-literacy-1p19">mastering web tech content a comprehensive guide to digital </a> 
@@ -793,12 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@171fedb/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@1745911/how-to-find-reliable-how-to-guides.html">how to find reliable how to guides</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@18701e7/how-to-find-genuinely-cheap-flights-without-falling-for-fake.html">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@188e713/mastering-business-finance-a-guide-to-personal-wealth-and-ma.html">mastering business finance a guide to personal wealth and ma</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@18dffef/how-to-read-the-news-without-getting-overwhelmed-and-why-it-.html">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@1b9d661/mastering-the-art-of-business-finance-and-marketing-integrat.html">mastering the art of business finance and marketing integrat</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@1e09b54/mastering-the-art-of-integrated-business-finance-and-marketi.html">mastering the art of integrated business finance and marketi</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@2594e18/how-ai-and-machine-learning-are-transforming-everyday-apps.html">how ai and machine learning are transforming everyday apps</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@2646d31/digital-productivity-tools-and-habits-that-actually-work.html">digital productivity tools and habits that actually work</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@26a50bc/getting-how-to-spot-low-quality-content-online-right.html">getting how to spot low quality content online right</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@2863d3e/how-to-fact-check-something-in-five-minutes-the-basics.html">how to fact check something in five minutes the basics</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@28bb316/how-to-build-a-personal-reading-list.html">how to build a personal reading list</a> 

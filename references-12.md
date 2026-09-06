@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@188e713/mastering-business-finance-a-guide-to-personal-wealth-and-ma.html">mastering business finance a guide to personal wealth and ma</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@18dffef/how-to-read-the-news-without-getting-overwhelmed-and-why-it-.html">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@1b9d661/mastering-the-art-of-business-finance-and-marketing-integrat.html">mastering the art of business finance and marketing integrat</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@1e09b54/mastering-the-art-of-integrated-business-finance-and-marketi.html">mastering the art of integrated business finance and marketi</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@2594e18/how-ai-and-machine-learning-are-transforming-everyday-apps.html">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@2646d31/digital-productivity-tools-and-habits-that-actually-work.html">digital productivity tools and habits that actually work</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@26a50bc/getting-how-to-spot-low-quality-content-online-right.html">getting how to spot low quality content online right</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@2863d3e/how-to-fact-check-something-in-five-minutes-the-basics.html">how to fact check something in five minutes the basics</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@28bb316/how-to-build-a-personal-reading-list.html">how to build a personal reading list</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@29c8fb6/navigating-the-crypto-landscape-understanding-bitcoin-blockc.html">navigating the crypto landscape understanding bitcoin blockc</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@29e2a27/navigating-the-future-understanding-cryptocurrency-bitcoin-a.html">navigating the future understanding cryptocurrency bitcoin a</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@2b059c1/mastering-personal-finance-a-strategic-approach-to-business-.html">mastering personal finance a strategic approach to business</a> 
@@ -793,12 +802,3 @@
 <a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
 <a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
 <a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
-<a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://fabbusinesssolutions.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://fabbusinesssolutions.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://fabbusinesssolutions.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://fabbusinesssolutions.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
