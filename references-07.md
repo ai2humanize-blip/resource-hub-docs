@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://cbd-stone.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://cbd-stone.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://cbd-stone.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://cbd-stone.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://cbd-stone.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://cbd-stone.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
 <a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 

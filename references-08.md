@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
+<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
 <a href="https://crediblenews24.com/baginda168-uk/">baginda168 uk</a> 
 <a href="https://crediblenews24.com/boosting-business-mastering-finance-and-amplifying-productiv-86-1/">boosting business mastering finance and amplifying productiv</a> 
 <a href="https://crediblenews24.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
 <a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
 <a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://cyberkannadig.it.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
-<a href="https://cyberkannadig.it.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
