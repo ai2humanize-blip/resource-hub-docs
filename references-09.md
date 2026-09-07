@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cyberkannadig.it.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
 <a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://cyberkannadig.it.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
 <a href="https://cyberkannadig.it.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
@@ -21,6 +24,7 @@
 <a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4/">master guides reviews how tos your ultimate resource roundup</a> 
 <a href="https://cyberkannadig.it.com/master-news-consumption-guides-reviews-how-tos-for-savvy-rea-26-4/">master news consumption guides reviews how tos for savvy rea</a> 
 <a href="https://cyberkannadig.it.com/master-online-guides-reviews-how-tos-a-comprehensive-roundup-26-4/">master online guides reviews how tos a comprehensive roundup</a> 
+<a href="https://cyberkannadig.it.com/master-online-learning-guides-reviews-and-how-tos-for-succes-26-4/">master online learning guides reviews and how tos for succes</a> 
 <a href="https://cyberkannadig.it.com/master-online-research-guides-reviews-how-tos-for-smart-sear-26-4/">master online research guides reviews how tos for smart sear</a> 
 <a href="https://cyberkannadig.it.com/master-the-art-of-online-reading-guides-reviews-how-tos-26-4/">master the art of online reading guides reviews how tos 26 4</a> 
 <a href="https://cyberkannadig.it.com/master-the-web-guides-reviews-and-how-tos-for-every-learner-26-4/">master the web guides reviews and how tos for every learner </a> 
@@ -63,6 +67,7 @@
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-4/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-5/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-6/">mastering online information guides reviews how tos for savv</a> 
+<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-7/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-26-4-2/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-26-4-3/">mastering online information guides reviews how tos for smar</a> 
@@ -80,6 +85,7 @@
 <a href="https://cyberkannadig.it.com/mastering-online-reading-guides-reviews-how-tos-for-smarter-26-4/">mastering online reading guides reviews how tos for smarter </a> 
 <a href="https://cyberkannadig.it.com/mastering-online-reading-research-and-digital-literacy-a-com-26-4/">mastering online reading research and digital literacy a com</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-reading-research-and-safety-a-comprehensive-26-4/">mastering online reading research and safety a comprehensive</a> 
+<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-26-4-2/">mastering online research guides reviews and how tos for sav</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-26-4/">mastering online research guides reviews and how tos for sav</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-and-how-tos-for-the-26-4-2/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-and-how-tos-for-the-26-4-3/">mastering online research guides reviews and how tos for the</a> 
@@ -796,9 +802,3 @@
 <a href="https://cymbaltareviews.com/unpacking-the-latest-global-news-in-depth-analysis-and-exper/">unpacking the latest global news in depth analysis and exper</a> 
 <a href="https://cymbaltareviews.com/unpacking-the-latest-news-trends-in-depth-analysis-and-exper/">unpacking the latest news trends in depth analysis and exper</a> 
 <a href="https://cymbaltareviews.com/unpacking-the-latest-trends-in-news-consumption-and-analysis/">unpacking the latest trends in news consumption and analysis</a> 
-<a href="https://cymbaltareviews.com/unpacking-today-s-top-news-expert-analysis-and-key-insights-88-8/">unpacking today s top news expert analysis and key insights </a> 
-<a href="https://cymbaltareviews.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://cymbaltareviews.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
-<a href="https://cymbaltareviews.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
-<a href="https://cymbaltareviews.com/web-tech-content-navigating-the-digital-landscape-for-succes-88-1/">web tech content navigating the digital landscape for succes</a> 
-<a href="https://cymbaltareviews.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
