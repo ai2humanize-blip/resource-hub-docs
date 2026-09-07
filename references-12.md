@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://ecomhuntreviews.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://effortless-ganache-584d17.netlify.app/why-primary-sources-matter-and-how-to-find-them-the-basics.html">why primary sources matter and how to find them the basics</a> 
+<a href="https://effulgent-pixie-41f73a.netlify.app/why-context-matters-when-reading-online-a-practical-guide.html">why context matters when reading online a practical guide</a> 
+<a href="https://elaborate-melba-db7725.netlify.app/how-to-find-reliable-how-to-guides.html">how to find reliable how to guides</a> 
+<a href="https://elaborate-paprenjak-0cad10.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://elaborate-sundae-c1732f.netlify.app/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters.html">how to find balanced coverage of a topic and why it matters</a> 
+<a href="https://elegant-genie-2b3d7d.netlify.app/how-to-find-genuinely-cheap-flights-without-falling-for-fake.html">how to find genuinely cheap flights without falling for fake</a> 
+<a href="https://eloquent-salmiakki-9aaa4d.netlify.app/how-to-safely-follow-an-app-that-s-still-in-development.html">how to safely follow an app that s still in development</a> 
+<a href="https://emiamedical.com/5-proven-strategies-to-boost-your-website-s-organic-traffic/">5 proven strategies to boost your website s organic traffic</a> 
 <a href="https://emiamedical.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
 <a href="https://emiamedical.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://emiamedical.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
@@ -793,12 +802,3 @@
 <a href="https://ezoterizm.com/turf-pour-d-butants-par-o-commencer/">turf pour d butants par o commencer</a> 
 <a href="https://ezoterizm.com/ultimate-guide-to-top-online-resources-blogs-and-how-tos-for-93-2/">ultimate guide to top online resources blogs and how tos for</a> 
 <a href="https://ezoterizm.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

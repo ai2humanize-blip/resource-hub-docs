@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszzh6y7yp26">3mszzh6y7yp26</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mt22axl7ai2y">3mt22axl7ai2y</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mt237hvirf2q">3mt237hvirf2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mt243fdpuj2y">3mt243fdpuj2y</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtlu3m4arq2q">3mtlu3m4arq2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtlx2nwirh27">3mtlx2nwirh27</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
 <a href="https://cbd-stone.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
 <a href="https://cbd-stone.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://cbd-stone.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://cbd-stone.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://cbd-stone.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://illicitlabel.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g-2/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-3/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://illicitlabel.com/how-to-find-balanced-coverage-of-a-topic-2/">how to find balanced coverage of a topic 2</a> 
+<a href="https://illicitlabel.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://illicitlabel.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-the-basics-2/">how to read the news without getting overwhelmed the basics </a> 
+<a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-the-basics-3/">how to read the news without getting overwhelmed the basics </a> 
 <a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
 <a href="https://illicitlabel.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
 <a href="https://illicitlabel.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://ireplicadealers.com/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
-<a href="https://ireplicadealers.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://ireplicadealers.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://ireplicadealers.com/understanding-how-search-engines-rank-pages-and-why-it-matte-2/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://ireplicadealers.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://ireplicadealers.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://ireplicadealers.com/understanding-legal-news-a-guide-to-staying-informed-and-mak/">understanding legal news a guide to staying informed and mak</a> 
-<a href="https://ireplicadealers.com/understanding-the-future-of-cryptocurrency-bitcoin-and-block/">understanding the future of cryptocurrency bitcoin and block</a> 
-<a href="https://ireplicadealers.com/understanding-the-impact-of-ai-on-modern-news-reporting-curr/">understanding the impact of ai on modern news reporting curr</a> 
-<a href="https://ireplicadealers.com/understanding-the-impact-of-recent-economic-trends-on-curren/">understanding the impact of recent economic trends on curren</a> 
-<a href="https://ireplicadealers.com/understanding-the-impact-of-recent-geopolitical-shifts-on-gl/">understanding the impact of recent geopolitical shifts on gl</a> 
-<a href="https://ireplicadealers.com/understanding-the-latest-trends-in-news-consumption-a-compre/">understanding the latest trends in news consumption a compre</a> 
