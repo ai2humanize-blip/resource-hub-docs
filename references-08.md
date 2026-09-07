@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://creativecasinoties.com/picks.html">picks</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
@@ -797,8 +802,3 @@
 <a href="https://cyberkannadig.it.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://cyberkannadig.it.com/how-to-fact-check-something-in-five-minutes-the-basics-2/">how to fact check something in five minutes the basics 2</a> 
 <a href="https://cyberkannadig.it.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-a-quick-guide-2/">how to find reliable how to guides a quick guide 2</a> 
-<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-explained-simply-2/">how to find reliable how to guides explained simply 2</a> 
-<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 

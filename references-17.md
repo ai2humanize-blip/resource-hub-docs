@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://haomvc.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
+<a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://haomvc.com/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 
+<a href="https://haomvc.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://haomvc.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://haomvc.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
+<a href="https://haomvc.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://haomvc.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
 <a href="https://haomvc.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
 <a href="https://haomvc.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
 <a href="https://haomvc.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
@@ -792,13 +802,3 @@
 <a href="https://homaryreviews.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
 <a href="https://homaryreviews.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
 <a href="https://homaryreviews.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://homaryreviews.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://homaryreviews.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://homaryreviews.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://homaryreviews.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://homaryreviews.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://homaryreviews.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin-2/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://homaryreviews.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://homaryreviews.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://homaryreviews.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://homaryreviews.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
