@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://illicitlabel.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
+<a href="https://illicitlabel.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://illicitlabel.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://illicitlabel.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
+<a href="https://illicitlabel.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://illicitlabel.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
+<a href="https://illicitlabel.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://illicitlabel.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://illicitlabel.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
+<a href="https://illicitlabel.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
+<a href="https://illicitlabel.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
+<a href="https://illicitlabel.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://illicitlabel.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
+<a href="https://illicitlabel.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters-2/">simple habits of a smart internet reader and why it matters </a> 
+<a href="https://illicitlabel.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
+<a href="https://illicitlabel.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
+<a href="https://illicitlabel.com/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 
+<a href="https://illicitlabel.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
+<a href="https://illicitlabel.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
 <a href="https://illicitlabel.com/the-difference-between-skimming-and-deep-reading-online-expl-2/">the difference between skimming and deep reading online expl</a> 
 <a href="https://illicitlabel.com/the-difference-between-skimming-and-deep-reading-online-expl-3/">the difference between skimming and deep reading online expl</a> 
 <a href="https://illicitlabel.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
@@ -781,24 +802,3 @@
 <a href="https://ireplicadealers.com/understanding-the-impact-of-recent-economic-trends-on-curren/">understanding the impact of recent economic trends on curren</a> 
 <a href="https://ireplicadealers.com/understanding-the-impact-of-recent-geopolitical-shifts-on-gl/">understanding the impact of recent geopolitical shifts on gl</a> 
 <a href="https://ireplicadealers.com/understanding-the-latest-trends-in-news-consumption-a-compre/">understanding the latest trends in news consumption a compre</a> 
-<a href="https://ireplicadealers.com/understanding-the-role-of-ai-in-modern-news-reporting-a-deep/">understanding the role of ai in modern news reporting a deep</a> 
-<a href="https://ireplicadealers.com/unlocking-creativity-how-ai-powered-apps-revolutionize-digit/">unlocking creativity how ai powered apps revolutionize digit</a> 
-<a href="https://ireplicadealers.com/unlocking-the-future-how-ai-and-apps-are-transforming-our-di/">unlocking the future how ai and apps are transforming our di</a> 
-<a href="https://ireplicadealers.com/unpacking-the-latest-news-current-events-expert-analysis-and/">unpacking the latest news current events expert analysis and</a> 
-<a href="https://ireplicadealers.com/unpacking-the-latest-trends-in-news-consumption-a-deep-dive/">unpacking the latest trends in news consumption a deep dive</a> 
-<a href="https://ireplicadealers.com/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
-<a href="https://ireplicadealers.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://ireplicadealers.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://ireplicadealers.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://ireplicadealers.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://ireplicadealers.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://ireplicadealers.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://ireplicadealers.com/what-to-know-about-understanding-digital-literacy-2/">what to know about understanding digital literacy 2</a> 
-<a href="https://ireplicadealers.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://ireplicadealers.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://ireplicadealers.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
-<a href="https://ireplicadealers.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://ireplicadealers.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://ireplicadealers.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://ireplicadealers.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://ireplicadealers.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cymbaltareviews.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://cymbaltareviews.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://cymbaltareviews.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://dailydishnews.org.uk/gindex.html">gindex</a> 
+<a href="https://dailydishnews.org.uk/picks.html">picks</a> 
+<a href="https://dailyresourceshub.infy.click/">dailyresourceshub.infy.click</a> 
 <a href="https://dainty-cupcake-3c2c2d.netlify.app/navigating-the-future-how-ai-is-transforming-everyday-apps-a.html">navigating the future how ai is transforming everyday apps a</a> 
 <a href="https://dapper-piroshki-30679c.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
@@ -796,9 +802,3 @@
 <a href="https://dellywoodfilms.com/navigating-the-shifting-landscape-of-news-consumption-a-comp-89-7/">navigating the shifting landscape of news consumption a comp</a> 
 <a href="https://dellywoodfilms.com/navigating-the-world-of-cryptocurrency-bitcoin-blockchain-an/">navigating the world of cryptocurrency bitcoin blockchain an</a> 
 <a href="https://dellywoodfilms.com/navigating-today-s-news-landscape-insights-analysis-and-reli/">navigating today s news landscape insights analysis and reli</a> 
-<a href="https://dellywoodfilms.com/navigating-today-s-news-landscape-strategies-for-clarity-tru-89-10/">navigating today s news landscape strategies for clarity tru</a> 
-<a href="https://dellywoodfilms.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
-<a href="https://dellywoodfilms.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
-<a href="https://dellywoodfilms.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://dellywoodfilms.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://dellywoodfilms.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-89-10/">revolutionizing daily life how ai powered apps are transform</a> 

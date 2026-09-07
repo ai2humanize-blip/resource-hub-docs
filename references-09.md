@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
 <a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
 <a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
 <a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
@@ -38,6 +41,7 @@
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-2/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-3/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
+<a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-26-4/">mastering guides reviews how tos your ultimate resource 26 4</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-26-4/">mastering guides reviews how tos your ultimate round up for </a> 
 <a href="https://cyberkannadig.it.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-26-3/">mastering modern communication a deep dive into web tech con</a> 
 <a href="https://cyberkannadig.it.com/mastering-modern-fashion-how-to-stay-ahead-of-style-and-life/">mastering modern fashion how to stay ahead of style and life</a> 
@@ -61,6 +65,7 @@
 <a href="https://cyberkannadig.it.com/mastering-online-learning-and-research-guides-reviews-how-to-26-4/">mastering online learning and research guides reviews how to</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-learning-guides-reviews-and-how-tos-for-suc-26-4/">mastering online learning guides reviews and how tos for suc</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-reading-guides-reviews-and-how-tos-for-effe-26-4/">mastering online reading guides reviews and how tos for effe</a> 
+<a href="https://cyberkannadig.it.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-26-4-2/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-26-4/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-reading-guides-reviews-how-tos-for-smarter-26-4/">mastering online reading guides reviews how tos for smarter </a> 
 <a href="https://cyberkannadig.it.com/mastering-online-reading-research-and-digital-literacy-a-com-26-4/">mastering online reading research and digital literacy a com</a> 
@@ -77,6 +82,7 @@
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-26-4/">mastering online research guides reviews how tos for smart i</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-26-4/">mastering online research guides reviews how tos for smart l</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-26-4-2/">mastering online research guides reviews how tos for smart r</a> 
+<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-26-4-3/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-26-4/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://cyberkannadig.it.com/mastering-personal-finance-a-business-owner-s-guide-to-finan/">mastering personal finance a business owner s guide to finan</a> 
 <a href="https://cyberkannadig.it.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
@@ -796,9 +802,3 @@
 <a href="https://cymbaltareviews.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
 <a href="https://cymbaltareviews.com/why-explainer-journalism-matters-more-than-ever/">why explainer journalism matters more than ever</a> 
 <a href="https://cymbaltareviews.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://cymbaltareviews.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://cymbaltareviews.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://cymbaltareviews.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://dailydishnews.org.uk/gindex.html">gindex</a> 
-<a href="https://dailydishnews.org.uk/picks.html">picks</a> 
-<a href="https://dailyresourceshub.infy.click/">dailyresourceshub.infy.click</a> 

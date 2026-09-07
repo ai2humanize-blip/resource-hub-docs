@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://heatherburrisphotography.com/how-ai-driven-apps-are-transforming-daily-life-and-work/">how ai driven apps are transforming daily life and work</a> 
+<a href="https://heatherburrisphotography.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
+<a href="https://heatherburrisphotography.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://heatherburrisphotography.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
+<a href="https://heatherburrisphotography.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://heatherburrisphotography.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://heatherburrisphotography.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://heatherburrisphotography.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://heatherburrisphotography.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://heatherburrisphotography.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
+<a href="https://heatherburrisphotography.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
+<a href="https://heatherburrisphotography.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
 <a href="https://heatherburrisphotography.com/how-to-leverage-google-my-business-for-local-seo-success/">how to leverage google my business for local seo success</a> 
 <a href="https://heatherburrisphotography.com/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
 <a href="https://heatherburrisphotography.com/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
@@ -781,24 +802,3 @@
 <a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-the-basics-2/">how to read the news without getting overwhelmed the basics </a> 
 <a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-the-basics-3/">how to read the news without getting overwhelmed the basics </a> 
-<a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://illicitlabel.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
-<a href="https://illicitlabel.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://illicitlabel.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://illicitlabel.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://illicitlabel.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
-<a href="https://illicitlabel.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
-<a href="https://illicitlabel.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://illicitlabel.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://illicitlabel.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://illicitlabel.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
-<a href="https://illicitlabel.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
-<a href="https://illicitlabel.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://illicitlabel.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://illicitlabel.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://illicitlabel.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters-2/">simple habits of a smart internet reader and why it matters </a> 
-<a href="https://illicitlabel.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
-<a href="https://illicitlabel.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
-<a href="https://illicitlabel.com/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 
-<a href="https://illicitlabel.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://illicitlabel.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 

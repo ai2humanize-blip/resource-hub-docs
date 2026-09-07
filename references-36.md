@@ -1,7 +1,37 @@
 # Reference set 36
 
-[index](README.md) · [‹ prev](references-35.md)
+[index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://thecommercecasino.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://thecommercecasino.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://thecommercecasino.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
+<a href="https://thecommercecasino.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://thecommercecasino.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://thecommercecasino.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://thecommercecasino.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://thecommercecasino.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://thecommercecasino.com/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://thedigitalweekly.co/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://thedigitalweekly.co/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://thedigitalweekly.co/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
+<a href="https://thedigitalweekly.co/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
+<a href="https://thedigitalweekly.co/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
+<a href="https://thedigitalweekly.co/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://thedigitalweekly.co/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://thedigitalweekly.co/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://thedigitalweekly.co/how-to-be-a-smarter-news-reader-in-2026/">how to be a smarter news reader in 2026</a> 
+<a href="https://thedigitalweekly.co/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://thedigitalweekly.co/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://thedigitalweekly.co/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://thedigitalweekly.co/how-to-compare-sources-on-the-same-story-a-practical-guide-2/">how to compare sources on the same story a practical guide 2</a> 
 <a href="https://thedigitalweekly.co/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
 <a href="https://thedigitalweekly.co/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
@@ -772,4 +802,3 @@
 <a href="https://zentrack.net/picks.html">picks</a> 
 <a href="https://zesty-sfogliatella-12e1ee.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://zingy-gingersnap-e705ce.netlify.app/staying-safe-and-responsible-the-latest-trends-in-online-cas.html">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://zippy-kheer-d0f597.netlify.app/understanding-the-impact-of-ai-on-modern-news-consumption-an.html">understanding the impact of ai on modern news consumption an</a> 

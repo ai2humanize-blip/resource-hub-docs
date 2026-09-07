@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mt243fdpuj2y">3mt243fdpuj2y</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtlu3m4arq2q">3mtlu3m4arq2q</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtlx2nwirh27">3mtlx2nwirh27</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtrix4cfzp2q">3mtrix4cfzp2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtsvcbnndq2b">3mtsvcbnndq2b</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtyudlwhsd2q">3mtyudlwhsd2q</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://cbd-stone.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://cbd-stone.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
-<a href="https://cbd-stone.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://cbd-stone.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://cbd-stone.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 

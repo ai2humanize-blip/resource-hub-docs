@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://emiamedical.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://emiamedical.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://emiamedical.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://emiamedical.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://emiamedical.com/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://emiamedical.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://emiamedical.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://emiamedical.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
 <a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
 <a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
 <a href="https://emiamedical.com/breaking-down-today-s-top-news-expert-analysis-and-key-insig/">breaking down today s top news expert analysis and key insig</a> 
@@ -793,12 +802,3 @@
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-93-3-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-93-3-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
