@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://crediblenews24.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
 <a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
 <a href="https://cyberkannadig.it.com/how-to-identify-and-avoid-common-online-scams-a-comprehensiv/">how to identify and avoid common online scams a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita/">how to leverage the latest apps for a more productive digita</a> 
-<a href="https://cyberkannadig.it.com/how-to-navigate-casinos-without-gamstop-a-practical-guide/">how to navigate casinos without gamstop a practical guide</a> 
-<a href="https://cyberkannadig.it.com/how-to-navigate-the-latest-news-trends-a-comprehensive-guide/">how to navigate the latest news trends a comprehensive guide</a> 
-<a href="https://cyberkannadig.it.com/how-to-organize-the-information-you-find-online-a-practical-2/">how to organize the information you find online a practical </a> 
