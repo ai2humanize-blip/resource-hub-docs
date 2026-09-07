@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://ireplicadealers.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
+<a href="https://ireplicadealers.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://ireplicadealers.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://jade-beijinho-3b8585.netlify.app/getting-how-to-compare-sources-on-the-same-story-right.html">getting how to compare sources on the same story right</a> 
+<a href="https://jade-frangipane-89c0aa.netlify.app/getting-how-to-tell-if-a-website-is-trustworthy-right.html">getting how to tell if a website is trustworthy right</a> 
+<a href="https://jade-tapioca-2356ad.netlify.app/how-ai-powered-apps-are-revolutionizing-daily-life.html">how ai powered apps are revolutionizing daily life</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://jiurui9.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://jiurui9.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://jiurui9.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://jiurui9.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://jiurui9.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://jiurui9.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
 <a href="https://jiurui9.com/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 
@@ -781,24 +802,3 @@
 <a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform-4/">revolutionizing daily life how ai powered apps are transform</a> 
 <a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 
 <a href="https://landscape-paintings.net/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://landscape-paintings.net/simple-habits-of-a-smart-internet-reader-a-quick-guide-2/">simple habits of a smart internet reader a quick guide 2</a> 
-<a href="https://landscape-paintings.net/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-informed-the-latest-in-online-casino-and-ga-105-5/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-responsible-the-latest-online-casino-and-ga-5/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://landscape-paintings.net/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://landscape-paintings.net/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://landscape-paintings.net/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://landscape-paintings.net/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://landscape-paintings.net/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://landscape-paintings.net/the-rise-of-ai-news-anchors-revolutionizing-journalism-or-re/">the rise of ai news anchors revolutionizing journalism or re</a> 
-<a href="https://landscape-paintings.net/the-rise-of-sustainable-fashion-how-to-embrace-eco-friendly/">the rise of sustainable fashion how to embrace eco friendly</a> 
-<a href="https://landscape-paintings.net/the-ultimate-guide-to-choosing-the-perfect-watch-for-any-occ/">the ultimate guide to choosing the perfect watch for any occ</a> 
-<a href="https://landscape-paintings.net/the-ultimate-guide-to-choosing-the-perfect-watch-for-every-o-105-8/">the ultimate guide to choosing the perfect watch for every o</a> 
-<a href="https://landscape-paintings.net/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://landscape-paintings.net/transform-your-lifestyle-practical-health-wellness-and-organ/">transform your lifestyle practical health wellness and organ</a> 
-<a href="https://landscape-paintings.net/transformative-tech-ai-apps-cryptocurrency-and-blockchain-gu-105-5/">transformative tech ai apps cryptocurrency and blockchain gu</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtrix4cfzp2q">3mtrix4cfzp2q</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtsvcbnndq2b">3mtsvcbnndq2b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtyudlwhsd2q">3mtyudlwhsd2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mtyupi37lm2b">3mtyupi37lm2b</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mu5tglhpbq2e">3mu5tglhpbq2e</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mu5udck7r222">3mu5udck7r222</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://cbd-stone.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://cbd-stone.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://cbd-stone.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://cbd-stone.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://cbd-stone.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 

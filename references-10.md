@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://dainty-cupcake-3c2c2d.netlify.app/navigating-the-future-how-ai-is-transforming-everyday-apps-a.html">navigating the future how ai is transforming everyday apps a</a> 
+<a href="https://dapper-piroshki-30679c.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
@@ -796,9 +802,3 @@
 <a href="https://dellywoodfilms.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
 <a href="https://dellywoodfilms.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
 <a href="https://dellywoodfilms.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-89-10/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://dellywoodfilms.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://dellywoodfilms.com/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://dellywoodfilms.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://dellywoodfilms.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
-<a href="https://dellywoodfilms.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://dellywoodfilms.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 

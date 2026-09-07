@@ -2,6 +2,36 @@
 
 [index](README.md) · [‹ prev](references-35.md)
 
+<a href="https://thedigitalweekly.co/how-to-compare-sources-on-the-same-story-a-practical-guide-2/">how to compare sources on the same story a practical guide 2</a> 
+<a href="https://thedigitalweekly.co/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://thedigitalweekly.co/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://thedigitalweekly.co/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://thedigitalweekly.co/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://thedigitalweekly.co/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://thedigitalweekly.co/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://thedigitalweekly.co/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://thedigitalweekly.co/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
+<a href="https://thedigitalweekly.co/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://thedigitalweekly.co/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
+<a href="https://thedigitalweekly.co/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://thedigitalweekly.co/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://thedigitalweekly.co/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
+<a href="https://thedigitalweekly.co/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://thedigitalweekly.co/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://thedigitalweekly.co/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://thedigitalweekly.co/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://thedigitalweekly.co/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://thedigitalweekly.co/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://thedigitalweekly.co/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://thedigitalweekly.co/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://thriftyevents.jp.net/enjoying-concerts-and-live-events-for-less/">enjoying concerts and live events for less</a> 
+<a href="https://thriftyevents.jp.net/how-to-plan-a-beautiful-wedding-on-a-realistic-budget/">how to plan a beautiful wedding on a realistic budget</a> 
+<a href="https://thriftyevents.jp.net/throwing-a-memorable-party-without-overspending/">throwing a memorable party without overspending</a> 
+<a href="https://thriving-centaur-d79b42.netlify.app/getting-how-to-evaluate-online-reviews-and-recommendations-r.html">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://thriving-sprite-b01050.netlify.app/how-to-organize-the-information-you-find-online-the-basics.html">how to organize the information you find online the basics</a> 
+<a href="https://thriving-tiramisu-af2ea3.netlify.app/making-sense-of-complex-topics-online-the-basics.html">making sense of complex topics online the basics</a> 
+<a href="https://tiny-flan-a65c7b.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn.html">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://tiny-salamander-fa342a.netlify.app/why-niche-blogs-still-matter-the-basics.html">why niche blogs still matter the basics</a> 
 <a href="https://tiny-tarsier-093bdf.netlify.app/understanding-today-s-top-news-stories-in-depth-analysis-and.html">understanding today s top news stories in depth analysis and</a> 
 <a href="https://tnifc-ecom.com/picks.html">picks</a> 
 <a href="https://topwebresources.page.gd/">topwebresources.page.gd</a> 

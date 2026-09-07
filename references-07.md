@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://cbd-stone.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
+<a href="https://cbd-stone.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://cbd-stone.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
 <a href="https://cbd-stone.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
 <a href="https://crediblenews24.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-86-9/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://crediblenews24.com/comprehensive-guides-reviews-and-how-tos-for-every-need-86-9/">comprehensive guides reviews and how tos for every need 86 9</a> 
-<a href="https://crediblenews24.com/decoding-the-latest-global-news-trends-expert-analysis-and-i/">decoding the latest global news trends expert analysis and i</a> 
-<a href="https://crediblenews24.com/decoding-today-s-news-landscape-in-depth-analysis-and-expert/">decoding today s news landscape in depth analysis and expert</a> 
-<a href="https://crediblenews24.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-86-6/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
