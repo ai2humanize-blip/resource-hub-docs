@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://crediblenews24.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-explained-simply-2/">how to find reliable how to guides explained simply 2</a> 
 <a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
 <a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://cyberkannadig.it.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://cyberkannadig.it.com/how-to-identify-and-avoid-common-online-scams-a-comprehensiv/">how to identify and avoid common online scams a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita/">how to leverage the latest apps for a more productive digita</a> 
