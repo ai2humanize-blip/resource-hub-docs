@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://marlonwayansnetworth.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://marlonwayansnetworth.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://marlonwayansnetworth.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://marlonwayansnetworth.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://marlonwayansnetworth.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://marlonwayansnetworth.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://marlonwayansnetworth.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://marlonwayansnetworth.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://marlonwayansnetworth.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://marlonwayansnetworth.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://marlonwayansnetworth.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://marlonwayansnetworth.com/how-to-find-reliable-how-to-guides-a-practical-guide-2/">how to find reliable how to guides a practical guide 2</a> 
@@ -793,12 +802,3 @@
 <a href="https://moneynewsweb.co.in/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://moneynewsweb.co.in/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://moneynewsweb.co.in/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://moneynewsweb.co.in/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://moneynewsweb.co.in/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://moneynewsweb.co.in/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://moneynewsweb.co.in/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://moneynewsweb.co.in/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://montanagreenpower.org/a-closer-look-at-a-simple-framework-for-researching-any-topi-2/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://montanagreenpower.org/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://montanagreenpower.org/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://montanagreenpower.org/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 

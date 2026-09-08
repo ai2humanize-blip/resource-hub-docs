@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://ireplicadealers.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
+<a href="https://ireplicadealers.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
+<a href="https://ireplicadealers.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
 <a href="https://ireplicadealers.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://ireplicadealers.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://ireplicadealers.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://labmagickite.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://labmagickite.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
 <a href="https://labmagickite.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://labmagickite.com/why-general-interest-blogs-matter-in-a-niche-world-a-deep-di-104-3/">why general interest blogs matter in a niche world a deep di</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 

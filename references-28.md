@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://mylaunchpadnetwork.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-leverage-free-technology-tools-for-personal-and-profe/">how to leverage free technology tools for personal and profe</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-safely-follow-an-app-that-s-still-in-development/">how to safely follow an app that s still in development</a> 
+<a href="https://mylaunchpadnetwork.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
 <a href="https://mylaunchpadnetwork.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
 <a href="https://mylaunchpadnetwork.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
 <a href="https://mylaunchpadnetwork.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
@@ -790,15 +802,3 @@
 <a href="https://oceaniccleaningservice.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
 <a href="https://oceaniccleaningservice.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://oceaniccleaningservice.com/smart-strategies-for-balancing-business-personal-finance-and/">smart strategies for balancing business personal finance and</a> 
-<a href="https://oceaniccleaningservice.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://oceaniccleaningservice.com/staying-informed-the-latest-news-trends-and-analysis-for-202/">staying informed the latest news trends and analysis for 202</a> 
-<a href="https://oceaniccleaningservice.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://oceaniccleaningservice.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://oceaniccleaningservice.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://oceaniccleaningservice.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-5/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://oceaniccleaningservice.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-6/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://oceaniccleaningservice.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-7/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://oceaniccleaningservice.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://oceaniccleaningservice.com/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
-<a href="https://oceaniccleaningservice.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://oceaniccleaningservice.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
