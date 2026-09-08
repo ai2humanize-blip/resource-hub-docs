@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
 <a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re-2/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re-3/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
@@ -799,6 +802,3 @@
 <a href="https://lightgreen-chamois-841460.hostingersite.com/mastering-marketing-seo-growth-essential-strategies-for-succ-49-2-2/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://lightgreen-chamois-841460.hostingersite.com/mastering-marketing-seo-growth-essential-strategies-for-succ-49-2-3/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://lightgreen-chamois-841460.hostingersite.com/mastering-marketing-seo-growth-essential-strategies-for-succ-49-2/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/mastering-marketing-seo-growth-strategies-for-success-49-2-2/">mastering marketing seo growth strategies for success 49 2 2</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/mastering-marketing-seo-growth-strategies-for-success-49-2/">mastering marketing seo growth strategies for success 49 2</a> 
-<a href="https://lightgreen-chamois-841460.hostingersite.com/mastering-marketing-seo-growth-strategies-for-success-in-202-49-2/">mastering marketing seo growth strategies for success in 202</a> 

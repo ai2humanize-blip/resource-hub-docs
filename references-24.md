@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://loblarehouse.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://loblarehouse.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://loblarehouse.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://loblarehouse.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://loblarehouse.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://loblarehouse.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://loblarehouse.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://loblarehouse.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://loblarehouse.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
 <a href="https://loblarehouse.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
 <a href="https://loblarehouse.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://loblarehouse.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
@@ -793,12 +802,3 @@
 <a href="https://ls-staying-safe-and-responsible-the-latest-tre-ms-imncw2y54a-uc.a.run.app">ls-staying-safe-and-responsible-the-latest-tre-ms-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-staying-safe-and-responsible-the-latest-trends-in-o.ai2hmnz-rhub.workers.dev/">ls-staying-safe-and-responsible-the-latest-trends-in-o.ai2hmnz-rhub.workers.dev</a> 
 <a href="https://ls-staying-safe-while-enjoying-online-ca-mssa8syn-dot-stnews-489814.uc.r.appspot.com/">ls-staying-safe-while-enjoying-online-ca-mssa8syn-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-the-basics-of-staying-safe-while-brow-mtmn698g-dot-stnews-489814.uc.r.appspot.com/">ls-the-basics-of-staying-safe-while-brow-mtmn698g-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-the-basics-of-staying-safe-while-brow-mtpo0dg9-dot-stnews-489814.uc.r.appspot.com/">ls-the-basics-of-staying-safe-while-brow-mtpo0dg9-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-the-basics-of-staying-safe-while-browsing-a-mi-imncw2y54a-uc.a.run.app">ls-the-basics-of-staying-safe-while-browsing-a-mi-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-the-basics-of-staying-safe-while-browsing-a-mm-imncw2y54a-uc.a.run.app">ls-the-basics-of-staying-safe-while-browsing-a-mm-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-the-basics-of-staying-safe-while-browsing-a-mt-imncw2y54a-uc.a.run.app">ls-the-basics-of-staying-safe-while-browsing-a-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-the-basics-of-staying-safe-while-browsing-e-mt-imncw2y54a-uc.a.run.app">ls-the-basics-of-staying-safe-while-browsing-e-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-the-difference-between-skimming-and-d-mtmmpt1w-dot-stnews-489814.uc.r.appspot.com/">ls-the-difference-between-skimming-and-d-mtmmpt1w-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-the-difference-between-skimming-and-deep-re-m6-imncw2y54a-uc.a.run.app">ls-the-difference-between-skimming-and-deep-re-m6-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-the-difference-between-skimming-and-deep-re-ml-imncw2y54a-uc.a.run.app">ls-the-difference-between-skimming-and-deep-re-ml-imncw2y54a-uc.a.run.app</a> 
