@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://loblarehouse.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://loblarehouse.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://loblarehouse.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://loblarehouse.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
+<a href="https://loblarehouse.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://loblarehouse.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://loblarehouse.com/how-to-stay-informed-navigating-current-news-explainers-and/">how to stay informed navigating current news explainers and</a> 
+<a href="https://loblarehouse.com/how-to-stay-informed-navigating-today-s-news-landscape-for-c/">how to stay informed navigating today s news landscape for c</a> 
+<a href="https://loblarehouse.com/how-to-stay-informed-the-best-strategies-for-consuming-curre/">how to stay informed the best strategies for consuming curre</a> 
 <a href="https://loblarehouse.com/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
 <a href="https://loblarehouse.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
 <a href="https://loblarehouse.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
@@ -793,12 +802,3 @@
 <a href="https://ls-the-difference-between-skimming-and-d-mtmmpt1w-dot-stnews-489814.uc.r.appspot.com/">ls-the-difference-between-skimming-and-d-mtmmpt1w-dot-stnews-489814.uc.r.appspot.com</a> 
 <a href="https://ls-the-difference-between-skimming-and-deep-re-m6-imncw2y54a-uc.a.run.app">ls-the-difference-between-skimming-and-deep-re-m6-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-the-difference-between-skimming-and-deep-re-ml-imncw2y54a-uc.a.run.app">ls-the-difference-between-skimming-and-deep-re-ml-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-the-difference-between-skimming-and-deep-re-mq-imncw2y54a-uc.a.run.app">ls-the-difference-between-skimming-and-deep-re-mq-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-the-difference-between-skimming-and-deep-re-mt-imncw2y54a-uc.a.run.app">ls-the-difference-between-skimming-and-deep-re-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-the-difference-between-skimming-and-deep-reading-on.ai2hmnz-rhub.workers.dev/">ls-the-difference-between-skimming-and-deep-reading-on.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-the-evolution-of-news-consumption-how-msrxl6rq-dot-stnews-489814.uc.r.appspot.com/">ls-the-evolution-of-news-consumption-how-msrxl6rq-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-the-future-of-ai-in-journalism-opport-msrumu7o-dot-stnews-489814.uc.r.appspot.com/">ls-the-future-of-ai-in-journalism-opport-msrumu7o-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-the-future-of-m-msry94up.firebaseapp.com/">ls-the-future-of-m-msry94up.firebaseapp.com</a> 
-<a href="https://ls-the-future-of-m-msry94up.web.app/">ls-the-future-of-m-msry94up.web.app</a> 
-<a href="https://ls-the-future-of-mobile-apps-how-ai-and--mss8gfw5-dot-stnews-489814.uc.r.appspot.com/">ls-the-future-of-mobile-apps-how-ai-and--mss8gfw5-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-the-future-of-mobile-apps-how-ai-and-ar-are-ms-imncw2y54a-uc.a.run.app">ls-the-future-of-mobile-apps-how-ai-and-ar-are-ms-imncw2y54a-uc.a.run.app</a> 

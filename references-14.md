@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://fabulouspoetry.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://fabulouspoetry.it.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://fabulouspoetry.it.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
 <a href="https://fabulouspoetry.it.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://fabulouspoetry.it.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://fabulouspoetry.it.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://forotesis.com/how-to-read-the-news-without-getting-overwhelmed-a-practical-2/">how to read the news without getting overwhelmed a practical</a> 
 <a href="https://forotesis.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
 <a href="https://forotesis.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://forotesis.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://forotesis.com/how-to-safeguard-your-digital-life-essential-tips-for-app-se/">how to safeguard your digital life essential tips for app se</a> 
-<a href="https://forotesis.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 

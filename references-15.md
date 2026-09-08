@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://forotesis.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://forotesis.com/how-to-safeguard-your-digital-life-essential-tips-for-app-se/">how to safeguard your digital life essential tips for app se</a> 
+<a href="https://forotesis.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
 <a href="https://forotesis.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
 <a href="https://forotesis.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
 <a href="https://forotesis.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
@@ -799,6 +802,3 @@
 <a href="https://globespro.it.com/transforming-your-digital-life-guides-reviews-how-tos-for-ai-29-6/">transforming your digital life guides reviews how tos for ai</a> 
 <a href="https://globespro.it.com/transforming-your-digital-life-top-guides-reviews-and-how-to-29-6/">transforming your digital life top guides reviews and how to</a> 
 <a href="https://globespro.it.com/ultimate-guide-to-browser-games-reviews-how-tos-why-they-re-29-6/">ultimate guide to browser games reviews how tos why they re </a> 
-<a href="https://globespro.it.com/ultimate-guide-to-curated-resource-directories-reviews-how-t-29-6-2/">ultimate guide to curated resource directories reviews how t</a> 
-<a href="https://globespro.it.com/ultimate-guide-to-curated-resource-directories-reviews-how-t-29-6/">ultimate guide to curated resource directories reviews how t</a> 
-<a href="https://globespro.it.com/ultimate-guide-to-curated-resource-directories-worldwide-res-29-6/">ultimate guide to curated resource directories worldwide res</a> 
