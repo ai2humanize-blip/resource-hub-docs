@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://globespro.it.com/the-ultimate-guide-to-news-analysis-guides-reviews-and-how-t-29-6/">the ultimate guide to news analysis guides reviews and how t</a> 
+<a href="https://globespro.it.com/the-value-of-slow-careful-reading-and-why-it-matters-2/">the value of slow careful reading and why it matters 2</a> 
+<a href="https://globespro.it.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
 <a href="https://globespro.it.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://globespro.it.com/transforming-daily-life-a-deep-dive-into-ai-powered-apps-and-29-6/">transforming daily life a deep dive into ai powered apps and</a> 
 <a href="https://globespro.it.com/transforming-daily-life-how-ai-powered-apps-are-revolutioniz/">transforming daily life how ai powered apps are revolutioniz</a> 
@@ -799,6 +802,3 @@
 <a href="https://haomvc.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://haomvc.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://haomvc.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://haomvc.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
-<a href="https://haomvc.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 

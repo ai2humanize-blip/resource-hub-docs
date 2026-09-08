@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://ezoterizm.com/mastering-personal-finance-a-guide-to-financial-stability-an/">mastering personal finance a guide to financial stability an</a> 
+<a href="https://ezoterizm.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
+<a href="https://ezoterizm.com/mastering-personal-finance-for-business-growth-a-marketing-p/">mastering personal finance for business growth a marketing p</a> 
 <a href="https://ezoterizm.com/mastering-the-art-of-business-personal-finance-and-marketing-93-4/">mastering the art of business personal finance and marketing</a> 
 <a href="https://ezoterizm.com/mastering-the-art-of-daily-journaling-a-step-by-step-guide-t/">mastering the art of daily journaling a step by step guide t</a> 
 <a href="https://ezoterizm.com/mastering-the-art-of-organic-seo-a-comprehensive-guide-for-b/">mastering the art of organic seo a comprehensive guide for b</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabulouspoetry.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
