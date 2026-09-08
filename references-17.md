@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://haomvc.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
+<a href="https://haomvc.com/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
+<a href="https://haomvc.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://haomvc.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://haomvc.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
 <a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
 <a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
@@ -798,7 +802,3 @@
 <a href="https://homaryreviews.com/unlocking-the-secrets-of-marketing-seo-growth-a-comprehensiv-101-10/">unlocking the secrets of marketing seo growth a comprehensiv</a> 
 <a href="https://homaryreviews.com/unlocking-the-secrets-of-successful-event-planning-a-compreh/">unlocking the secrets of successful event planning a compreh</a> 
 <a href="https://homaryreviews.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://homaryreviews.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://homaryreviews.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://homaryreviews.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://homaryreviews.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 

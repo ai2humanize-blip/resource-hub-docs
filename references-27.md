@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://montanagreenpower.org/how-strategic-personal-finance-management-can-boost-your-bus/">how strategic personal finance management can boost your bus</a> 
+<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://montanagreenpower.org/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://montanagreenpower.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://montanagreenpower.org/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://montanagreenpower.org/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://montanagreenpower.org/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://montanagreenpower.org/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
@@ -310,6 +318,7 @@
 <a href="https://myclassnews.it.com/mastering-ai-tools-durable-tech-and-trending-gadgets-a-compr-34-1/">mastering ai tools durable tech and trending gadgets a compr</a> 
 <a href="https://myclassnews.it.com/mastering-business-finance-and-productivity-a-comprehensive-34-8/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://myclassnews.it.com/mastering-crypto-blockchain-guides-reviews-how-tos-for-inves-34-1/">mastering crypto blockchain guides reviews how tos for inves</a> 
+<a href="https://myclassnews.it.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-34-1/">mastering digital literacy guides reviews and how tos for th</a> 
 <a href="https://myclassnews.it.com/mastering-digital-literacy-guides-reviews-how-tos-for-the-mo-34-6/">mastering digital literacy guides reviews how tos for the mo</a> 
 <a href="https://myclassnews.it.com/mastering-digital-skills-guides-reviews-how-tos-for-online-l-34-1/">mastering digital skills guides reviews how tos for online l</a> 
 <a href="https://myclassnews.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-34-2/">mastering marketing seo growth a comprehensive guide 34 2</a> 
@@ -323,6 +332,8 @@
 <a href="https://myclassnews.it.com/mastering-marketing-seo-growth-the-practical-guide-to-breaki-34-2/">mastering marketing seo growth the practical guide to breaki</a> 
 <a href="https://myclassnews.it.com/mastering-mobile-app-personalization-a-guide-to-enhancing-us/">mastering mobile app personalization a guide to enhancing us</a> 
 <a href="https://myclassnews.it.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-34-10/">mastering modern communication a deep dive into web tech con</a> 
+<a href="https://myclassnews.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-34-1/">mastering online information guides reviews how tos for savv</a> 
+<a href="https://myclassnews.it.com/mastering-online-research-guides-reviews-how-tos-for-smarter-34-1/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://myclassnews.it.com/mastering-personal-finance-a-business-and-marketing-perspect/">mastering personal finance a business and marketing perspect</a> 
 <a href="https://myclassnews.it.com/mastering-personal-finance-how-business-and-marketing-strate/">mastering personal finance how business and marketing strate</a> 
 <a href="https://myclassnews.it.com/mastering-the-art-of-business-finance-personal-wealth-and-ma-34-10/">mastering the art of business finance personal wealth and ma</a> 
@@ -791,14 +802,3 @@
 <a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://mylaunchpadnetwork.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

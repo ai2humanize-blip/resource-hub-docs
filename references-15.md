@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://forotesis.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://forotesis.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://forotesis.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
+<a href="https://forotesis.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
 <a href="https://forotesis.com/le-quint-comprendre-le-pari-hippique-le-plus-suivi/">le quint comprendre le pari hippique le plus suivi</a> 
 <a href="https://forotesis.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
 <a href="https://forotesis.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
@@ -798,7 +802,3 @@
 <a href="https://globespro.it.com/ultimate-guides-reviews-how-tos-your-go-to-resource-for-mast-29-6/">ultimate guides reviews how tos your go to resource for mast</a> 
 <a href="https://globespro.it.com/ultimate-roundup-guides-reviews-how-tos-for-content-creators-29-6/">ultimate roundup guides reviews how tos for content creators</a> 
 <a href="https://globespro.it.com/ultimate-roundup-guides-reviews-how-tos-for-every-need-29-6/">ultimate roundup guides reviews how tos for every need 29 6</a> 
-<a href="https://globespro.it.com/underground-music-authority-a-complete-2026-guide-to-guides-29-6/">underground music authority a complete 2026 guide to guides </a> 
-<a href="https://globespro.it.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
-<a href="https://globespro.it.com/understanding-bitcoin-blockchain-and-the-latest-cryptocurren/">understanding bitcoin blockchain and the latest cryptocurren</a> 
-<a href="https://globespro.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 

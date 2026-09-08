@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cyberkannadig.it.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-a-quick-guide-2/">how to find reliable how to guides a quick guide 2</a> 
 <a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
 <a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-explained-simply-2/">how to find reliable how to guides explained simply 2</a> 
@@ -801,4 +802,3 @@
 <a href="https://cymbaltareviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cymbaltareviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cymbaltareviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cymbaltareviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

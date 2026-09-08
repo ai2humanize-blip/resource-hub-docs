@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://fabulouspoetry.it.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://fabulouspoetry.it.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://fabulouspoetry.it.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://fabulouspoetry.it.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
 <a href="https://fanciful-meerkat-a4a41b.netlify.app/staying-safe-and-informed-the-latest-online-casino-and-gambl.html">staying safe and informed the latest online casino and gambl</a> 
 <a href="https://fancy-axolotl-42c6fd.netlify.app/navigating-online-casino-and-gambling-news-safety-and-respon.html">navigating online casino and gambling news safety and respon</a> 
 <a href="https://fancy-beijinho-fad32d.netlify.app/the-value-of-slow-careful-reading-a-practical-guide.html">the value of slow careful reading a practical guide</a> 
@@ -798,7 +802,3 @@
 <a href="https://forotesis.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
 <a href="https://forotesis.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
 <a href="https://forotesis.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
-<a href="https://forotesis.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://forotesis.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
-<a href="https://forotesis.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
-<a href="https://forotesis.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
