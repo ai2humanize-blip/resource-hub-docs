@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-explained-2/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-the-basic-2/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://haomvc.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
@@ -799,6 +802,3 @@
 <a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-3/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
-<a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://homaryreviews.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 

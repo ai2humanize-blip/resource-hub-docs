@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-3/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
+<a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://homaryreviews.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://homaryreviews.com/understanding-the-latest-developments-in-global-news-a-compr/">understanding the latest developments in global news a compr</a> 
 <a href="https://homaryreviews.com/understanding-today-s-top-news-in-depth-analysis-and-expert/">understanding today s top news in depth analysis and expert</a> 
 <a href="https://homaryreviews.com/unleashing-the-ultimate-event-planning-guide-creative-ideas-101-10/">unleashing the ultimate event planning guide creative ideas </a> 
@@ -799,6 +802,3 @@
 <a href="https://ireplicadealers.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://ireplicadealers.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://ireplicadealers.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://ireplicadealers.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
-<a href="https://ireplicadealers.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
-<a href="https://ireplicadealers.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 

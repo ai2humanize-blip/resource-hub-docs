@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://forotesis.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://forotesis.com/how-to-organize-the-information-you-find-online-a-quick-guid-2/">how to organize the information you find online a quick guid</a> 
+<a href="https://forotesis.com/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
 <a href="https://forotesis.com/how-to-read-the-news-without-getting-overwhelmed-a-practical-2/">how to read the news without getting overwhelmed a practical</a> 
 <a href="https://forotesis.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
 <a href="https://forotesis.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
@@ -799,6 +802,3 @@
 <a href="https://globespro.it.com/the-ultimate-guide-to-news-analysis-guides-reviews-and-how-t-29-6/">the ultimate guide to news analysis guides reviews and how t</a> 
 <a href="https://globespro.it.com/the-value-of-slow-careful-reading-and-why-it-matters-2/">the value of slow careful reading and why it matters 2</a> 
 <a href="https://globespro.it.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://globespro.it.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://globespro.it.com/transforming-daily-life-a-deep-dive-into-ai-powered-apps-and-29-6/">transforming daily life a deep dive into ai powered apps and</a> 
-<a href="https://globespro.it.com/transforming-daily-life-how-ai-powered-apps-are-revolutioniz/">transforming daily life how ai powered apps are revolutioniz</a> 
