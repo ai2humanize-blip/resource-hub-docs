@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://fabulouspoetry.it.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://fabulouspoetry.it.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://fabulouspoetry.it.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://fabulouspoetry.it.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://fabulouspoetry.it.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://fabulouspoetry.it.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
@@ -799,6 +802,3 @@
 <a href="https://forotesis.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
 <a href="https://forotesis.com/how-to-safeguard-your-digital-life-essential-tips-for-app-se/">how to safeguard your digital life essential tips for app se</a> 
 <a href="https://forotesis.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://forotesis.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://forotesis.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://forotesis.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 

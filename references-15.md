@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://forotesis.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://forotesis.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
+<a href="https://forotesis.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
 <a href="https://forotesis.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
 <a href="https://forotesis.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
 <a href="https://forotesis.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://globespro.it.com/ultimate-guide-to-curated-resource-directories-reviews-how-t-29-6-2/">ultimate guide to curated resource directories reviews how t</a> 
 <a href="https://globespro.it.com/ultimate-guide-to-curated-resource-directories-reviews-how-t-29-6/">ultimate guide to curated resource directories reviews how t</a> 
 <a href="https://globespro.it.com/ultimate-guide-to-curated-resource-directories-worldwide-res-29-6/">ultimate guide to curated resource directories worldwide res</a> 
-<a href="https://globespro.it.com/ultimate-guides-reviews-how-tos-your-go-to-resource-for-mast-29-6/">ultimate guides reviews how tos your go to resource for mast</a> 
-<a href="https://globespro.it.com/ultimate-roundup-guides-reviews-how-tos-for-content-creators-29-6/">ultimate roundup guides reviews how tos for content creators</a> 
-<a href="https://globespro.it.com/ultimate-roundup-guides-reviews-how-tos-for-every-need-29-6/">ultimate roundup guides reviews how tos for every need 29 6</a> 
