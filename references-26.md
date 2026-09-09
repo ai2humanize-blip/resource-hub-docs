@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://madeleine-dore.com/web-tech-content-navigating-the-digital-age-with-cutting-edg-107-7/">web tech content navigating the digital age with cutting edg</a> 
+<a href="https://madeleine-dore.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-how-to-fact-check-something-in-five-minut-2/">what to know about how to fact check something in five minut</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://madeleine-dore.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
 <a href="https://madeleine-dore.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://madeleine-dore.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 

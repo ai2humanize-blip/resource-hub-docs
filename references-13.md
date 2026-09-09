@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://extraordinary-crostata-3679fe.netlify.app/how-to-evaluate-a-cryptocurrency-before-you-invest.html">how to evaluate a cryptocurrency before you invest</a> 
+<a href="https://extraordinary-parfait-527b2f.netlify.app/how-to-find-balanced-coverage-of-a-topic.html">how to find balanced coverage of a topic</a> 
+<a href="https://ezoterizm.com/10-organic-living-tips-for-a-healthier-happier-you/">10 organic living tips for a healthier happier you</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-how-to-compare-sources-on-the-same-story-2/">a closer look at how to compare sources on the same story 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-2/">mastering marketing seo growth strategies for success 27 4 2</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-3/">mastering marketing seo growth strategies for success 27 4 3</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-4/">mastering marketing seo growth strategies for success 27 4 4</a> 
-<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-5/">mastering marketing seo growth strategies for success 27 4 5</a> 
-<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4/">mastering marketing seo growth strategies for success 27 4</a> 
-<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-in-202-27-4-2/">mastering marketing seo growth strategies for success in 202</a> 
