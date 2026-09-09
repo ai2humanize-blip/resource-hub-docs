@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/boosting-business-finance-and-productivity-through-smart-int-35-7/">boosting business finance and productivity through smart int</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-compare-sources-on-the-same-story-explained-simply-2/">how to compare sources on the same story explained simply 2</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
@@ -108,9 +128,11 @@
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-19/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-20/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-21/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-22/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-essential-skills-for-35-2-2/">mastering business finance productivity essential skills for</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-essential-skills-for-35-2-3/">mastering business finance productivity essential skills for</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-in-the-digital-age-35-2-8/">mastering business finance productivity in the digital age 3</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-in-the-digital-age-35-2-9/">mastering business finance productivity in the digital age 3</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-in-the-digital-age-a-35-2-2/">mastering business finance productivity in the digital age a</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-in-the-digital-age-a-35-2-3/">mastering business finance productivity in the digital age a</a> 
 <a href="https://praise-pleasant-toad.tilda.ws/">praise-pleasant-toad.tilda.ws</a> 
@@ -451,6 +473,7 @@
 <a href="https://render-resource-hub.onrender.com/women-creators.html">women creators</a> 
 <a href="https://resilient-gumdrop-0c30e4.netlify.app/rti-act-guide.html">rti act guide</a> 
 <a href="https://resilient-starlight-0dacda.netlify.app/choosing-the-right-elearning-platform-a-comprehensive-guide.html">choosing the right elearning platform a comprehensive guide</a> 
+<a href="https://resources.128-140-7-186.sslip.io/">resources.128-140-7-186.sslip.io</a> 
 <a href="https://resourceslist.great-site.net/">resourceslist.great-site.net</a> 
 <a href="https://ricegumnetworth.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://ricegumnetworth.com/a-closer-look-at-how-to-find-reliable-how-to-guides-2/">a closer look at how to find reliable how to guides 2</a> 
@@ -779,26 +802,3 @@
 <a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-19/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://rommedicalabbreviation.com/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
-<a href="https://rommedicalabbreviation.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://rommedicalabbreviation.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://rommedicalabbreviation.com/understanding-legal-information-and-news-a-beginner-s-guide/">understanding legal information and news a beginner s guide</a> 
-<a href="https://rommedicalabbreviation.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre-2/">understanding the impact of ai on modern journalism a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
-<a href="https://rommedicalabbreviation.com/understanding-the-impact-of-ai-on-modern-journalism-opportun/">understanding the impact of ai on modern journalism opportun</a> 
-<a href="https://rommedicalabbreviation.com/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://rommedicalabbreviation.com/understanding-the-latest-developments-in-global-news-an-in-d/">understanding the latest developments in global news an in d</a> 
-<a href="https://rommedicalabbreviation.com/understanding-the-latest-trends-in-news-consumption-a-deep-d/">understanding the latest trends in news consumption a deep d</a> 

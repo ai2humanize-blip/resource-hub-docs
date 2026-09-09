@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmTeHmrk93ouUNZjVirbQwZpKy43TFd6e3AH5HupWKYQyY">QmTeHmrk93ouUNZjVirbQwZpKy43TFd6e3AH5HupWKYQyY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTfvcmZ5JPKzJDCJw3o1JXY83CuRVco6tysnR1rhhBgHb">QmTfvcmZ5JPKzJDCJw3o1JXY83CuRVco6tysnR1rhhBgHb</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTonP5SxYfgjvDRjWKFkedV1fznSiKhnWt1Kukm3ZPECA">QmTonP5SxYfgjvDRjWKFkedV1fznSiKhnWt1Kukm3ZPECA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTwiCKxTpc8x5nrGJuyHvJgk2kXZQHuyfYyMDm3Tx5szz">QmTwiCKxTpc8x5nrGJuyHvJgk2kXZQHuyfYyMDm3Tx5szz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmU495xP9gpn4LWN2DXCLnpC7712EmNs4s18WVUEocdQWg">QmU495xP9gpn4LWN2DXCLnpC7712EmNs4s18WVUEocdQWg</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmU68ZCpnMkPdV2s17VwPt7RprHdSfsQgoF7YyK3GGpS2i">QmU68ZCpnMkPdV2s17VwPt7RprHdSfsQgoF7YyK3GGpS2i</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmU6b4medQ8Bi3UebuQF9aTN4rMnwa2xq77zJnLdugLHeY">QmU6b4medQ8Bi3UebuQF9aTN4rMnwa2xq77zJnLdugLHeY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUBa1QvLYbyt2jDnnft9g4kYe4pBtbW3vfx6jHJeVcD9a">QmUBa1QvLYbyt2jDnnft9g4kYe4pBtbW3vfx6jHJeVcD9a</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmURMoEP6t9aBU5jTRscmfPTFpkQKZ4BDLu2dqfZPRh2t7">QmURMoEP6t9aBU5jTRscmfPTFpkQKZ4BDLu2dqfZPRh2t7</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUUAikDy5nSyQ3zAXHe9c8XEe5exPKVe2WprzzFsxGe24">QmUUAikDy5nSyQ3zAXHe9c8XEe5exPKVe2WprzzFsxGe24</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUUTQFzewUJ1vhDg5YTkrWGbbDomwexrafA9ShxMXZ47t">QmUUTQFzewUJ1vhDg5YTkrWGbbDomwexrafA9ShxMXZ47t</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUVgi5XJqVeZSP8qwf41CEb9RTDrSkprfGML7uSJBwNbP">QmUVgi5XJqVeZSP8qwf41CEb9RTDrSkprfGML7uSJBwNbP</a> 
@@ -793,12 +802,3 @@
 <a href="https://labmagickite.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://labmagickite.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
 <a href="https://labmagickite.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://labmagickite.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://labmagickite.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://labmagickite.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://labmagickite.com/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
-<a href="https://labmagickite.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
-<a href="https://labmagickite.com/boosting-your-business-and-personal-finances-through-strateg/">boosting your business and personal finances through strateg</a> 
-<a href="https://labmagickite.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-i/">breaking down the latest news in depth analysis and expert i</a> 
-<a href="https://labmagickite.com/breaking-down-today-s-top-news-expert-insights-and-analysis/">breaking down today s top news expert insights and analysis</a> 
-<a href="https://labmagickite.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 

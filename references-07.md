@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://cbd-stone.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
 <a href="https://cbd-stone.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
 <a href="https://cbd-stone.com/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
 <a href="https://cbd-stone.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
@@ -801,4 +802,3 @@
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 

@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://peru-peafowl-728163.hostingersite.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
+<a href="https://pharmacoplus.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://pharmacoplus.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://pharmacoplus.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://pharmacoplus.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://pharmacoplus.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://pharmacoplus.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://pharmacoplus.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
+<a href="https://pharmacoplus.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://pharmacoplus.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://pharmacoplus.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://pharmacoplus.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
@@ -782,23 +802,3 @@
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/boosting-business-finance-and-productivity-through-smart-int-35-7/">boosting business finance and productivity through smart int</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
