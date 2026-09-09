@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://madeleine-dore.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://madeleine-dore.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
 <a href="https://madwirebuild.com/gindex.html">gindex</a> 
 <a href="https://madwirebuild.com/picks.html">picks</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-3/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://modernwritingdesk.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://modernwritingdesk.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://modernwritingdesk.com/understanding-the-global-impact-of-ai-news-latest-developmen/">understanding the global impact of ai news latest developmen</a> 
-<a href="https://modernwritingdesk.com/understanding-the-impact-of-ai-on-modern-news-reporting-a-de/">understanding the impact of ai on modern news reporting a de</a> 
-<a href="https://modernwritingdesk.com/understanding-the-latest-trends-in-news-consumption-and-anal-2/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://modernwritingdesk.com/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://modernwritingdesk.com/understanding-today-s-news-landscape-in-depth-analysis-and-e/">understanding today s news landscape in depth analysis and e</a> 

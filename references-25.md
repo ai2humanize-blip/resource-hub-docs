@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://ls-exploring-the-v-msrnoghb.web.app/">ls-exploring-the-v-msrnoghb.web.app</a> 
+<a href="https://ls-exploring-the-vibrant-world-of-indepe-msrncsfz-dot-stnews-489814.uc.r.appspot.com/">ls-exploring-the-vibrant-world-of-indepe-msrncsfz-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-exploring-the-vibrant-world-of-independent--ms-imncw2y54a-uc.a.run.app">ls-exploring-the-vibrant-world-of-independent--ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-exploring-the-vibrant-world-of-independent-music-cu.ai2hmnz-rhub.workers.dev/">ls-exploring-the-vibrant-world-of-independent-music-cu.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-getting-a-simple-framework-for-researching--mt-imncw2y54a-uc.a.run.app">ls-getting-a-simple-framework-for-researching--mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-getting-building-a-healthy-daily-read-mtmmzvv4-dot-stnews-489814.uc.r.appspot.com/">ls-getting-building-a-healthy-daily-read-mtmmzvv4-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-getting-how-to-avoid-misinformation-and-hyp-mt-imncw2y54a-uc.a.run.app">ls-getting-how-to-avoid-misinformation-and-hyp-mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-getting-how-to-bookmark-and-revisit-useful--mt-imncw2y54a-uc.a.run.app">ls-getting-how-to-bookmark-and-revisit-useful--mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-getting-how-to-fact-check-something-in-five-ml-imncw2y54a-uc.a.run.app">ls-getting-how-to-fact-check-something-in-five-ml-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-getting-how-to-fact-check-something-in-five-mt-imncw2y54a-uc.a.run.app">ls-getting-how-to-fact-check-something-in-five-mt-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-getting-how-to-find-balanced-coverage-of-a--mt-imncw2y54a-uc.a.run.app">ls-getting-how-to-find-balanced-coverage-of-a--mt-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-getting-how-to-find-reliable-how-to-g-mtmnp8ua-dot-stnews-489814.uc.r.appspot.com/">ls-getting-how-to-find-reliable-how-to-g-mtmnp8ua-dot-stnews-489814.uc.r.appspot.com</a> 
@@ -793,12 +802,3 @@
 <a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
 <a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://madeleine-dore.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://madeleine-dore.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://madeleine-dore.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://madeleine-dore.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://madeleine-dore.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 

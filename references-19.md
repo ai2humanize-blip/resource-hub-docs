@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmUdJy8VqR2V8NMQwh37o71eRxEwkQRCKnbyk9KyZRyuon">QmUdJy8VqR2V8NMQwh37o71eRxEwkQRCKnbyk9KyZRyuon</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUhz92UWmLdGFTCksA9MLwsYUuU3o2PJ3xQ55ygBh6ZQ3">QmUhz92UWmLdGFTCksA9MLwsYUuU3o2PJ3xQ55ygBh6ZQ3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUip9CTX2qYUS36YwgFuk9tUGrFwnmnCWCpBR9fwcxGc2">QmUip9CTX2qYUS36YwgFuk9tUGrFwnmnCWCpBR9fwcxGc2</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUjedtvmnrkNNn5vn8rzJNCNHgdnVJq1cBam4nRkfHPvd">QmUjedtvmnrkNNn5vn8rzJNCNHgdnVJq1cBam4nRkfHPvd</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUqJYan3S3xDw9AH2y4cwABnMaiQuZNhEmiKWJF3a9fHA">QmUqJYan3S3xDw9AH2y4cwABnMaiQuZNhEmiKWJF3a9fHA</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUx98d7SdfJnXkWJKXcGviwGMQUccUMsGWBpUxgr81q9u">QmUx98d7SdfJnXkWJKXcGviwGMQUccUMsGWBpUxgr81q9u</a> 
@@ -799,6 +802,3 @@
 <a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne-104-10/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
 <a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-g-104-5/">demystifying cryptocurrency bitcoin and blockchain a fresh g</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-p-2/">demystifying cryptocurrency bitcoin and blockchain a fresh p</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-p/">demystifying cryptocurrency bitcoin and blockchain a fresh p</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-2/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://ecomhuntreviews.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://ecomhuntreviews.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://ecomhuntreviews.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://ecomhuntreviews.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://ecomhuntreviews.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
 <a href="https://ecomhuntreviews.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
@@ -799,6 +802,3 @@
 <a href="https://extraordinary-crostata-3679fe.netlify.app/how-to-evaluate-a-cryptocurrency-before-you-invest.html">how to evaluate a cryptocurrency before you invest</a> 
 <a href="https://extraordinary-parfait-527b2f.netlify.app/how-to-find-balanced-coverage-of-a-topic.html">how to find balanced coverage of a topic</a> 
 <a href="https://ezoterizm.com/10-organic-living-tips-for-a-healthier-happier-you/">10 organic living tips for a healthier happier you</a> 
-<a href="https://ezoterizm.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://ezoterizm.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://ezoterizm.com/a-closer-look-at-how-to-compare-sources-on-the-same-story-2/">a closer look at how to compare sources on the same story 2</a> 

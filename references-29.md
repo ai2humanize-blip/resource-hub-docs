@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://nicecitydatecraze.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://nicecitydatecraze.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
+<a href="https://nicecitydatecraze.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
+<a href="https://nicecitydatecraze.com/transforming-daily-life-how-smart-apps-are-revolutionizing-t/">transforming daily life how smart apps are revolutionizing t</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -790,15 +802,3 @@
 <a href="https://paleturquoise-eland-334243.hostingersite.com/web-tech-and-organic-living-expert-insights-and-holistic-hea-50-4/">web tech and organic living expert insights and holistic hea</a> 
 <a href="https://paleturquoise-eland-334243.hostingersite.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
 <a href="https://paleturquoise-eland-334243.hostingersite.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 

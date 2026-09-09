@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://ezoterizm.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-compare-sources-on-the-same-story-2/">a closer look at how to compare sources on the same story 2</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-5/">mastering marketing seo growth strategies for success 27 4 5</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4/">mastering marketing seo growth strategies for success 27 4</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-in-202-27-4-2/">mastering marketing seo growth strategies for success in 202</a> 
-<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-in-202-27-4/">mastering marketing seo growth strategies for success in 202</a> 
-<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-27-4/">mastering marketing seo growth strategies for success in a c</a> 
-<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-in-the-27-4-2/">mastering marketing seo growth strategies for success in the</a> 
