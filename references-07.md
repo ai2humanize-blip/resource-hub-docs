@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://cbd-stone.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
+<a href="https://cbd-stone.com/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
 <a href="https://cbd-stone.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
 <a href="https://cbd-stone.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
 <a href="https://cbd-stone.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
@@ -800,5 +802,3 @@
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
-<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 

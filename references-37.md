@@ -1,7 +1,36 @@
 # Reference set 37
 
-[index](README.md) · [‹ prev](references-36.md)
+[index](README.md) · [next ›](references-38.md) · [‹ prev](references-36.md)
 
+<a href="https://thedigitalweekly.co/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://thedigitalweekly.co/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://thedigitalweekly.co/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://thedigitalweekly.co/how-to-compare-sources-on-the-same-story-a-practical-guide-2/">how to compare sources on the same story a practical guide 2</a> 
+<a href="https://thedigitalweekly.co/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://thedigitalweekly.co/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://thedigitalweekly.co/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://thedigitalweekly.co/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://thedigitalweekly.co/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://thedigitalweekly.co/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://thedigitalweekly.co/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://thedigitalweekly.co/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://thedigitalweekly.co/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
+<a href="https://thedigitalweekly.co/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://thedigitalweekly.co/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
+<a href="https://thedigitalweekly.co/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://thedigitalweekly.co/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://thedigitalweekly.co/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
+<a href="https://thedigitalweekly.co/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://thedigitalweekly.co/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://thedigitalweekly.co/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://thedigitalweekly.co/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://thedigitalweekly.co/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://thedigitalweekly.co/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://thedigitalweekly.co/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://thedigitalweekly.co/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://thriftyevents.jp.net/enjoying-concerts-and-live-events-for-less/">enjoying concerts and live events for less</a> 
+<a href="https://thriftyevents.jp.net/how-to-plan-a-beautiful-wedding-on-a-realistic-budget/">how to plan a beautiful wedding on a realistic budget</a> 
+<a href="https://thriftyevents.jp.net/throwing-a-memorable-party-without-overspending/">throwing a memorable party without overspending</a> 
 <a href="https://thriving-centaur-d79b42.netlify.app/getting-how-to-evaluate-online-reviews-and-recommendations-r.html">getting how to evaluate online reviews and recommendations r</a> 
 <a href="https://thriving-sprite-b01050.netlify.app/how-to-organize-the-information-you-find-online-the-basics.html">how to organize the information you find online the basics</a> 
 <a href="https://thriving-tiramisu-af2ea3.netlify.app/making-sense-of-complex-topics-online-the-basics.html">making sense of complex topics online the basics</a> 
@@ -632,6 +661,7 @@
 <a href="https://yellowgreen-porpoise-658589.hostingersite.com/mastering-online-information-guides-reviews-how-tos-for-the-47-8/">mastering online information guides reviews how tos for the </a> 
 <a href="https://yellowgreen-porpoise-658589.hostingersite.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-47-8/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://yellowgreen-porpoise-658589.hostingersite.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-47-8/">mastering online research guides reviews and how tos for sav</a> 
+<a href="https://yellowgreen-porpoise-658589.hostingersite.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-47-8/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://yellowgreen-porpoise-658589.hostingersite.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-47-8/">mastering online research guides reviews how tos for smart l</a> 
 <a href="https://yellowgreen-porpoise-658589.hostingersite.com/mastering-online-research-guides-reviews-how-tos-for-smarter-47-8/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://yellowgreen-porpoise-658589.hostingersite.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-47-8/">mastering online resources guides reviews how tos for smarte</a> 
@@ -772,12 +802,3 @@
 <a href="https://yellowgreen-porpoise-658589.hostingersite.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://yellowgreen-porpoise-658589.hostingersite.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
 <a href="https://yellowgreen-porpoise-658589.hostingersite.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://yellowgreen-porpoise-658589.hostingersite.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://yellowgreen-porpoise-658589.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://yellowgreen-porpoise-658589.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
-<a href="https://yellowgreen-porpoise-658589.hostingersite.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://zentrack.net/gindex.html">gindex</a> 
-<a href="https://zentrack.net/picks.html">picks</a> 
-<a href="https://zesty-sfogliatella-12e1ee.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://zingy-gingersnap-e705ce.netlify.app/staying-safe-and-responsible-the-latest-trends-in-online-cas.html">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://zippy-kheer-d0f597.netlify.app/understanding-the-impact-of-ai-on-modern-news-consumption-an.html">understanding the impact of ai on modern news consumption an</a> 

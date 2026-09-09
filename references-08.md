@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
 <a href="https://cplemaire.us.org/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
 <a href="https://cplemaire.us.org/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
 <a href="https://cplemaire.us.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
@@ -800,5 +802,3 @@
 <a href="https://cyberkannadig.it.com/discovering-hidden-gems-how-to-find-unique-restaurants-in-yo/">discovering hidden gems how to find unique restaurants in yo</a> 
 <a href="https://cyberkannadig.it.com/discovering-the-best-independent-guides-reviews-how-tos-for-26-4/">discovering the best independent guides reviews how tos for </a> 
 <a href="https://cyberkannadig.it.com/discovering-the-rich-culture-and-beauty-of-asianpinay-a-deep/">discovering the rich culture and beauty of asianpinay a deep</a> 
-<a href="https://cyberkannadig.it.com/discovering-the-vibrant-world-of-independent-music-culture/">discovering the vibrant world of independent music culture</a> 
-<a href="https://cyberkannadig.it.com/effective-bankroll-management-strategies-for-casino-games/">effective bankroll management strategies for casino games</a> 

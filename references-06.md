@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxupfitml2a">3msxupfitml2a</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxvkvezof2a">3msxvkvezof2a</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxwiskwzh2d">3msxwiskwzh2d</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxxgj6fuu2d">3msxxgj6fuu2d</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxygpj6ej2u">3msxygpj6ej2u</a> 
@@ -800,5 +802,3 @@
 <a href="https://cbd-stone.com/navigating-today-s-news-landscape-a-comprehensive-guide-to-b-83-4/">navigating today s news landscape a comprehensive guide to b</a> 
 <a href="https://cbd-stone.com/navigating-web-tech-and-content-from-online-casinos-to-indep-83-6/">navigating web tech and content from online casinos to indep</a> 
 <a href="https://cbd-stone.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
-<a href="https://cbd-stone.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
-<a href="https://cbd-stone.com/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
