@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://ls-getting-simple-habits-of-a-smart-internet-reader-ri.ai2hmnz-rhub.workers.dev/">ls-getting-simple-habits-of-a-smart-internet-reader-ri.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-getting-the-basics-of-staying-safe-wh-mtmnxgln-dot-stnews-489814.uc.r.appspot.com/">ls-getting-the-basics-of-staying-safe-wh-mtmnxgln-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-getting-the-value-of-slow-careful-rea-mtmmi9ta-dot-stnews-489814.uc.r.appspot.com/">ls-getting-the-value-of-slow-careful-rea-mtmmi9ta-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-getting-why-context-matters-when-reading-on-mt-imncw2y54a-uc.a.run.app">ls-getting-why-context-matters-when-reading-on-mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-getting-why-niche-blogs-still-matter--mtmnoctf-dot-stnews-489814.uc.r.appspot.com/">ls-getting-why-niche-blogs-still-matter--mtmnoctf-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-government-jobs-india.ai2hmnz-rhub.workers.dev/">ls-government-jobs-india.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-guest-post-site-msijc53c.firebaseapp.com/">ls-guest-post-site-msijc53c.firebaseapp.com</a> 
+<a href="https://ls-guest-post-site-msijc53c.web.app/">ls-guest-post-site-msijc53c.web.app</a> 
+<a href="https://ls-guide-to-choosing-mshrnvan.ai2hresources.deno.net/">ls-guide-to-choosing-mshrnvan.ai2hresources.deno.net</a> 
 <a href="https://ls-holistic-health-and-wellness-embracing-an-organic-l.ai2hmnz-rhub.workers.dev/">ls-holistic-health-and-wellness-embracing-an-organic-l.ai2hmnz-rhub.workers.dev</a> 
 <a href="https://ls-holistic-health-msrjzcl9.firebaseapp.com/">ls-holistic-health-msrjzcl9.firebaseapp.com</a> 
 <a href="https://ls-holistic-health-msrjzcl9.web.app/">ls-holistic-health-msrjzcl9.web.app</a> 
@@ -793,12 +802,3 @@
 <a href="https://magical-donut-ca7937.netlify.app/discovering-the-vibrant-world-of-asianpinay-a-deep-dive-into.html">discovering the vibrant world of asianpinay a deep dive into</a> 
 <a href="https://magicly.bio/1mother/A-curated-list-of-independent-websites">A curated list of independent websites</a> 
 <a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
-<a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
-<a href="https://magicly.bio/1mother/Independent-websites-worth-bookmarking-a-reading-list">Independent websites worth bookmarking a reading list</a> 
-<a href="https://magicly.bio/1mother/More-independent-publications-to-explore">More independent publications to explore</a> 
-<a href="https://magnificent-zabaione-cf1f35.netlify.app/a-simple-framework-for-researching-any-topic-online.html">a simple framework for researching any topic online</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 

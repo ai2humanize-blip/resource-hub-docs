@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
+<a href="https://magicly.bio/1mother/Independent-websites-worth-bookmarking-a-reading-list">Independent websites worth bookmarking a reading list</a> 
+<a href="https://magicly.bio/1mother/More-independent-publications-to-explore">More independent publications to explore</a> 
+<a href="https://magnificent-zabaione-cf1f35.netlify.app/a-simple-framework-for-researching-any-topic-online.html">a simple framework for researching any topic online</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://marketingslave.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://marketingslave.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://marketingslave.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://modernwritingdesk.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://modernwritingdesk.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://modernwritingdesk.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://modernwritingdesk.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://modernwritingdesk.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://modernwritingdesk.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://modernwritingdesk.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://modernwritingdesk.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://modernwritingdesk.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
-<a href="https://modernwritingdesk.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://modernwritingdesk.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 

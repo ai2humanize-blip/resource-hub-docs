@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://ezoterizm.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-in-the-27-4/">mastering marketing seo growth strategies for success in the</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-virginia-child-27-4/">mastering marketing seo growth strategies for virginia child</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-the-latest-strategies-for-suc-27-4/">mastering marketing seo growth the latest strategies for suc</a> 
-<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-27-4/">mastering marketing seo growth your guide to building a succ</a> 
-<a href="https://fabulouspoetry.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-27-3/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://fabulouspoetry.it.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 

@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://paper.wf/1mother/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
+<a href="https://paper.wf/1mother/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
+<a href="https://paper.wf/1mother/independent-websites-worth-bookmarking">independent websites worth bookmarking</a> 
+<a href="https://paper.wf/1mother/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
+<a href="https://paper.wf/1mother/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
+<a href="https://pastebin.com/0FQdJ0Br">0FQdJ0Br</a> 
+<a href="https://pastebin.com/0PUSy2f3">0PUSy2f3</a> 
+<a href="https://pastebin.com/0QbqeZhW">0QbqeZhW</a> 
+<a href="https://pastebin.com/0QywkJGB">0QywkJGB</a> 
+<a href="https://pastebin.com/0cxSYR0C">0cxSYR0C</a> 
+<a href="https://pastebin.com/18GUjLX1">18GUjLX1</a> 
+<a href="https://pastebin.com/1QWGgGCb">1QWGgGCb</a> 
 <a href="https://pastebin.com/25RmgqAd">25RmgqAd</a> 
 <a href="https://pastebin.com/3crC2VX7">3crC2VX7</a> 
 <a href="https://pastebin.com/3uUu7A6k">3uUu7A6k</a> 
@@ -554,6 +566,9 @@
 <a href="https://peru-peafowl-728163.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-46-7-10/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://peru-peafowl-728163.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-46-7-11/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://peru-peafowl-728163.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-46-7-12/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-46-7-13/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-46-7-14/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-46-7-15/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://peru-peafowl-728163.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-46-7-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://peru-peafowl-728163.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-46-7-3/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://peru-peafowl-728163.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-46-7-4/">mastering digital tools online resources a comprehensive gui</a> 
@@ -787,18 +802,3 @@
 <a href="https://pharmacoplus.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://pharmacoplus.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide-2/">how to find balanced coverage of a topic a quick guide 2</a> 
 <a href="https://pharmacoplus.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://pharmacoplus.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://pharmacoplus.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
-<a href="https://pharmacoplus.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://pharmacoplus.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://pharmacoplus.com/how-to-leverage-the-latest-app-innovations-for-a-more-produc/">how to leverage the latest app innovations for a more produc</a> 
-<a href="https://pharmacoplus.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://pharmacoplus.com/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
-<a href="https://pharmacoplus.com/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
-<a href="https://pharmacoplus.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://pharmacoplus.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://pharmacoplus.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://pharmacoplus.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://pharmacoplus.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
-<a href="https://pharmacoplus.com/how-to-use-technology-to-enhance-your-digital-privacy-and-se/">how to use technology to enhance your digital privacy and se</a> 
-<a href="https://pharmacoplus.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
