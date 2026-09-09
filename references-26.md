@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://madeleine-dore.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://madwirebuild.com/gindex.html">gindex</a> 
+<a href="https://madwirebuild.com/picks.html">picks</a> 
+<a href="https://magenta-arithmetic-409861.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-and-.html">understanding the impact of ai on modern news reporting and</a> 
+<a href="https://magenta-melba-e4a69c.netlify.app/professional-construction-network.html">professional construction network</a> 
+<a href="https://magenta-sprite-849eb9.netlify.app/making-sense-of-complex-topics-online-explained-simply.html">making sense of complex topics online explained simply</a> 
+<a href="https://magical-donut-ca7937.netlify.app/discovering-the-vibrant-world-of-asianpinay-a-deep-dive-into.html">discovering the vibrant world of asianpinay a deep dive into</a> 
+<a href="https://magicly.bio/1mother/A-curated-list-of-independent-websites">A curated list of independent websites</a> 
+<a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
 <a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
 <a href="https://magicly.bio/1mother/Independent-websites-worth-bookmarking-a-reading-list">Independent websites worth bookmarking a reading list</a> 
 <a href="https://magicly.bio/1mother/More-independent-publications-to-explore">More independent publications to explore</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/understanding-the-latest-trends-in-news-consumption-and-anal-2/">understanding the latest trends in news consumption and anal</a> 
 <a href="https://modernwritingdesk.com/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
 <a href="https://modernwritingdesk.com/understanding-today-s-news-landscape-in-depth-analysis-and-e/">understanding today s news landscape in depth analysis and e</a> 
-<a href="https://modernwritingdesk.com/unlocking-the-future-how-ai-driven-apps-are-transforming-our-2/">unlocking the future how ai driven apps are transforming our</a> 
-<a href="https://modernwritingdesk.com/unlocking-the-future-how-ai-driven-apps-are-transforming-our/">unlocking the future how ai driven apps are transforming our</a> 
-<a href="https://modernwritingdesk.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://modernwritingdesk.com/web-tech-content-50-resources-worth-bookmarking-110-4/">web tech content 50 resources worth bookmarking 110 4</a> 
-<a href="https://modernwritingdesk.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://modernwritingdesk.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
-<a href="https://modernwritingdesk.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://modernwritingdesk.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://modernwritingdesk.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 

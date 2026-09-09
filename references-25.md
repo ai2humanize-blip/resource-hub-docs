@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://ls-getting-how-to-fact-check-something-in-five-mt-imncw2y54a-uc.a.run.app">ls-getting-how-to-fact-check-something-in-five-mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-getting-how-to-find-balanced-coverage-of-a--mt-imncw2y54a-uc.a.run.app">ls-getting-how-to-find-balanced-coverage-of-a--mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-getting-how-to-find-reliable-how-to-g-mtmnp8ua-dot-stnews-489814.uc.r.appspot.com/">ls-getting-how-to-find-reliable-how-to-g-mtmnp8ua-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-getting-how-to-find-reliable-how-to-guides--mt-imncw2y54a-uc.a.run.app">ls-getting-how-to-find-reliable-how-to-guides--mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-getting-how-to-organize-the-informati-mtmnz8z3-dot-stnews-489814.uc.r.appspot.com/">ls-getting-how-to-organize-the-informati-mtmnz8z3-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-getting-how-to-tell-if-a-website-is-t-mtmm39ul-dot-stnews-489814.uc.r.appspot.com/">ls-getting-how-to-tell-if-a-website-is-t-mtmm39ul-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-getting-how-to-use-the-web-to-learn-a-mtpohwzz-dot-stnews-489814.uc.r.appspot.com/">ls-getting-how-to-use-the-web-to-learn-a-mtpohwzz-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-getting-making-sense-of-complex-topics-onli-mt-imncw2y54a-uc.a.run.app">ls-getting-making-sense-of-complex-topics-onli-mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-getting-simple-habits-of-a-smart-inte-mtmm4h7l-dot-stnews-489814.uc.r.appspot.com/">ls-getting-simple-habits-of-a-smart-inte-mtmm4h7l-dot-stnews-489814.uc.r.appspot.com</a> 
 <a href="https://ls-getting-simple-habits-of-a-smart-internet-reader-ri.ai2hmnz-rhub.workers.dev/">ls-getting-simple-habits-of-a-smart-internet-reader-ri.ai2hmnz-rhub.workers.dev</a> 
 <a href="https://ls-getting-the-basics-of-staying-safe-wh-mtmnxgln-dot-stnews-489814.uc.r.appspot.com/">ls-getting-the-basics-of-staying-safe-wh-mtmnxgln-dot-stnews-489814.uc.r.appspot.com</a> 
 <a href="https://ls-getting-the-value-of-slow-careful-rea-mtmmi9ta-dot-stnews-489814.uc.r.appspot.com/">ls-getting-the-value-of-slow-careful-rea-mtmmi9ta-dot-stnews-489814.uc.r.appspot.com</a> 
@@ -793,12 +802,3 @@
 <a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://madeleine-dore.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://madwirebuild.com/gindex.html">gindex</a> 
-<a href="https://madwirebuild.com/picks.html">picks</a> 
-<a href="https://magenta-arithmetic-409861.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-and-.html">understanding the impact of ai on modern news reporting and</a> 
-<a href="https://magenta-melba-e4a69c.netlify.app/professional-construction-network.html">professional construction network</a> 
-<a href="https://magenta-sprite-849eb9.netlify.app/making-sense-of-complex-topics-online-explained-simply.html">making sense of complex topics online explained simply</a> 
-<a href="https://magical-donut-ca7937.netlify.app/discovering-the-vibrant-world-of-asianpinay-a-deep-dive-into.html">discovering the vibrant world of asianpinay a deep dive into</a> 
-<a href="https://magicly.bio/1mother/A-curated-list-of-independent-websites">A curated list of independent websites</a> 
-<a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
