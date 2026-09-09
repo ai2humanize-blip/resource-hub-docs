@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://homaryreviews.com/essential-digital-tools-online-resources-for-cryptocurrency-101-2/">essential digital tools online resources for cryptocurrency </a> 
+<a href="https://homaryreviews.com/essential-digital-tools-online-resources-for-everyday-life-101-2/">essential digital tools online resources for everyday life 1</a> 
+<a href="https://homaryreviews.com/essential-digital-tools-online-resources-for-modern-living-101-2/">essential digital tools online resources for modern living 1</a> 
 <a href="https://homaryreviews.com/essential-digital-tools-online-resources-for-modern-users-101-2/">essential digital tools online resources for modern users 10</a> 
 <a href="https://homaryreviews.com/essential-digital-tools-online-resources-for-modern-users-101-7/">essential digital tools online resources for modern users 10</a> 
 <a href="https://homaryreviews.com/essential-digital-tools-online-resources-for-navigating-cryp-101-2/">essential digital tools online resources for navigating cryp</a> 
@@ -799,6 +802,3 @@
 <a href="https://ipfs.filebase.io/ipfs/QmUxs4dfQpCCL6YQLpzAL1VPLNsq8RfQ52DSAphfCX2LUc">QmUxs4dfQpCCL6YQLpzAL1VPLNsq8RfQ52DSAphfCX2LUc</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmV1FbdscPetZPkgg5hKjxFg8MG78ZECR5Kj8jd98mSPLi">QmV1FbdscPetZPkgg5hKjxFg8MG78ZECR5Kj8jd98mSPLi</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmVLEGPDzzpSpkQoQ5pqmww2SC4YpRwykN8jk2Wn6xkmqW">QmVLEGPDzzpSpkQoQ5pqmww2SC4YpRwykN8jk2Wn6xkmqW</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVNfNHrpVMdekd41rg3D38DFgyACHbPoxLu2pReSD2TNG">QmVNfNHrpVMdekd41rg3D38DFgyACHbPoxLu2pReSD2TNG</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVi5Ygu5g4xsYtsmiB13fQP4gnkvwVPvVeitCHz73cRFg">QmVi5Ygu5g4xsYtsmiB13fQP4gnkvwVPvVeitCHz73cRFg</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVkVixxeoBwNzzhbFKe1EHfnYhYYuUs7HoqxdBu2S7U2L">QmVkVixxeoBwNzzhbFKe1EHfnYhYYuUs7HoqxdBu2S7U2L</a> 

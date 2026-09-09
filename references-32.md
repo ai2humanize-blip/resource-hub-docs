@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://portalnewsletter.co.za/wp/2026/09/06/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/06/how-to-tell-if-a-website-is-trustworthy-a-quick-guide-2/">how to tell if a website is trustworthy a quick guide 2</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/06/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/06/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/06/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/07/mastering-business-finance-productivity-essential-skills-for-35-2/">mastering business finance productivity essential skills for</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/07/mastering-business-finance-productivity-essential-web-skills-35-7/">mastering business finance productivity essential web skills</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/07/mastering-business-finance-productivity-in-the-digital-age-35-2/">mastering business finance productivity in the digital age 3</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/07/mastering-digital-tools-online-resources-a-comprehensive-gui-35-3-2/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/07/mastering-digital-tools-online-resources-a-comprehensive-gui-35-3/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/07/mastering-online-information-guides-reviews-how-tos-for-smar-35-10/">mastering online information guides reviews how tos for smar</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/08/essential-strategies-for-business-finance-productivity-in-th-35-2/">essential strategies for business finance productivity in th</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/08/how-to-fact-check-something-in-five-minutes-explained-simply-2/">how to fact check something in five minutes explained simply</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/08/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/08/master-business-finance-productivity-a-comprehensive-guide-t-35-2/">master business finance productivity a comprehensive guide t</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/08/master-business-finance-productivity-top-online-resources-st-35-2/">master business finance productivity top online resources st</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/08/mastering-business-finance-and-productivity-a-guide-to-smart-35-2/">mastering business finance and productivity a guide to smart</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/08/mastering-business-finance-and-productivity-in-the-digital-a-35-2-2/">mastering business finance and productivity in the digital a</a> 
@@ -23,6 +38,9 @@
 <a href="https://portalnewsletter.co.za/wp/2026/09/08/mastering-business-finance-productivity-in-the-digital-age-a-35-2/">mastering business finance productivity in the digital age a</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/08/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-11/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-12/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-13/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-in-the-digital-age-a-35-2-2/">mastering business finance productivity in the digital age a</a> 
 <a href="https://praise-pleasant-toad.tilda.ws/">praise-pleasant-toad.tilda.ws</a> 
 <a href="https://precious-pixie-60a902.netlify.app/choosing-the-right-advanced-seo-agency-in-india-a-comprehens.html">choosing the right advanced seo agency in india a comprehens</a> 
 <a href="https://preeminent-kheer-3a8064.netlify.app/sustainable-fashion-how-to-embrace-eco-friendly-style-and-li.html">sustainable fashion how to embrace eco friendly style and li</a> 
@@ -784,21 +802,3 @@
 <a href="https://royalkesarcompany.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://royalkesarcompany.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://royalkesarcompany.com/guides-reviews-how-tos-50-resources-worth-bookmarking-122-8-2/">guides reviews how tos 50 resources worth bookmarking 122 8 </a> 
-<a href="https://royalkesarcompany.com/guides-reviews-how-tos-50-resources-worth-bookmarking-122-8/">guides reviews how tos 50 resources worth bookmarking 122 8</a> 
-<a href="https://royalkesarcompany.com/how-ai-and-machine-learning-are-transforming-mobile-apps/">how ai and machine learning are transforming mobile apps</a> 
-<a href="https://royalkesarcompany.com/how-ai-is-revolutionizing-news-reporting-and-analysis-in-202/">how ai is revolutionizing news reporting and analysis in 202</a> 
-<a href="https://royalkesarcompany.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://royalkesarcompany.com/how-ai-powered-apps-are-transforming-our-digital-experience/">how ai powered apps are transforming our digital experience</a> 
-<a href="https://royalkesarcompany.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://royalkesarcompany.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://royalkesarcompany.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://royalkesarcompany.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://royalkesarcompany.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://royalkesarcompany.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://royalkesarcompany.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://royalkesarcompany.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://royalkesarcompany.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://royalkesarcompany.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://royalkesarcompany.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://royalkesarcompany.com/how-to-fact-check-something-in-five-minutes-the-basics-2/">how to fact check something in five minutes the basics 2</a> 
-<a href="https://royalkesarcompany.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://ecomhuntreviews.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://ecomhuntreviews.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://ecomhuntreviews.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://ecomhuntreviews.com/how-to-evaluate-online-reviews-and-recommendations-explained-2/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://ecomhuntreviews.com/how-to-evaluate-online-reviews-and-recommendations-explained-3/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://ecomhuntreviews.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
@@ -799,6 +802,3 @@
 <a href="https://ezoterizm.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
 <a href="https://ezoterizm.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
-<a href="https://ezoterizm.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://ezoterizm.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://ezoterizm.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 

@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://nicecitydatecraze.com/web-tech-content-50-resources-worth-bookmarking-132-7/">web tech content 50 resources worth bookmarking 132 7</a> 
+<a href="https://nicecitydatecraze.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
+<a href="https://nicecitydatecraze.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui-2/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://nicecitydatecraze.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://nicecitydatecraze.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://nicecitydatecraze.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://nicecitydatecraze.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://nicecitydatecraze.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://nicecitydatecraze.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://nicecitydatecraze.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://nicecitydatecraze.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://nicecitydatecraze.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://nicecitydatecraze.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://nicecitydatecraze.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
 <a href="https://nicecitydatecraze.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
@@ -790,15 +802,3 @@
 <a href="https://pastebin.com/0cxSYR0C">0cxSYR0C</a> 
 <a href="https://pastebin.com/18GUjLX1">18GUjLX1</a> 
 <a href="https://pastebin.com/1QWGgGCb">1QWGgGCb</a> 
-<a href="https://pastebin.com/25RmgqAd">25RmgqAd</a> 
-<a href="https://pastebin.com/3crC2VX7">3crC2VX7</a> 
-<a href="https://pastebin.com/3uUu7A6k">3uUu7A6k</a> 
-<a href="https://pastebin.com/4Te3LqEq">4Te3LqEq</a> 
-<a href="https://pastebin.com/5CTMAMzV">5CTMAMzV</a> 
-<a href="https://pastebin.com/5vGm8pTb">5vGm8pTb</a> 
-<a href="https://pastebin.com/6KUaC9u2">6KUaC9u2</a> 
-<a href="https://pastebin.com/6cc5NBN2">6cc5NBN2</a> 
-<a href="https://pastebin.com/6uV7WhxD">6uV7WhxD</a> 
-<a href="https://pastebin.com/7rCu2j5e">7rCu2j5e</a> 
-<a href="https://pastebin.com/8NjeHQuD">8NjeHQuD</a> 
-<a href="https://pastebin.com/9ckEvWGb">9ckEvWGb</a> 
