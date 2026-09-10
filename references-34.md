@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://render-resource-hub.onrender.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m.html">why primary sources matter and how to find them and why it m</a> 
+<a href="https://render-resource-hub.onrender.com/women-creators.html">women creators</a> 
+<a href="https://resilient-gumdrop-0c30e4.netlify.app/rti-act-guide.html">rti act guide</a> 
+<a href="https://resilient-starlight-0dacda.netlify.app/choosing-the-right-elearning-platform-a-comprehensive-guide.html">choosing the right elearning platform a comprehensive guide</a> 
+<a href="https://resources.128-140-7-186.sslip.io/">resources.128-140-7-186.sslip.io</a> 
+<a href="https://resourceslist.great-site.net/">resourceslist.great-site.net</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-how-to-find-reliable-how-to-guides-2/">a closer look at how to find reliable how to guides 2</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://ricegumnetworth.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://ricegumnetworth.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
 <a href="https://ricegumnetworth.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
 <a href="https://ricegumnetworth.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
@@ -752,6 +770,7 @@
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-and-productivity-a-comprehensive-48-9-2/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-and-productivity-a-comprehensive-48-9-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-and-productivity-a-comprehensive-48-9-4/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-and-productivity-a-comprehensive-48-9-5/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-and-productivity-a-comprehensive-48-9/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-and-productivity-a-deep-dive-into-48-9/">mastering business finance and productivity a deep dive into</a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-and-productivity-a-guide-to-smart-48-9/">mastering business finance and productivity a guide to smart</a> 
@@ -777,28 +796,9 @@
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-26/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-27/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-28/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-29/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-6/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-7/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-8/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-48-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-48-9-2/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-48-9-3/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-48-9/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-a-deep-dive-into-ind-48-9/">mastering business finance productivity a deep dive into ind</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-essential-online-str-48-9/">mastering business finance productivity essential online str</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-essential-skills-for-48-9-2/">mastering business finance productivity essential skills for</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-essential-skills-for-48-9-3/">mastering business finance productivity essential skills for</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-essential-skills-for-48-9-4/">mastering business finance productivity essential skills for</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-essential-skills-for-48-9/">mastering business finance productivity essential skills for</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-essential-web-skills-48-9/">mastering business finance productivity essential web skills</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-48-9-10/">mastering business finance productivity in the digital age 4</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-48-9-2/">mastering business finance productivity in the digital age 4</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-48-9-3/">mastering business finance productivity in the digital age 4</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-48-9-4/">mastering business finance productivity in the digital age 4</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-48-9-5/">mastering business finance productivity in the digital age 4</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-48-9-6/">mastering business finance productivity in the digital age 4</a> 
-<a href="https://sandybrown-guanaco-820997.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-48-9-7/">mastering business finance productivity in the digital age 4</a> 

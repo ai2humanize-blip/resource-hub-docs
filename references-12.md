@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://dev.to/ai2humanizeblip/how-to-be-a-smarter-news-reader-in-2026-2715">how to be a smarter news reader in 2026 2715</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-bookmark-and-revisit-useful-resources-explained-simply-11kp">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-build-a-personal-reading-list-3n2p">how to build a personal reading list 3n2p</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-build-a-personal-reading-list-5fm3">how to build a personal reading list 5fm3</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-build-a-personal-reading-list-a-practical-guide-o5n">how to build a personal reading list a practical guide o5n</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-build-a-personal-reading-list-and-why-it-matters-4n90">how to build a personal reading list and why it matters 4n90</a> 
@@ -799,6 +802,3 @@
 <a href="https://emiamedical.com/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
 <a href="https://emiamedical.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
 <a href="https://emiamedical.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
-<a href="https://emiamedical.com/recognizing-credible-experts-online-the-basics-3/">recognizing credible experts online the basics 3</a> 
-<a href="https://emiamedical.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://emiamedical.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
