@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://fabbusinesssolutions.com/how-recent-economic-trends-are-shaping-global-markets/">how recent economic trends are shaping global markets</a> 
+<a href="https://fabbusinesssolutions.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://fabbusinesssolutions.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://fabbusinesssolutions.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://fabbusinesssolutions.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
 <a href="https://fabbusinesssolutions.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://fideleturfturf.it.com/exploring-the-best-independent-web-tech-and-crypto-resources-28-6-3/">exploring the best independent web tech and crypto resources</a> 
 <a href="https://fideleturfturf.it.com/exploring-the-best-independent-web-tech-and-crypto-resources-28-6/">exploring the best independent web tech and crypto resources</a> 
 <a href="https://fideleturfturf.it.com/exploring-the-best-independent-web-tech-content-resources-28-6/">exploring the best independent web tech content resources 28</a> 
-<a href="https://fideleturfturf.it.com/exploring-the-dynamic-world-of-web-tech-content-creation-28-6/">exploring the dynamic world of web tech content creation 28 </a> 
-<a href="https://fideleturfturf.it.com/exploring-the-future-digital-tools-online-resources-for-cryp-28-5/">exploring the future digital tools online resources for cryp</a> 
-<a href="https://fideleturfturf.it.com/exploring-the-future-of-mobile-apps-innovations-and-trends-s/">exploring the future of mobile apps innovations and trends s</a> 

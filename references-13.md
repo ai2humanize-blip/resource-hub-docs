@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://emiamedical.com/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
+<a href="https://emiamedical.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://emiamedical.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
 <a href="https://emiamedical.com/recognizing-credible-experts-online-the-basics-3/">recognizing credible experts online the basics 3</a> 
 <a href="https://emiamedical.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
 <a href="https://emiamedical.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-transforming-our-digital-lives-2/">how ai powered apps are transforming our digital lives 2</a> 
 <a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
 <a href="https://fabbusinesssolutions.com/how-current-news-impacts-your-daily-life-a-comprehensive-ana/">how current news impacts your daily life a comprehensive ana</a> 
-<a href="https://fabbusinesssolutions.com/how-recent-economic-trends-are-shaping-global-markets/">how recent economic trends are shaping global markets</a> 
-<a href="https://fabbusinesssolutions.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://fabbusinesssolutions.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://forotesis.com/the-value-of-slow-careful-reading-a-quick-guide-2/">the value of slow careful reading a quick guide 2</a> 
+<a href="https://forotesis.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://forotesis.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
 <a href="https://forotesis.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://forotesis.com/transform-your-life-business-finance-and-productivity-strate-96-6/">transform your life business finance and productivity strate</a> 
 <a href="https://forotesis.com/transforming-your-digital-life-how-ai-driven-apps-are-revolu-96-8/">transforming your digital life how ai driven apps are revolu</a> 
@@ -799,6 +802,3 @@
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://globespro.it.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://globespro.it.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://globespro.it.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
