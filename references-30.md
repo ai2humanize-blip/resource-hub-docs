@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://newswada.com/why-context-matters-when-reading-online-3/">why context matters when reading online 3</a> 
+<a href="https://newswada.com/why-context-matters-when-reading-online-a-quick-guide-2/">why context matters when reading online a quick guide 2</a> 
+<a href="https://newswada.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
+<a href="https://newswada.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://newswada.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://newswada.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://newswada.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://newswada.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://nexus-index-pro.base44.app/">nexus-index-pro.base44.app</a> 
+<a href="https://nicecitydatecraze.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://nicecitydatecraze.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://nicecitydatecraze.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
 <a href="https://nicecitydatecraze.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://nicecitydatecraze.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://nicecitydatecraze.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
@@ -790,15 +802,3 @@
 <a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-find-reliable-how-to-guides-a-practical-guide-2/">how to find reliable how to guides a practical guide 2</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://paleturquoise-eland-334243.hostingersite.com/how-to-spot-low-quality-content-online-the-basics-2/">how to spot low quality content online the basics 2</a> 

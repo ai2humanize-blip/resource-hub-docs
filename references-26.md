@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://ls-guide-to-choosing-mshrnvan.ai2hresources.deno.net/">ls-guide-to-choosing-mshrnvan.ai2hresources.deno.net</a> 
+<a href="https://ls-holistic-health-and-wellness-embracing-an-organic-l.ai2hmnz-rhub.workers.dev/">ls-holistic-health-and-wellness-embracing-an-organic-l.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-holistic-health-msrjzcl9.firebaseapp.com/">ls-holistic-health-msrjzcl9.firebaseapp.com</a> 
+<a href="https://ls-holistic-health-msrjzcl9.web.app/">ls-holistic-health-msrjzcl9.web.app</a> 
+<a href="https://ls-how-ai-and-machine-learning-are-transformin-ms-imncw2y54a-uc.a.run.app">ls-how-ai-and-machine-learning-are-transformin-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-how-ai-driven-apps-are-transforming-o-msry8bk6-dot-stnews-489814.uc.r.appspot.com/">ls-how-ai-driven-apps-are-transforming-o-msry8bk6-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-how-ai-driven-apps-are-transforming-our-dai-ms-imncw2y54a-uc.a.run.app">ls-how-ai-driven-apps-are-transforming-our-dai-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-how-ai-powered-apps-are-revolutionizing-dai-ms-imncw2y54a-uc.a.run.app">ls-how-ai-powered-apps-are-revolutionizing-dai-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-how-ai-powered-apps-are-transforming-daily--ms-imncw2y54a-uc.a.run.app">ls-how-ai-powered-apps-are-transforming-daily--ms-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-how-ai-powered-apps-are-transforming-daily-life-and.ai2hmnz-rhub.workers.dev/">ls-how-ai-powered-apps-are-transforming-daily-life-and.ai2hmnz-rhub.workers.dev</a> 
 <a href="https://ls-how-ai-powered-apps-are-transforming-everyd-ms-imncw2y54a-uc.a.run.app">ls-how-ai-powered-apps-are-transforming-everyd-ms-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-how-ai-powered-apps-are-transforming-our-da-ms-imncw2y54a-uc.a.run.app">ls-how-ai-powered-apps-are-transforming-our-da-ms-imncw2y54a-uc.a.run.app</a> 
@@ -793,12 +802,3 @@
 <a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://madeleine-dore.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
 <a href="https://madwirebuild.com/gindex.html">gindex</a> 
-<a href="https://madwirebuild.com/picks.html">picks</a> 
-<a href="https://magenta-arithmetic-409861.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-and-.html">understanding the impact of ai on modern news reporting and</a> 
-<a href="https://magenta-melba-e4a69c.netlify.app/professional-construction-network.html">professional construction network</a> 
-<a href="https://magenta-sprite-849eb9.netlify.app/making-sense-of-complex-topics-online-explained-simply.html">making sense of complex topics online explained simply</a> 
-<a href="https://magical-donut-ca7937.netlify.app/discovering-the-vibrant-world-of-asianpinay-a-deep-dive-into.html">discovering the vibrant world of asianpinay a deep dive into</a> 
-<a href="https://magicly.bio/1mother/A-curated-list-of-independent-websites">A curated list of independent websites</a> 
-<a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
-<a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
-<a href="https://magicly.bio/1mother/Independent-websites-worth-bookmarking-a-reading-list">Independent websites worth bookmarking a reading list</a> 

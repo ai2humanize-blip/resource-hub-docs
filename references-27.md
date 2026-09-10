@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://madwirebuild.com/picks.html">picks</a> 
+<a href="https://magenta-arithmetic-409861.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-and-.html">understanding the impact of ai on modern news reporting and</a> 
+<a href="https://magenta-melba-e4a69c.netlify.app/professional-construction-network.html">professional construction network</a> 
+<a href="https://magenta-sprite-849eb9.netlify.app/making-sense-of-complex-topics-online-explained-simply.html">making sense of complex topics online explained simply</a> 
+<a href="https://magical-donut-ca7937.netlify.app/discovering-the-vibrant-world-of-asianpinay-a-deep-dive-into.html">discovering the vibrant world of asianpinay a deep dive into</a> 
+<a href="https://magicly.bio/1mother/A-curated-list-of-independent-websites">A curated list of independent websites</a> 
+<a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
+<a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
+<a href="https://magicly.bio/1mother/Independent-websites-worth-bookmarking-a-reading-list">Independent websites worth bookmarking a reading list</a> 
 <a href="https://magicly.bio/1mother/More-independent-publications-to-explore">More independent publications to explore</a> 
 <a href="https://magnificent-zabaione-cf1f35.netlify.app/a-simple-framework-for-researching-any-topic-online.html">a simple framework for researching any topic online</a> 
 <a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
 <a href="https://modernwritingdesk.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://modernwritingdesk.com/the-rise-of-ai-in-journalism-transforming-newsrooms-and-repo/">the rise of ai in journalism transforming newsrooms and repo</a> 
-<a href="https://modernwritingdesk.com/the-rise-of-ai-in-news-reporting-current-trends-and-future-i/">the rise of ai in news reporting current trends and future i</a> 
-<a href="https://modernwritingdesk.com/the-rise-of-ai-in-newsrooms-how-artificial-intelligence-is-t/">the rise of ai in newsrooms how artificial intelligence is t</a> 
-<a href="https://modernwritingdesk.com/the-rise-of-ai-powered-apps-transforming-our-digital-experie/">the rise of ai powered apps transforming our digital experie</a> 
-<a href="https://modernwritingdesk.com/the-rise-of-data-driven-sports-news-and-in-depth-analysis/">the rise of data driven sports news and in depth analysis</a> 
-<a href="https://modernwritingdesk.com/the-ultimate-guide-to-casinos-without-spelpaus-top-brands-ti-110-6/">the ultimate guide to casinos without spelpaus top brands ti</a> 
-<a href="https://modernwritingdesk.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-your-li/">the ultimate guide to choosing the perfect watch for your li</a> 
-<a href="https://modernwritingdesk.com/the-ultimate-guide-to-choosing-the-perfect-watch-reviews-gui-110-10/">the ultimate guide to choosing the perfect watch reviews gui</a> 
-<a href="https://modernwritingdesk.com/the-ultimate-guide-to-starting-a-profitable-home-garden/">the ultimate guide to starting a profitable home garden</a> 
-<a href="https://modernwritingdesk.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
