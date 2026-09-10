@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-a-practical-guide-5486">how to compare sources on the same story a practical guide 5</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-the-basics-59k7">how to compare sources on the same story the basics 59k7</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide-57o6">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-the-basics-269p">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-and-why-it-matters-1d1m">how to fact check something in five minutes and why it matte</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-and-why-it-matters-m36">how to fact check something in five minutes and why it matte</a> 
@@ -799,6 +802,3 @@
 <a href="https://emiamedical.com/revolutionizing-sports-analysis-how-advanced-metrics-are-cha/">revolutionizing sports analysis how advanced metrics are cha</a> 
 <a href="https://emiamedical.com/staying-informed-and-ahead-the-ultimate-guide-to-sports-news-92-3/">staying informed and ahead the ultimate guide to sports news</a> 
 <a href="https://emiamedical.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://emiamedical.com/staying-informed-comprehensive-guides-reviews-and-how-tos-fo-92-3/">staying informed comprehensive guides reviews and how tos fo</a> 
-<a href="https://emiamedical.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://emiamedical.com/staying-safe-and-informed-the-latest-trends-in-online-casino-92-2/">staying safe and informed the latest trends in online casino</a> 

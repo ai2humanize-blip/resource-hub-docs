@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://haomvc.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
+<a href="https://haomvc.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://haomvc.com/why-niche-blogs-still-matter-the-basics-2/">why niche blogs still matter the basics 2</a> 
 <a href="https://haomvc.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
 <a href="https://haomvc.com/why-primary-sources-matter-and-how-to-find-them-2/">why primary sources matter and how to find them 2</a> 
 <a href="https://haomvc.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
@@ -799,6 +802,3 @@
 <a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://homaryreviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-3/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 

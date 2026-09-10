@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://ls-how-ai-powered-apps-are-transforming-daily-life-and.ai2hmnz-rhub.workers.dev/">ls-how-ai-powered-apps-are-transforming-daily-life-and.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-how-ai-powered-apps-are-transforming-everyd-ms-imncw2y54a-uc.a.run.app">ls-how-ai-powered-apps-are-transforming-everyd-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-how-ai-powered-apps-are-transforming-our-da-ms-imncw2y54a-uc.a.run.app">ls-how-ai-powered-apps-are-transforming-our-da-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-how-ai-powered-apps-are-transforming-our-daily-digi.ai2hmnz-rhub.workers.dev/">ls-how-ai-powered-apps-are-transforming-our-daily-digi.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-how-ai-powered-apps-are-transforming-our-daily-live.ai2hmnz-rhub.workers.dev/">ls-how-ai-powered-apps-are-transforming-our-daily-live.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-how-ai-powered-tools-are-revolutioniz-msrrh04k-dot-stnews-489814.uc.r.appspot.com/">ls-how-ai-powered-tools-are-revolutioniz-msrrh04k-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-how-recent-worl-mss19rty.firebaseapp.com/">ls-how-recent-worl-mss19rty.firebaseapp.com</a> 
+<a href="https://ls-how-recent-worl-mss19rty.web.app/">ls-how-recent-worl-mss19rty.web.app</a> 
+<a href="https://ls-how-smart-technology-is-transforming-daily-life-and.ai2hmnz-rhub.workers.dev/">ls-how-smart-technology-is-transforming-daily-life-and.ai2hmnz-rhub.workers.dev</a> 
 <a href="https://ls-how-to-avoid-misinformation-and-hype--mtmnmjms-dot-stnews-489814.uc.r.appspot.com/">ls-how-to-avoid-misinformation-and-hype--mtmnmjms-dot-stnews-489814.uc.r.appspot.com</a> 
 <a href="https://ls-how-to-avoid-misinformation-and-hype-a-practical-gu.ai2hmnz-rhub.workers.dev/">ls-how-to-avoid-misinformation-and-hype-a-practical-gu.ai2hmnz-rhub.workers.dev</a> 
 <a href="https://ls-how-to-avoid-misinformation-and-hype-and-why-it-mat.ai2hmnz-rhub.workers.dev/">ls-how-to-avoid-misinformation-and-hype-and-why-it-mat.ai2hmnz-rhub.workers.dev</a> 
@@ -793,12 +802,3 @@
 <a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
 <a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
 <a href="https://magicly.bio/1mother/Independent-websites-worth-bookmarking-a-reading-list">Independent websites worth bookmarking a reading list</a> 
-<a href="https://magicly.bio/1mother/More-independent-publications-to-explore">More independent publications to explore</a> 
-<a href="https://magnificent-zabaione-cf1f35.netlify.app/a-simple-framework-for-researching-any-topic-online.html">a simple framework for researching any topic online</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://marketingslave.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://marketingslave.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
