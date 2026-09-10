@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://madeleine-dore.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://madeleine-dore.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/revolutionizing-daily-life-the-impact-of-ai-powered-apps-on/">revolutionizing daily life the impact of ai powered apps on</a> 
 <a href="https://modernwritingdesk.com/revolutionizing-your-digital-life-the-latest-app-innovations/">revolutionizing your digital life the latest app innovations</a> 
 <a href="https://modernwritingdesk.com/simple-habits-of-a-smart-internet-reader-2/">simple habits of a smart internet reader 2</a> 
-<a href="https://modernwritingdesk.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
-<a href="https://modernwritingdesk.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://modernwritingdesk.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
-<a href="https://modernwritingdesk.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://modernwritingdesk.com/staying-safe-and-responsible-the-latest-in-online-casino-and/">staying safe and responsible the latest in online casino and</a> 
-<a href="https://modernwritingdesk.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://modernwritingdesk.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://modernwritingdesk.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://modernwritingdesk.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-5/">staying safe and responsible the latest online casino and ga</a> 
