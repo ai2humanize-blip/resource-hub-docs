@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://fabbusinesssolutions.com/how-to-choose-the-right-financial-advisor-for-your-needs/">how to choose the right financial advisor for your needs</a> 
+<a href="https://fabbusinesssolutions.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://fabbusinesssolutions.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://fabbusinesssolutions.com/how-to-fact-check-something-in-five-minutes-explained-simply-2/">how to fact check something in five minutes explained simply</a> 
 <a href="https://fabbusinesssolutions.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://fabbusinesssolutions.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
@@ -799,6 +802,3 @@
 <a href="https://fideleturfturf.it.com/exploring-the-interconnected-world-of-web-tech-content-28-6/">exploring the interconnected world of web tech content 28 6</a> 
 <a href="https://fideleturfturf.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-28-6-2/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://fideleturfturf.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-28-6-3/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://fideleturfturf.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-28-6-4/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://fideleturfturf.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-28-6/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://fideleturfturf.it.com/exploring-the-intersection-of-web-tech-and-content-essential-28-6/">exploring the intersection of web tech and content essential</a> 
