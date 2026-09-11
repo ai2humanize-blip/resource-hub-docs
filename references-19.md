@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://homaryreviews.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
+<a href="https://homaryreviews.com/protecting-your-privacy-the-rise-of-anonymous-messaging-apps/">protecting your privacy the rise of anonymous messaging apps</a> 
+<a href="https://homaryreviews.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
+<a href="https://homaryreviews.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
+<a href="https://homaryreviews.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
+<a href="https://homaryreviews.com/revolutionizing-creativity-how-ai-powered-apps-are-transform/">revolutionizing creativity how ai powered apps are transform</a> 
+<a href="https://homaryreviews.com/revolutionizing-creativity-how-ai-powered-tools-transform-ma-101-10/">revolutionizing creativity how ai powered tools transform ma</a> 
+<a href="https://homaryreviews.com/revolutionizing-daily-life-ai-crypto-and-digital-tools-trans-101-2/">revolutionizing daily life ai crypto and digital tools trans</a> 
 <a href="https://homaryreviews.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-101-6/">revolutionizing daily life how ai powered apps are transform</a> 
 <a href="https://homaryreviews.com/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
 <a href="https://homaryreviews.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
@@ -794,11 +802,3 @@
 <a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource-2/">a closer look at how to bookmark and revisit useful resource</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
