@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://newswada.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://newswada.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://newswada.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://newswada.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matters/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://newswada.com/how-to-build-a-personal-reading-list-a-quick-guide-2/">how to build a personal reading list a quick guide 2</a> 
+<a href="https://newswada.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://newswada.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://newswada.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://newswada.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://newswada.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
+<a href="https://newswada.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://newswada.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://newswada.com/how-to-find-reliable-how-to-guides-a-practical-guide-2/">how to find reliable how to guides a practical guide 2</a> 
+<a href="https://newswada.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
 <a href="https://newswada.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
 <a href="https://newswada.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
 <a href="https://newswada.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
@@ -788,17 +802,3 @@
 <a href="https://palacsintarecept.hu.net/how-to-organize-the-information-you-find-online-explained-si-2/">how to organize the information you find online explained si</a> 
 <a href="https://palacsintarecept.hu.net/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
 <a href="https://palacsintarecept.hu.net/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://palacsintarecept.hu.net/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://palacsintarecept.hu.net/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://palacsintarecept.hu.net/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://palacsintarecept.hu.net/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
-<a href="https://palacsintarecept.hu.net/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
-<a href="https://palacsintarecept.hu.net/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
-<a href="https://palacsintarecept.hu.net/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://palacsintarecept.hu.net/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://palacsintarecept.hu.net/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://palacsintarecept.hu.net/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://palacsintarecept.hu.net/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://palacsintarecept.hu.net/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://palacsintarecept.hu.net/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://palacsintarecept.hu.net/turos-palacsinta-recept/">turos palacsinta recept</a> 

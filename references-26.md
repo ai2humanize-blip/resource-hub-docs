@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/mastering-personal-finance-for-business-growth-a-marketing-p/">mastering personal finance for business growth a marketing p</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/programmes-et-types-de-paris-pmu-bien-s-y-retrouver/">programmes et types de paris pmu bien s y retrouver</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
@@ -790,15 +802,3 @@
 <a href="https://madeleine-dore.com/navigating-the-intersection-of-marketing-seo-growth-in-2023-107-9/">navigating the intersection of marketing seo growth in 2023 </a> 
 <a href="https://madeleine-dore.com/navigating-the-latest-news-in-depth-analysis-and-expert-insi/">navigating the latest news in depth analysis and expert insi</a> 
 <a href="https://madeleine-dore.com/navigating-the-latest-news-landscape-expert-insights-and-ana/">navigating the latest news landscape expert insights and ana</a> 
-<a href="https://madeleine-dore.com/navigating-the-latest-trends-in-news-consumption-a-comprehen-107-7/">navigating the latest trends in news consumption a comprehen</a> 
-<a href="https://madeleine-dore.com/navigating-the-modern-news-landscape-trends-ai-and-reliable-107-7/">navigating the modern news landscape trends ai and reliable </a> 
-<a href="https://madeleine-dore.com/navigating-the-shifting-landscape-of-news-consumption-in-202-107-8/">navigating the shifting landscape of news consumption in 202</a> 
-<a href="https://madeleine-dore.com/navigating-the-shifting-tides-of-today-s-news-landscape-anal/">navigating the shifting tides of today s news landscape anal</a> 
-<a href="https://madeleine-dore.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
-<a href="https://madeleine-dore.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
-<a href="https://madeleine-dore.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://madeleine-dore.com/revolutionizing-creativity-how-ai-powered-apps-are-transform/">revolutionizing creativity how ai powered apps are transform</a> 
-<a href="https://madeleine-dore.com/revolutionizing-creativity-how-ai-powered-tools-transform-di-107-8/">revolutionizing creativity how ai powered tools transform di</a> 
-<a href="https://madeleine-dore.com/revolutionizing-daily-life-ai-powered-apps-digital-wellness-107-8/">revolutionizing daily life ai powered apps digital wellness </a> 
-<a href="https://madeleine-dore.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://madeleine-dore.com/staying-informed-how-to-navigate-today-s-news-landscape-for/">staying informed how to navigate today s news landscape for</a> 
