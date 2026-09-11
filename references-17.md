@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://globespro.it.com/web-tech-content-45-resources-worth-bookmarking-29-5/">web tech content 45 resources worth bookmarking 29 5</a> 
+<a href="https://globespro.it.com/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
+<a href="https://globespro.it.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://globespro.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
 <a href="https://globespro.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://globespro.it.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
@@ -799,6 +802,3 @@
 <a href="https://haomvc.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://haomvc.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
 <a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
-<a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://haomvc.com/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 

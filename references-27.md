@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://madeleine-dore.com/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
+<a href="https://madeleine-dore.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://madeleine-dore.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://madeleine-dore.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://madeleine-dore.com/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://madeleine-dore.com/the-evolution-of-news-consumption-how-technology-is-reshapin/">the evolution of news consumption how technology is reshapin</a> 
+<a href="https://madeleine-dore.com/the-intersection-of-marketing-seo-growth-strategies-for-succ-107-9/">the intersection of marketing seo growth strategies for succ</a> 
+<a href="https://madeleine-dore.com/the-rise-of-ai-in-newsrooms-transforming-journalism-in-2023-2/">the rise of ai in newsrooms transforming journalism in 2023 </a> 
+<a href="https://madeleine-dore.com/the-rise-of-ai-in-newsrooms-transforming-journalism-in-2023/">the rise of ai in newsrooms transforming journalism in 2023</a> 
 <a href="https://madeleine-dore.com/the-rise-of-ai-powered-apps-transforming-the-digital-landsca/">the rise of ai powered apps transforming the digital landsca</a> 
 <a href="https://madeleine-dore.com/the-rise-of-sustainable-fashion-how-eco-friendly-trends-are/">the rise of sustainable fashion how eco friendly trends are</a> 
 <a href="https://madeleine-dore.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-any-occ/">the ultimate guide to choosing the perfect watch for any occ</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://modernwritingdesk.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://modernwritingdesk.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
-<a href="https://modernwritingdesk.com/how-to-find-balanced-coverage-of-a-topic-2/">how to find balanced coverage of a topic 2</a> 
-<a href="https://modernwritingdesk.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
-<a href="https://modernwritingdesk.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://modernwritingdesk.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
-<a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
-<a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
-<a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 

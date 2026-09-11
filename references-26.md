@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/upi-safety-protecting-your-digital-payments/">upi safety protecting your digital payments</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/what-does-a-remote-seo-specialist-actually-do/">what does a remote seo specialist actually do</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
@@ -793,12 +802,3 @@
 <a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-trends-in-online-cas-2/">staying safe and responsible the latest trends in online cas</a> 
 <a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
 <a href="https://madeleine-dore.com/staying-safe-informed-and-updated-the-latest-in-web-tech-and-107-7/">staying safe informed and updated the latest in web tech and</a> 
-<a href="https://madeleine-dore.com/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
-<a href="https://madeleine-dore.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://madeleine-dore.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
-<a href="https://madeleine-dore.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://madeleine-dore.com/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://madeleine-dore.com/the-evolution-of-news-consumption-how-technology-is-reshapin/">the evolution of news consumption how technology is reshapin</a> 
-<a href="https://madeleine-dore.com/the-intersection-of-marketing-seo-growth-strategies-for-succ-107-9/">the intersection of marketing seo growth strategies for succ</a> 
-<a href="https://madeleine-dore.com/the-rise-of-ai-in-newsrooms-transforming-journalism-in-2023-2/">the rise of ai in newsrooms transforming journalism in 2023 </a> 
-<a href="https://madeleine-dore.com/the-rise-of-ai-in-newsrooms-transforming-journalism-in-2023/">the rise of ai in newsrooms transforming journalism in 2023</a> 

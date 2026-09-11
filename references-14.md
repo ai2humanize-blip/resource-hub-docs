@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://fabbusinesssolutions.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://fabbusinesssolutions.com/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://fabbusinesssolutions.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
 <a href="https://fabbusinesssolutions.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig-2/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://fabbusinesssolutions.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://fabbusinesssolutions.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
@@ -799,6 +802,3 @@
 <a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-crypt-28-5-2/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-crypt-28-5/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-every-28-5/">exploring essential digital tools online resources for every</a> 
-<a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-infor-28-5/">exploring essential digital tools online resources for infor</a> 
-<a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-moder-28-5-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-moder-28-5-3/">exploring essential digital tools online resources for moder</a> 
