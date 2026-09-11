@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://haomvc.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
 <a href="https://haomvc.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
 <a href="https://haomvc.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://haomvc.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://haomvc.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://haomvc.com/the-value-of-slow-careful-reading-a-quick-guide-2/">the value of slow careful reading a quick guide 2</a> 

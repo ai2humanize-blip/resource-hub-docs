@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://forotesis.com/the-impact-of-ai-on-modern-journalism-opportunities-and-chal/">the impact of ai on modern journalism opportunities and chal</a> 
+<a href="https://forotesis.com/the-impact-of-ai-on-news-reporting-current-trends-and-future-2/">the impact of ai on news reporting current trends and future</a> 
+<a href="https://forotesis.com/the-impact-of-ai-on-news-reporting-current-trends-and-future/">the impact of ai on news reporting current trends and future</a> 
 <a href="https://forotesis.com/the-rise-of-ai-in-news-reporting-opportunities-and-challenge/">the rise of ai in news reporting opportunities and challenge</a> 
 <a href="https://forotesis.com/the-rise-of-ai-powered-apps-transforming-our-digital-experie/">the rise of ai powered apps transforming our digital experie</a> 
 <a href="https://forotesis.com/the-ultimate-guide-to-casinos-without-spelpaus-top-brands-ti-96-10/">the ultimate guide to casinos without spelpaus top brands ti</a> 
@@ -799,6 +802,3 @@
 <a href="https://globespro.it.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
 <a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin-2/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 

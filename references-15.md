@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://fideleturfturf.it.com/exploring-the-best-independent-news-and-explainer-sites-for-28-6/">exploring the best independent news and explainer sites for </a> 
+<a href="https://fideleturfturf.it.com/exploring-the-best-independent-web-tech-and-crypto-content-s-28-6/">exploring the best independent web tech and crypto content s</a> 
+<a href="https://fideleturfturf.it.com/exploring-the-best-independent-web-tech-and-crypto-resources-28-6-2/">exploring the best independent web tech and crypto resources</a> 
 <a href="https://fideleturfturf.it.com/exploring-the-best-independent-web-tech-and-crypto-resources-28-6-3/">exploring the best independent web tech and crypto resources</a> 
 <a href="https://fideleturfturf.it.com/exploring-the-best-independent-web-tech-and-crypto-resources-28-6/">exploring the best independent web tech and crypto resources</a> 
 <a href="https://fideleturfturf.it.com/exploring-the-best-independent-web-tech-content-resources-28-6/">exploring the best independent web tech content resources 28</a> 
@@ -799,6 +802,3 @@
 <a href="https://forotesis.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
 <a href="https://forotesis.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
 <a href="https://forotesis.com/the-future-of-news-how-ai-and-blockchain-are-transforming-jo/">the future of news how ai and blockchain are transforming jo</a> 
-<a href="https://forotesis.com/the-impact-of-ai-on-modern-journalism-opportunities-and-chal/">the impact of ai on modern journalism opportunities and chal</a> 
-<a href="https://forotesis.com/the-impact-of-ai-on-news-reporting-current-trends-and-future-2/">the impact of ai on news reporting current trends and future</a> 
-<a href="https://forotesis.com/the-impact-of-ai-on-news-reporting-current-trends-and-future/">the impact of ai on news reporting current trends and future</a> 
