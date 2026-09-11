@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
+<a href="https://modernwritingdesk.com/how-to-organize-the-information-you-find-online-the-basics-2/">how to organize the information you find online the basics 2</a> 
+<a href="https://modernwritingdesk.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
+<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it-2/">how to read the news without getting overwhelmed and why it </a> 
+<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-simply/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://modernwritingdesk.com/how-to-spot-low-quality-content-online-a-quick-guide-2/">how to spot low quality content online a quick guide 2</a> 
 <a href="https://modernwritingdesk.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
 <a href="https://modernwritingdesk.com/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
@@ -793,12 +802,3 @@
 <a href="https://myclassnews.it.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
 <a href="https://myclassnews.it.com/how-to-maximize-productivity-with-the-best-daily-planner-app/">how to maximize productivity with the best daily planner app</a> 
 <a href="https://myclassnews.it.com/how-to-optimize-your-smartphone-for-maximum-productivity-in/">how to optimize your smartphone for maximum productivity in</a> 
-<a href="https://myclassnews.it.com/how-to-play-at-casinos-without-spelpaus-restrictions/">how to play at casinos without spelpaus restrictions</a> 
-<a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
-<a href="https://myclassnews.it.com/how-to-safely-follow-an-app-that-s-still-in-development-2/">how to safely follow an app that s still in development 2</a> 
-<a href="https://myclassnews.it.com/how-to-safely-follow-an-app-that-s-still-in-development/">how to safely follow an app that s still in development</a> 
-<a href="https://myclassnews.it.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
-<a href="https://myclassnews.it.com/how-to-stay-ahead-with-the-latest-sports-news-and-analysis/">how to stay ahead with the latest sports news and analysis</a> 

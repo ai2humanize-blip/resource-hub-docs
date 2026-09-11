@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://globespro.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://globespro.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://globespro.it.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
 <a href="https://globespro.it.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
 <a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin-2/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
@@ -799,6 +802,3 @@
 <a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
 <a href="https://haomvc.com/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 
-<a href="https://haomvc.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://haomvc.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://haomvc.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 

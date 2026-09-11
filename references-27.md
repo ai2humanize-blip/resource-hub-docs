@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://madeleine-dore.com/the-rise-of-ai-powered-apps-transforming-the-digital-landsca/">the rise of ai powered apps transforming the digital landsca</a> 
+<a href="https://madeleine-dore.com/the-rise-of-sustainable-fashion-how-eco-friendly-trends-are/">the rise of sustainable fashion how eco friendly trends are</a> 
+<a href="https://madeleine-dore.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-any-occ/">the ultimate guide to choosing the perfect watch for any occ</a> 
+<a href="https://madeleine-dore.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-every-o-107-9/">the ultimate guide to choosing the perfect watch for every o</a> 
+<a href="https://madeleine-dore.com/the-ultimate-guide-to-choosing-the-perfect-wine-for-any-occa/">the ultimate guide to choosing the perfect wine for any occa</a> 
+<a href="https://madeleine-dore.com/the-ultimate-guide-to-mastering-web-tech-content-for-success-107-7/">the ultimate guide to mastering web tech content for success</a> 
+<a href="https://madeleine-dore.com/the-ultimate-roundup-guides-reviews-and-how-tos-for-cryptocu-107-8/">the ultimate roundup guides reviews and how tos for cryptocu</a> 
+<a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
 <a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
 <a href="https://madeleine-dore.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://madeleine-dore.com/transformative-tech-ai-apps-cryptocurrency-and-blockchain-gu-107-8/">transformative tech ai apps cryptocurrency and blockchain gu</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
 <a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
 <a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://modernwritingdesk.com/how-to-organize-the-information-you-find-online-the-basics-2/">how to organize the information you find online the basics 2</a> 
-<a href="https://modernwritingdesk.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it-2/">how to read the news without getting overwhelmed and why it </a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-simply/">how to read the news without getting overwhelmed explained s</a> 
