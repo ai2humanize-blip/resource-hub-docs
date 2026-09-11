@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://linkstack-7cg.pages.dev/5-essential-strategies-for-career-growth-and-professional-de">5 essential strategies for career growth and professional de</a> 
+<a href="https://linkstack-7cg.pages.dev/a-closer-look-at-a-simple-framework-for-researching-any-topi">a closer look at a simple framework for researching any topi</a> 
+<a href="https://linkstack-7cg.pages.dev/a-closer-look-at-building-a-healthy-daily-reading-habit">a closer look at building a healthy daily reading habit</a> 
+<a href="https://linkstack-7cg.pages.dev/a-closer-look-at-how-to-compare-sources-on-the-same-story">a closer look at how to compare sources on the same story</a> 
+<a href="https://linkstack-7cg.pages.dev/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://linkstack-7cg.pages.dev/a-closer-look-at-how-to-get-the-most-out-of-online-guides">a closer look at how to get the most out of online guides</a> 
+<a href="https://linkstack-7cg.pages.dev/a-closer-look-at-how-to-organize-the-information-you-find-on">a closer look at how to organize the information you find on</a> 
+<a href="https://linkstack-7cg.pages.dev/a-closer-look-at-how-to-read-the-news-without-getting-overwh">a closer look at how to read the news without getting overwh</a> 
+<a href="https://linkstack-7cg.pages.dev/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy">a closer look at how to tell if a website is trustworthy</a> 
 <a href="https://linkstack-7cg.pages.dev/a-closer-look-at-simple-habits-of-a-smart-internet-reader">a closer look at simple habits of a smart internet reader</a> 
 <a href="https://linkstack-7cg.pages.dev/a-closer-look-at-why-context-matters-when-reading-online">a closer look at why context matters when reading online</a> 
 <a href="https://linkstack-7cg.pages.dev/aavot-app-the-honest-current-status">aavot app the honest current status</a> 
@@ -793,12 +802,3 @@
 <a href="https://linkstackaiteam.blob.core.windows.net/links/getting-the-value-of-slow-careful-reading-right.html">getting the value of slow careful reading right</a> 
 <a href="https://linkstackaiteam.blob.core.windows.net/links/getting-what-makes-an-explainer-article-genuinely-useful-rig.html">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://linkstackaiteam.blob.core.windows.net/links/getting-why-primary-sources-matter-and-how-to-find-them-righ.html">getting why primary sources matter and how to find them righ</a> 
-<a href="https://linkstackaiteam.blob.core.windows.net/links/how-blockchain-actually-works-in-plain-terms.html">how blockchain actually works in plain terms</a> 
-<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-avoid-misinformation-and-hype-a-practical-guide.html">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-avoid-misinformation-and-hype-and-why-it-matters.html">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-bookmark-and-revisit-useful-resources-the-basics.html">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-build-a-personal-reading-list.html">how to build a personal reading list</a> 
-<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
-<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-compare-sources-on-the-same-story-a-quick-guide.html">how to compare sources on the same story a quick guide</a> 
-<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-compare-sources-on-the-same-story-and-why-it-matters.html">how to compare sources on the same story and why it matters</a> 
-<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-compare-sources-on-the-same-story-the-basics.html">how to compare sources on the same story the basics</a> 

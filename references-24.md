@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://linkstackaiteam.blob.core.windows.net/links/how-blockchain-actually-works-in-plain-terms.html">how blockchain actually works in plain terms</a> 
+<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-avoid-misinformation-and-hype-a-practical-guide.html">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-avoid-misinformation-and-hype-and-why-it-matters.html">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-bookmark-and-revisit-useful-resources-the-basics.html">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-build-a-personal-reading-list.html">how to build a personal reading list</a> 
+<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
+<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-compare-sources-on-the-same-story-a-quick-guide.html">how to compare sources on the same story a quick guide</a> 
+<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-compare-sources-on-the-same-story-and-why-it-matters.html">how to compare sources on the same story and why it matters</a> 
+<a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-compare-sources-on-the-same-story-the-basics.html">how to compare sources on the same story the basics</a> 
 <a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-compare-sources-on-the-same-story.html">how to compare sources on the same story</a> 
 <a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-evaluate-online-reviews-and-recommendations-a-quick-g.html">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://linkstackaiteam.blob.core.windows.net/links/how-to-evaluate-online-reviews-and-recommendations-explained.html">how to evaluate online reviews and recommendations explained</a> 
@@ -793,12 +802,3 @@
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-read-32-10/">mastering business finance productivity a comprehensive read</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-roun-32-10/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-habits-and-32-10/">mastering business finance productivity essential habits and</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-online-rea-32-10/">mastering business finance productivity essential online rea</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-online-ski-32-10/">mastering business finance productivity essential online ski</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-online-str-32-10-2/">mastering business finance productivity essential online str</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-online-str-32-10/">mastering business finance productivity essential online str</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-reading-an-32-10-2/">mastering business finance productivity essential reading an</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-reading-an-32-10/">mastering business finance productivity essential reading an</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-resources-32-10/">mastering business finance productivity essential resources </a> 

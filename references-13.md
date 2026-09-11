@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://emiamedical.com/recognizing-credible-experts-online-2/">recognizing credible experts online 2</a> 
+<a href="https://emiamedical.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
+<a href="https://emiamedical.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
 <a href="https://emiamedical.com/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
 <a href="https://emiamedical.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
 <a href="https://emiamedical.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabbusinesssolutions.com/harnessing-the-power-of-ai-driven-apps-for-a-smarter-digital/">harnessing the power of ai driven apps for a smarter digital</a> 
 <a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-revolutionizing-daily-life-in-the-di/">how ai powered apps are revolutionizing daily life in the di</a> 
 <a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
-<a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-transforming-our-digital-lives-2/">how ai powered apps are transforming our digital lives 2</a> 
-<a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
-<a href="https://fabbusinesssolutions.com/how-current-news-impacts-your-daily-life-a-comprehensive-ana/">how current news impacts your daily life a comprehensive ana</a> 
