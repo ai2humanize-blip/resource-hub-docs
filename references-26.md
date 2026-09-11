@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
@@ -793,12 +802,3 @@
 <a href="https://madeleine-dore.com/revolutionizing-daily-life-ai-powered-apps-digital-wellness-107-8/">revolutionizing daily life ai powered apps digital wellness </a> 
 <a href="https://madeleine-dore.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
 <a href="https://madeleine-dore.com/staying-informed-how-to-navigate-today-s-news-landscape-for/">staying informed how to navigate today s news landscape for</a> 
-<a href="https://madeleine-dore.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga-107-7/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://madeleine-dore.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://madeleine-dore.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-in-online-casino-and/">staying safe and responsible the latest in online casino and</a> 
-<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-trends-in-online-cas-2/">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://madeleine-dore.com/staying-safe-informed-and-updated-the-latest-in-web-tech-and-107-7/">staying safe informed and updated the latest in web tech and</a> 

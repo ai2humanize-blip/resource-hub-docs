@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://haomvc.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://haomvc.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
 <a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://haomvc.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
 <a href="https://haomvc.com/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 
@@ -799,6 +802,3 @@
 <a href="https://homaryreviews.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
 <a href="https://homaryreviews.com/staying-informed-in-real-time-the-rise-of-dynamic-news-platf/">staying informed in real time the rise of dynamic news platf</a> 
 <a href="https://homaryreviews.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga-101-3/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://homaryreviews.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://homaryreviews.com/staying-safe-and-responsible-the-latest-in-online-casino-and/">staying safe and responsible the latest in online casino and</a> 
-<a href="https://homaryreviews.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 

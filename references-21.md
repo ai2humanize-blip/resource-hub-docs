@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://labmagickite.com/mastering-app-organization-tips-for-a-clutter-free-digital-l/">mastering app organization tips for a clutter free digital l</a> 
+<a href="https://labmagickite.com/mastering-app-overload-how-to-curate-your-digital-life-for-m/">mastering app overload how to curate your digital life for m</a> 
+<a href="https://labmagickite.com/mastering-business-finance-a-guide-to-managing-personal-and/">mastering business finance a guide to managing personal and</a> 
 <a href="https://labmagickite.com/mastering-business-finance-and-productivity-a-comprehensive-104-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://labmagickite.com/mastering-business-finance-productivity-a-comprehensive-roun-104-8/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://labmagickite.com/mastering-business-finance-productivity-essential-resources-104-8/">mastering business finance productivity essential resources </a> 
@@ -799,6 +802,3 @@
 <a href="https://lapzoocom.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://lapzoocom.it.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://lapzoocom.it.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://lapzoocom.it.com/what-to-know-about-making-sense-of-complex-topics-online-2/">what to know about making sense of complex topics online 2</a> 
-<a href="https://lapzoocom.it.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://lapzoocom.it.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
