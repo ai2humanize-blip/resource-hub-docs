@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://madeleine-dore.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
+<a href="https://madeleine-dore.com/transformative-tech-ai-apps-cryptocurrency-and-blockchain-gu-107-8/">transformative tech ai apps cryptocurrency and blockchain gu</a> 
+<a href="https://madeleine-dore.com/transforming-daily-life-and-sports-ai-apps-and-data-driven-i-107-8/">transforming daily life and sports ai apps and data driven i</a> 
+<a href="https://madeleine-dore.com/transforming-daily-life-and-work-the-impact-of-ai-driven-app-107-10/">transforming daily life and work the impact of ai driven app</a> 
+<a href="https://madeleine-dore.com/transforming-your-digital-life-top-apps-for-productivity-and/">transforming your digital life top apps for productivity and</a> 
+<a href="https://madeleine-dore.com/turf-pour-d-butants-par-o-commencer/">turf pour d butants par o commencer</a> 
+<a href="https://madeleine-dore.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -793,12 +802,3 @@
 <a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-simply/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://modernwritingdesk.com/how-to-spot-low-quality-content-online-a-quick-guide-2/">how to spot low quality content online a quick guide 2</a> 
-<a href="https://modernwritingdesk.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://modernwritingdesk.com/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
-<a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://modernwritingdesk.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
-<a href="https://modernwritingdesk.com/le-quint-comprendre-le-pari-hippique-le-plus-suivi/">le quint comprendre le pari hippique le plus suivi</a> 
-<a href="https://modernwritingdesk.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 

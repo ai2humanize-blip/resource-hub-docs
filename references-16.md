@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://forotesis.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
+<a href="https://forotesis.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://forotesis.com/the-future-of-news-how-ai-and-blockchain-are-transforming-jo/">the future of news how ai and blockchain are transforming jo</a> 
 <a href="https://forotesis.com/the-impact-of-ai-on-modern-journalism-opportunities-and-chal/">the impact of ai on modern journalism opportunities and chal</a> 
 <a href="https://forotesis.com/the-impact-of-ai-on-news-reporting-current-trends-and-future-2/">the impact of ai on news reporting current trends and future</a> 
 <a href="https://forotesis.com/the-impact-of-ai-on-news-reporting-current-trends-and-future/">the impact of ai on news reporting current trends and future</a> 
@@ -799,6 +802,3 @@
 <a href="https://globespro.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
 <a href="https://globespro.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://globespro.it.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
-<a href="https://globespro.it.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin-2/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 

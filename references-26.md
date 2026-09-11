@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
 <a href="https://ls-discover-the-be-msroww1b.firebaseapp.com/">ls-discover-the-be-msroww1b.firebaseapp.com</a> 
 <a href="https://ls-discover-the-be-msroww1b.web.app/">ls-discover-the-be-msroww1b.web.app</a> 
 <a href="https://ls-discover-the-benefits-of-a-minimalist-msrgjuou-dot-stnews-489814.uc.r.appspot.com/">ls-discover-the-benefits-of-a-minimalist-msrgjuou-dot-stnews-489814.uc.r.appspot.com</a> 
@@ -793,12 +802,3 @@
 <a href="https://madeleine-dore.com/the-ultimate-roundup-guides-reviews-and-how-tos-for-cryptocu-107-8/">the ultimate roundup guides reviews and how tos for cryptocu</a> 
 <a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://madeleine-dore.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://madeleine-dore.com/transformative-tech-ai-apps-cryptocurrency-and-blockchain-gu-107-8/">transformative tech ai apps cryptocurrency and blockchain gu</a> 
-<a href="https://madeleine-dore.com/transforming-daily-life-and-sports-ai-apps-and-data-driven-i-107-8/">transforming daily life and sports ai apps and data driven i</a> 
-<a href="https://madeleine-dore.com/transforming-daily-life-and-work-the-impact-of-ai-driven-app-107-10/">transforming daily life and work the impact of ai driven app</a> 
-<a href="https://madeleine-dore.com/transforming-your-digital-life-top-apps-for-productivity-and/">transforming your digital life top apps for productivity and</a> 
-<a href="https://madeleine-dore.com/turf-pour-d-butants-par-o-commencer/">turf pour d butants par o commencer</a> 
-<a href="https://madeleine-dore.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
