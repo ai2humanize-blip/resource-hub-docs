@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://feetfinder.uk.net/how-to-evaluate-online-reviews-and-recommendations-the-basics/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://feetfinder.uk.net/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
+<a href="https://feetfinder.uk.net/how-to-spot-low-quality-content-online-2/">how to spot low quality content online 2</a> 
+<a href="https://feetfinder.uk.net/how-to-spot-low-quality-content-online-a-practical-guide-2/">how to spot low quality content online a practical guide 2</a> 
+<a href="https://feetfinder.uk.net/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://feetfinder.uk.net/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://feetfinder.uk.net/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://feetfinder.uk.net/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://feetfinder.uk.net/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
+<a href="https://feetfinder.uk.net/simple-daily-habits-for-healthier-feet/">simple daily habits for healthier feet</a> 
+<a href="https://feetfinder.uk.net/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
+<a href="https://feetfinder.uk.net/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://feetfinder.uk.net/walking-for-wellbeing-getting-started-the-right-way/">walking for wellbeing getting started the right way</a> 
+<a href="https://feetfinder.uk.net/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://feetfinder.uk.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://feetfinder.uk.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://feetfinder.uk.net/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
+<a href="https://feetfinder.uk.net/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
@@ -782,23 +802,3 @@
 <a href="https://forotesis.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
 <a href="https://forotesis.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://forotesis.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://forotesis.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://forotesis.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://forotesis.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://forotesis.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://forotesis.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
-<a href="https://forotesis.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
-<a href="https://forotesis.com/how-ai-driven-apps-are-transforming-everyday-life-and-work/">how ai driven apps are transforming everyday life and work</a> 
-<a href="https://forotesis.com/how-ai-powered-apps-are-revolutionizing-daily-life-and-produ/">how ai powered apps are revolutionizing daily life and produ</a> 
-<a href="https://forotesis.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
-<a href="https://forotesis.com/how-recent-developments-in-ai-are-reshaping-the-news-landsca/">how recent developments in ai are reshaping the news landsca</a> 
-<a href="https://forotesis.com/how-smart-apps-are-transforming-daily-life-a-deep-dive-into/">how smart apps are transforming daily life a deep dive into</a> 
-<a href="https://forotesis.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://forotesis.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://forotesis.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://forotesis.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
-<a href="https://forotesis.com/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
-<a href="https://forotesis.com/how-to-compare-sources-on-the-same-story-3/">how to compare sources on the same story 3</a> 
-<a href="https://forotesis.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://forotesis.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
-<a href="https://forotesis.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide/">how to evaluate online reviews and recommendations a quick g</a> 

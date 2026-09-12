@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmWVyRaQ17RNApRBZgtUvn7jKiNVJCPhdLPd8tjSPCFxdX">QmWVyRaQ17RNApRBZgtUvn7jKiNVJCPhdLPd8tjSPCFxdX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWcx4NDDs2ifF5YoLuSjeC4MAfg42RJGaKdstkt8DXmsZ">QmWcx4NDDs2ifF5YoLuSjeC4MAfg42RJGaKdstkt8DXmsZ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWdd9Qzpgr1kesNVUbsbfWCaNRaCstgkNQ9KD5CvKEPeP">QmWdd9Qzpgr1kesNVUbsbfWCaNRaCstgkNQ9KD5CvKEPeP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWfDwsezjZcYWYDyTG26iVwpLKtkKHKAEA9nRR2EZav6f">QmWfDwsezjZcYWYDyTG26iVwpLKtkKHKAEA9nRR2EZav6f</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWhNr4QUMfJDgF15YdqK8yJgnAcmjo2GXvMwBxcBhCni4">QmWhNr4QUMfJDgF15YdqK8yJgnAcmjo2GXvMwBxcBhCni4</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWqFCSRfr7SCnTSL6xqsVfSm2Zp363FkFCTxdakvJg3kU">QmWqFCSRfr7SCnTSL6xqsVfSm2Zp363FkFCTxdakvJg3kU</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWqm2F9QbKhetquJ4i6RxfqMDVievw674jbtuxQ18cYqd">QmWqm2F9QbKhetquJ4i6RxfqMDVievw674jbtuxQ18cYqd</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWtPJZzdV8t91Wuosb3HMMyVnNrvzrJqCdXdkCZHrx4ii">QmWtPJZzdV8t91Wuosb3HMMyVnNrvzrJqCdXdkCZHrx4ii</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmWz7Rsamzi1Y1grkx2fDY5uzGu8CRYeseFsVySLJWPwsH">QmWz7Rsamzi1Y1grkx2fDY5uzGu8CRYeseFsVySLJWPwsH</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmX2FGeJGN49xorEdPwzywvFnKZ2BwkwgJiZKnNAQBYAdS">QmX2FGeJGN49xorEdPwzywvFnKZ2BwkwgJiZKnNAQBYAdS</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmX9ukeqpt4Ch21evfvoUWeKsG1NKSd3T8FD7oxaxQ1tFF">QmX9ukeqpt4Ch21evfvoUWeKsG1NKSd3T8FD7oxaxQ1tFF</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmX9xuPWBpnGT7Ku3P6tQceMkEPX43X9j1ieNMWB1pdZtj">QmX9xuPWBpnGT7Ku3P6tQceMkEPX43X9j1ieNMWB1pdZtj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXSZ2tsNiqHheidwzvxwxTQT5WYFUPQGHt73gvx3visg2">QmXSZ2tsNiqHheidwzvxwxTQT5WYFUPQGHt73gvx3visg2</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp">QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA">QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW">QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXrwtRqLoHJXTuExRKjzTqNzfSAJMUNqEtmN9gkxrSw8z">QmXrwtRqLoHJXTuExRKjzTqNzfSAJMUNqEtmN9gkxrSw8z</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw">QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp">QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa">QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc">QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw">QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7">QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7</a> 
@@ -536,6 +556,7 @@
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-modern-professi-53-10/">essential digital tools online resources for modern professi</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-modern-professi-53-5/">essential digital tools online resources for modern professi</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-news-and-respon-53-5/">essential digital tools online resources for news and respon</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-smart-internet-53-5/">essential digital tools online resources for smart internet </a> 
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-smart-navigatio-53-5/">essential digital tools online resources for smart navigatio</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-smarter-interne-53-10/">essential digital tools online resources for smarter interne</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-virginia-childh-53-5/">essential digital tools online resources for virginia childh</a> 
@@ -627,6 +648,7 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-9/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-53-4/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-crypto-essential-terms-news-interpretation-and-wal-53-8/">mastering crypto essential terms news interpretation and wal</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-literacy-essential-tools-online-resources-53-5/">mastering digital literacy essential tools online resources </a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-privacy-how-to-safeguard-your-data-in-the/">mastering digital privacy how to safeguard your data in the</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-3/">mastering digital tools online resources a comprehensive gui</a> 
@@ -642,6 +664,7 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-53-8/">mastering marketing seo growth your guide to building a succ</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-mobile-apps-how-to-optimize-your-digital-experienc/">mastering mobile apps how to optimize your digital experienc</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-53-6/">mastering modern communication a deep dive into web tech con</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-online-reading-essential-digital-tools-resources-f-53-5/">mastering online reading essential digital tools resources f</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-personal-finance-business-and-marketing-a-comprehe-53-4/">mastering personal finance business and marketing a comprehe</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-personal-finance-for-business-growth-a-marketing-p/">mastering personal finance for business growth a marketing p</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-the-art-of-app-management-a-modern-digital-surviva/">mastering the art of app management a modern digital surviva</a> 
@@ -779,26 +802,3 @@
 <a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour-2/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-understanding-digital-literacy-2/">what to know about understanding digital literacy 2</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-explainer-journalism-web-and-content-matter-in-today-s-w-53-6/">why explainer journalism web and content matter in today s w</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
-<a href="https://labmagickite.com/5-emerging-fashion-and-lifestyle-trends-to-elevate-your-styl/">5 emerging fashion and lifestyle trends to elevate your styl</a> 
-<a href="https://labmagickite.com/5-essential-tips-for-navigating-modern-careers-and-finding-y/">5 essential tips for navigating modern careers and finding y</a> 
-<a href="https://labmagickite.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-build-a-personal-reading-list-3/">a closer look at how to build a personal reading list 3</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 

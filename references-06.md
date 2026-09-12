@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-the-difference-between-skimming-and-deep-reading-online-right/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-what-makes-an-explainer-article-genuinely-useful-right-568e87c1/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-what-makes-an-explainer-article-genuinely-useful-right/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-ai-driven-apps-are-transforming-daily-life-and-work/">how ai driven apps are transforming daily life and work</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-ai-driven-apps-are-transforming-our-digital-lives/">how ai driven apps are transforming our digital lives</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-ai-is-transforming-news-consumption-trends-challenges-and-opportunities/">how ai is transforming news consumption trends challenges an</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-ai-powered-tools-are-transforming-everyday-digital-experiences/">how ai powered tools are transforming everyday digital exper</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-build-a-personal-reading-list-f5b67799/">how to build a personal reading list f5b67799</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-compare-sources-on-the-same-story-52277761/">how to compare sources on the same story 52277761</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide/">how to evaluate online reviews and recommendations a quick g</a> 
@@ -785,20 +802,3 @@
 <a href="https://casacours.uk.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
 <a href="https://casacours.uk.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
 <a href="https://casacours.uk.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://casacours.uk.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://casacours.uk.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://casacours.uk.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://casacours.uk.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
-<a href="https://casacours.uk.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide-2/">how to find balanced coverage of a topic a quick guide 2</a> 
-<a href="https://casacours.uk.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://casacours.uk.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
-<a href="https://casacours.uk.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://casacours.uk.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://casacours.uk.com/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
-<a href="https://casacours.uk.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
-<a href="https://casacours.uk.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
-<a href="https://casacours.uk.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://casacours.uk.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://casacours.uk.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://casacours.uk.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://casacours.uk.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 

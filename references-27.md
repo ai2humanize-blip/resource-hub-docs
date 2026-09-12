@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://madeleine-dore.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://madeleine-dore.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://madeleine-dore.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://madeleine-dore.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://madeleine-dore.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-useful/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://madeleine-dore.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://madeleine-dore.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://madeleine-dore.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://madeleine-dore.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
+<a href="https://madeleine-dore.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://madeleine-dore.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://madeleine-dore.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-o/">breaking down the latest news in depth analysis and expert o</a> 
+<a href="https://madeleine-dore.com/breaking-down-today-s-top-news-in-depth-analysis-and-expert/">breaking down today s top news in depth analysis and expert</a> 
+<a href="https://madeleine-dore.com/breaking-news-updates/">breaking news updates</a> 
+<a href="https://madeleine-dore.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
+<a href="https://madeleine-dore.com/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
+<a href="https://madeleine-dore.com/business-finance-productivity-key-strategies-for-success-in-107-10/">business finance productivity key strategies for success in </a> 
+<a href="https://madeleine-dore.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
+<a href="https://madeleine-dore.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
+<a href="https://madeleine-dore.com/comprehensive-guides-reviews-and-how-tos-empowering-your-dig-107-8/">comprehensive guides reviews and how tos empowering your dig</a> 
+<a href="https://madeleine-dore.com/decoding-today-s-top-news-expert-analysis-and-insights/">decoding today s top news expert analysis and insights</a> 
+<a href="https://madeleine-dore.com/demystifying-cryptocurrency-a-beginner-s-guide-to-bitcoin-an/">demystifying cryptocurrency a beginner s guide to bitcoin an</a> 
+<a href="https://madeleine-dore.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne-107-7/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
 <a href="https://madeleine-dore.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-107-7/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://madeleine-dore.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-g-107-7/">demystifying cryptocurrency bitcoin and blockchain a fresh g</a> 
 <a href="https://madeleine-dore.com/discover-the-best-digital-tools-online-resources-for-success-107-1/">discover the best digital tools online resources for success</a> 
@@ -779,26 +802,3 @@
 <a href="https://mellifluous-fudge-015eea.netlify.app/what-to-know-about-how-to-avoid-misinformation-and-hype.html">what to know about how to avoid misinformation and hype</a> 
 <a href="https://mellifluous-sprite-eaa5bc.netlify.app/getting-building-a-healthy-daily-reading-habit-right.html">getting building a healthy daily reading habit right</a> 
 <a href="https://merry-kelpie-35d38d.netlify.app/how-to-safely-follow-an-app-that-s-still-in-development.html">how to safely follow an app that s still in development</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u-2/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://metromsk.se.net/best-moscow-neighbourhoods-to-explore/">best moscow neighbourhoods to explore</a> 
-<a href="https://metromsk.se.net/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://metromsk.se.net/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://metromsk.se.net/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
-<a href="https://metromsk.se.net/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
-<a href="https://metromsk.se.net/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
-<a href="https://metromsk.se.net/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://metromsk.se.net/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://metromsk.se.net/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://metromsk.se.net/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://metromsk.se.net/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
