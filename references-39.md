@@ -2,6 +2,36 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://thecannamachine.com/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
+<a href="https://thecannamachine.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://thecannamachine.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://thecannamachine.com/the-difference-between-skimming-and-deep-reading-online-a-pr-2/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://thecannamachine.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://thecannamachine.com/the-difference-between-skimming-and-deep-reading-online-a-qu-2/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://thecannamachine.com/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://thecannamachine.com/the-difference-between-skimming-and-deep-reading-online-and-why-it-matters/">the difference between skimming and deep reading online and </a> 
+<a href="https://thecannamachine.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://thecannamachine.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://thecannamachine.com/the-future-of-ai-in-news-reporting-current-trends-and-analys/">the future of ai in news reporting current trends and analys</a> 
+<a href="https://thecannamachine.com/the-future-of-apps-how-ai-and-ar-are-transforming-the-digita/">the future of apps how ai and ar are transforming the digita</a> 
+<a href="https://thecannamachine.com/the-rise-of-ai-powered-apps-transforming-our-digital-experie-2/">the rise of ai powered apps transforming our digital experie</a> 
+<a href="https://thecannamachine.com/the-rise-of-ai-powered-apps-transforming-our-digital-experie/">the rise of ai powered apps transforming our digital experie</a> 
+<a href="https://thecannamachine.com/the-rise-of-ai-powered-apps-transforming-our-digital-lives/">the rise of ai powered apps transforming our digital lives</a> 
+<a href="https://thecannamachine.com/the-rise-of-sustainable-fashion-how-to-embrace-eco-friendly/">the rise of sustainable fashion how to embrace eco friendly</a> 
+<a href="https://thecannamachine.com/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
+<a href="https://thecannamachine.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://thecannamachine.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
+<a href="https://thecannamachine.com/transforming-daily-life-how-ai-driven-apps-are-reshaping-our/">transforming daily life how ai driven apps are reshaping our</a> 
+<a href="https://thecannamachine.com/turf-pour-d-butants-par-o-commencer/">turf pour d butants par o commencer</a> 
+<a href="https://thecannamachine.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
+<a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://thecannamachine.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -772,33 +802,3 @@
 <a href="https://wondrous-chebakia-68bb50.netlify.app/navigating-the-world-of-cryptocurrency-bitcoin-blockchain-an.html">navigating the world of cryptocurrency bitcoin blockchain an</a> 
 <a href="https://wondrous-mooncake-84cb48.netlify.app/the-basics-of-staying-safe-while-browsing.html">the basics of staying safe while browsing</a> 
 <a href="https://write.as/contentisblocked">contentisblocked</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=1">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=2">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=3">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=4">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=5">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=6">amother</a> 
-<a href="https://www.google.com/maps/d/view?mid=1gMgxW-dnuRIIbLNnuQ52AKvS7lMd8NE">view</a> 
-<a href="https://www.instapaper.com/p/curatedreads1m">curatedreads1m</a> 
-<a href="https://www.statshow.com/www/2forksevents.com">2forksevents.com</a> 
-<a href="https://www.statshow.com/www/360sportnews.com">360sportnews.com</a> 
-<a href="https://www.statshow.com/www/analyzingmarket.com">analyzingmarket.com</a> 
-<a href="https://www.statshow.com/www/areyoufashion.com">areyoufashion.com</a> 
-<a href="https://www.statshow.com/www/artpromptsgenerator.org">artpromptsgenerator.org</a> 
-<a href="https://www.statshow.com/www/baginda168.gb.net">baginda168.gb.net</a> 
-<a href="https://www.statshow.com/www/bitadvent.com">bitadvent.com</a> 
-<a href="https://www.statshow.com/www/bitcoincasinosnews.com">bitcoincasinosnews.com</a> 
-<a href="https://www.statshow.com/www/bitcoindigital.info">bitcoindigital.info</a> 
-<a href="https://www.statshow.com/www/bitcoinlogical.com">bitcoinlogical.com</a> 
-<a href="https://www.statshow.com/www/bitcoinprime.info">bitcoinprime.info</a> 
-<a href="https://www.statshow.com/www/bitjackpot.de.com">bitjackpot.de.com</a> 
-<a href="https://www.statshow.com/www/blackpearlbitcoin.com">blackpearlbitcoin.com</a> 
-<a href="https://www.statshow.com/www/blocklist.co.kr">blocklist.co.kr</a> 
-<a href="https://www.statshow.com/www/boostelearning.com">boostelearning.com</a> 
-<a href="https://www.statshow.com/www/brightstartnews.com">brightstartnews.com</a> 
-<a href="https://www.statshow.com/www/btccasinonews.com">btccasinonews.com</a> 
-<a href="https://www.statshow.com/www/coinculb.com">coinculb.com</a> 
-<a href="https://www.statshow.com/www/coinnews.de.com">coinnews.de.com</a> 
-<a href="https://www.statshow.com/www/coinpric.com">coinpric.com</a> 
-<a href="https://www.statshow.com/www/conisec.com">conisec.com</a> 
-<a href="https://www.statshow.com/www/cplemaire.co">cplemaire.co</a> 
