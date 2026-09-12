@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bitslots.de.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://bloghold.com.de/gindex.html">gindex</a> 
+<a href="https://bloghold.com.de/picks.html">picks</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-beginners-guide-to-understanding-online-casino-terms-and-conditions/">a beginners guide to understanding online casino terms and c</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-bookmark-and-revisit-useful-resources/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-evaluate-online-reviews-and-recommendations/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-practical-guide-to-booking-budget-travel-that-saves-real-money/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-the-basics/">a simple framework for researching any topic online the basi</a> 
+<a href="https://boostelearning.mataroa.blog/blog/boosting-your-digital-life-top-apps-for-enhanced-productivity-and-entertainment/">boosting your digital life top apps for enhanced productivit</a> 
+<a href="https://boostelearning.mataroa.blog/blog/breaking-down-todays-top-news-expert-analysis-and-insights/">breaking down todays top news expert analysis and insights</a> 
+<a href="https://boostelearning.mataroa.blog/blog/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
+<a href="https://boostelearning.mataroa.blog/blog/crypto-security-protecting-your-wallet-keys-and-funds/">crypto security protecting your wallet keys and funds</a> 
+<a href="https://boostelearning.mataroa.blog/blog/daily-news-briefing/">daily news briefing</a> 
+<a href="https://boostelearning.mataroa.blog/blog/demystifying-cryptocurrency-a-beginners-guide-to-bitcoin-and-blockchain/">demystifying cryptocurrency a beginners guide to bitcoin and</a> 
+<a href="https://boostelearning.mataroa.blog/blog/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners-b25f3aa2/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://boostelearning.mataroa.blog/blog/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://boostelearning.mataroa.blog/blog/digital-productivity-tools-and-habits-that-actually-work/">digital productivity tools and habits that actually work</a> 
 <a href="https://boostelearning.mataroa.blog/blog/discovering-the-best-apps-for-boosting-your-digital-life/">discovering the best apps for boosting your digital life</a> 
@@ -781,24 +802,3 @@
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://captainjackinterview.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
-<a href="https://casacours.uk.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
-<a href="https://casacours.uk.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://casacours.uk.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 

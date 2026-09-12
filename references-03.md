@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://alcobar85.xyz/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
+<a href="https://alcobar85.xyz/how-to-spot-low-quality-content-online-a-practical-guide-2/">how to spot low quality content online a practical guide 2</a> 
+<a href="https://alcobar85.xyz/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://alcobar85.xyz/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
+<a href="https://alcobar85.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://alcobar85.xyz/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://alcobar85.xyz/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://alcobar85.xyz/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://alcobar85.xyz/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://alcobar85.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://alcobar85.xyz/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
+<a href="https://alcobar85.xyz/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
 <a href="https://alcobar85.xyz/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
 <a href="https://alcobar85.xyz/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
 <a href="https://alcobar85.xyz/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
@@ -208,6 +220,7 @@
 <a href="https://algiamedical.com/mastering-marketing-seo-growth-strategies-for-success-77-9/">mastering marketing seo growth strategies for success 77 9</a> 
 <a href="https://algiamedical.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-77-9/">mastering marketing seo growth strategies for success in a c</a> 
 <a href="https://algiamedical.com/mastering-modern-life-business-finance-and-productivity-esse-77-10/">mastering modern life business finance and productivity esse</a> 
+<a href="https://algiamedical.com/mastering-online-information-guides-reviews-and-how-tos-for-77-8-2/">mastering online information guides reviews and how tos for </a> 
 <a href="https://algiamedical.com/mastering-online-information-guides-reviews-and-how-tos-for-77-8/">mastering online information guides reviews and how tos for </a> 
 <a href="https://algiamedical.com/mastering-online-information-guides-reviews-how-tos-for-savv-77-8-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://algiamedical.com/mastering-online-information-guides-reviews-how-tos-for-savv-77-8-3/">mastering online information guides reviews how tos for savv</a> 
@@ -215,7 +228,9 @@
 <a href="https://algiamedical.com/mastering-online-information-guides-reviews-how-tos-for-smar-77-8-2/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://algiamedical.com/mastering-online-information-guides-reviews-how-tos-for-smar-77-8-3/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://algiamedical.com/mastering-online-information-guides-reviews-how-tos-for-smar-77-8/">mastering online information guides reviews how tos for smar</a> 
+<a href="https://algiamedical.com/mastering-online-information-guides-reviews-how-tos-for-the-77-8/">mastering online information guides reviews how tos for the </a> 
 <a href="https://algiamedical.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-77-8/">mastering online reading guides reviews how tos for smart in</a> 
+<a href="https://algiamedical.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-77-8/">mastering online research guides reviews and how tos for sav</a> 
 <a href="https://algiamedical.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-77-8/">mastering online research guides reviews how tos for smart l</a> 
 <a href="https://algiamedical.com/mastering-online-research-guides-reviews-how-tos-for-smarter-77-8/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://algiamedical.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-77-8/">mastering online resources guides reviews how tos for smarte</a> 
@@ -491,12 +506,15 @@
 <a href="https://alientapereviews.com/mastering-business-finance-and-productivity-a-guide-to-smart-78-9/">mastering business finance and productivity a guide to smart</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-and-productivity-in-the-professio-78-9/">mastering business finance and productivity in the professio</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-and-productivity-your-ultimate-re-78-9/">mastering business finance and productivity your ultimate re</a> 
+<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-10/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-6/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-7/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-8/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-9/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-deep-dive-into-ind-78-9/">mastering business finance productivity a deep dive into ind</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-essential-online-str-78-9/">mastering business finance productivity essential online str</a> 
@@ -784,21 +802,3 @@
 <a href="https://app.zentrack.net/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
 <a href="https://app.zentrack.net/exploring-the-world-of-online-casinos-business-finance-and-p-25-2/">exploring the world of online casinos business finance and p</a> 
 <a href="https://app.zentrack.net/find-female-influencers/">find female influencers</a> 
-<a href="https://app.zentrack.net/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://app.zentrack.net/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://app.zentrack.net/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://app.zentrack.net/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://app.zentrack.net/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
-<a href="https://app.zentrack.net/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://app.zentrack.net/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://app.zentrack.net/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://app.zentrack.net/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://app.zentrack.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://app.zentrack.net/how-ai-and-machine-learning-are-revolutionizing-app-developm/">how ai and machine learning are revolutionizing app developm</a> 
-<a href="https://app.zentrack.net/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
-<a href="https://app.zentrack.net/how-ai-driven-apps-are-transforming-our-digital-lives/">how ai driven apps are transforming our digital lives</a> 
-<a href="https://app.zentrack.net/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
-<a href="https://app.zentrack.net/how-dailywatchreports-transforms-news-consumption-in-india/">how dailywatchreports transforms news consumption in india</a> 
-<a href="https://app.zentrack.net/how-html5-revolutionized-casual-browser-gaming-for-business-25-2/">how html5 revolutionized casual browser gaming for business </a> 
-<a href="https://app.zentrack.net/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
