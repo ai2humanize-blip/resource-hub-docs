@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://haomvc.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://haomvc.com/how-to-be-a-smarter-news-reader-in-2026/">how to be a smarter news reader in 2026</a> 
+<a href="https://haomvc.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://haomvc.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://haomvc.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://haomvc.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://haomvc.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-explained-2/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://haomvc.com/how-to-evaluate-online-reviews-and-recommendations-the-basic-2/">how to evaluate online reviews and recommendations the basic</a> 
@@ -793,12 +802,3 @@
 <a href="https://homaryreviews.com/navigating-the-future-understanding-cryptocurrency-bitcoin-a/">navigating the future understanding cryptocurrency bitcoin a</a> 
 <a href="https://homaryreviews.com/navigating-the-modern-news-landscape-trends-ai-and-reliable-101-3/">navigating the modern news landscape trends ai and reliable </a> 
 <a href="https://homaryreviews.com/navigating-the-shifting-landscape-of-2023-news-consumption-t-2/">navigating the shifting landscape of 2023 news consumption t</a> 
-<a href="https://homaryreviews.com/navigating-the-shifting-landscape-of-2023-news-consumption-t/">navigating the shifting landscape of 2023 news consumption t</a> 
-<a href="https://homaryreviews.com/navigating-the-shifting-landscape-of-2023-news-in-depth-anal/">navigating the shifting landscape of 2023 news in depth anal</a> 
-<a href="https://homaryreviews.com/navigating-the-shifting-landscape-of-2023-news-trends-challe/">navigating the shifting landscape of 2023 news trends challe</a> 
-<a href="https://homaryreviews.com/navigating-the-shifting-landscape-of-news-consumption-in-202-101-9/">navigating the shifting landscape of news consumption in 202</a> 
-<a href="https://homaryreviews.com/navigating-today-s-complex-news-landscape-a-guide-to-reliabl/">navigating today s complex news landscape a guide to reliabl</a> 
-<a href="https://homaryreviews.com/navigating-today-s-news-guides-reviews-and-how-tos-for-infor-101-4/">navigating today s news guides reviews and how tos for infor</a> 
-<a href="https://homaryreviews.com/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste/">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
-<a href="https://homaryreviews.com/pronostics-turf-gratuits-ce-qu-ils-valent-vraiment/">pronostics turf gratuits ce qu ils valent vraiment</a> 
-<a href="https://homaryreviews.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 

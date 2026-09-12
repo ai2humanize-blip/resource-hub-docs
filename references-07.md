@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://casinoisloty.xyz/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://casinoisloty.xyz/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://casinonutanlicens.xyz/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://casinonutanlicens.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://casinonutanlicens.xyz/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://casinonutanlicens.xyz/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
 <a href="https://casinonutanlicens.xyz/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://casinonutanlicens.xyz/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
 <a href="https://casinonutanlicens.xyz/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
 <a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-explained-simply/">the difference between skimming and deep reading online expl</a> 
 <a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
-<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-3/">the difference between skimming and deep reading online the </a> 
-<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://cbdstent.com/the-future-of-apps-how-ai-and-machine-learning-are-transform/">the future of apps how ai and machine learning are transform</a> 
-<a href="https://cbdstent.com/the-future-of-digital-interaction-how-ai-driven-apps-are-tra/">the future of digital interaction how ai driven apps are tra</a> 
-<a href="https://cbdstent.com/the-future-of-news-consumption-navigating-the-evolving-media/">the future of news consumption navigating the evolving media</a> 
-<a href="https://cbdstent.com/the-impact-of-ai-on-modern-news-reporting-current-trends-and/">the impact of ai on modern news reporting current trends and</a> 

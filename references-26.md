@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-ai-is-transforming-the-global-economy-current-trends-and/">how ai is transforming the global economy current trends and</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
@@ -788,17 +802,3 @@
 <a href="https://madeleine-dore.com/mastering-cryptocurrency-bitcoin-blockchain-guides-reviews-h-107-8/">mastering cryptocurrency bitcoin blockchain guides reviews h</a> 
 <a href="https://madeleine-dore.com/mastering-event-planning-a-comprehensive-guide-to-memorable/">mastering event planning a comprehensive guide to memorable</a> 
 <a href="https://madeleine-dore.com/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
-<a href="https://madeleine-dore.com/mastering-on-page-seo-a-comprehensive-guide-to-boosting-your/">mastering on page seo a comprehensive guide to boosting your</a> 
-<a href="https://madeleine-dore.com/mastering-personal-finance-and-strategic-marketing-a-compreh-107-8/">mastering personal finance and strategic marketing a compreh</a> 
-<a href="https://madeleine-dore.com/mastering-personal-finance-marketing-and-business-growth-a-c-107-8/">mastering personal finance marketing and business growth a c</a> 
-<a href="https://madeleine-dore.com/mastering-the-art-of-balancing-business-personal-finance-and-107-8/">mastering the art of balancing business personal finance and</a> 
-<a href="https://madeleine-dore.com/mastering-the-art-of-business-finance-a-guide-to-smart-marke/">mastering the art of business finance a guide to smart marke</a> 
-<a href="https://madeleine-dore.com/mastering-the-art-of-business-finance-and-marketing-integrat/">mastering the art of business finance and marketing integrat</a> 
-<a href="https://madeleine-dore.com/mastering-the-art-of-career-advancement-insider-tips-for-pro/">mastering the art of career advancement insider tips for pro</a> 
-<a href="https://madeleine-dore.com/mastering-the-art-of-personal-finance-for-small-business-suc/">mastering the art of personal finance for small business suc</a> 
-<a href="https://madeleine-dore.com/mastering-time-management-boost-productivity-with-proven-str/">mastering time management boost productivity with proven str</a> 
-<a href="https://madeleine-dore.com/mastering-time-management-strategies-for-boosting-productivi/">mastering time management strategies for boosting productivi</a> 
-<a href="https://madeleine-dore.com/mastering-your-digital-life-top-apps-for-productivity-and-or/">mastering your digital life top apps for productivity and or</a> 
-<a href="https://madeleine-dore.com/navigating-career-growth-essential-strategies-for-marketing-107-9/">navigating career growth essential strategies for marketing </a> 
-<a href="https://madeleine-dore.com/navigating-the-complex-web-of-news-tech-and-cryptocurrency-a-107-7/">navigating the complex web of news tech and cryptocurrency a</a> 
-<a href="https://madeleine-dore.com/navigating-the-complex-world-of-marketing-seo-growth-strateg-107-9/">navigating the complex world of marketing seo growth strateg</a> 
