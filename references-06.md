@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://boostelearning.mataroa.blog/blog/digital-productivity-tools-and-habits-that-actually-work/">digital productivity tools and habits that actually work</a> 
+<a href="https://boostelearning.mataroa.blog/blog/discovering-the-best-apps-for-boosting-your-digital-life/">discovering the best apps for boosting your digital life</a> 
+<a href="https://boostelearning.mataroa.blog/blog/embrace-a-healthier-lifestyle-organic-living-and-wellness-tips/">embrace a healthier lifestyle organic living and wellness ti</a> 
+<a href="https://boostelearning.mataroa.blog/blog/enhancing-your-digital-life-top-apps-for-productivity-and-entertainment/">enhancing your digital life top apps for productivity and en</a> 
+<a href="https://boostelearning.mataroa.blog/blog/event-planning-guide/">event planning guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/exploring-the-future-how-ai-powered-apps-are-transforming-our-digital-lives/">exploring the future how ai powered apps are transforming ou</a> 
+<a href="https://boostelearning.mataroa.blog/blog/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-find-balanced-coverage-of-a-topic-right-a5edd6f9/">getting how to find balanced coverage of a topic right a5edd</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-spot-low-quality-content-online-right-5251b2fb/">getting how to spot low quality content online right 5251b2f</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-tell-if-a-website-is-trustworthy-right-3a95d384/">getting how to tell if a website is trustworthy right 3a95d3</a> 
 <a href="https://boostelearning.mataroa.blog/blog/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
 <a href="https://boostelearning.mataroa.blog/blog/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://boostelearning.mataroa.blog/blog/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
@@ -784,21 +802,3 @@
 <a href="https://casacours.uk.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
 <a href="https://casacours.uk.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
 <a href="https://casacours.uk.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://casacours.uk.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
-<a href="https://casacours.uk.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://casacours.uk.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://casacours.uk.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
-<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://casacours.uk.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
-<a href="https://casacours.uk.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://casacours.uk.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://casacours.uk.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
-<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
-<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
-<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://casacours.uk.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://casacours.uk.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
-<a href="https://casacours.uk.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 

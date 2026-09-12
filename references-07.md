@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://casacours.uk.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://casacours.uk.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://casacours.uk.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://casacours.uk.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
+<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://casacours.uk.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://casacours.uk.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://casacours.uk.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://casacours.uk.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://casacours.uk.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://casacours.uk.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://casacours.uk.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://casacours.uk.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://casacours.uk.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://casacours.uk.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
@@ -784,21 +802,3 @@
 <a href="https://cbdstent.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
 <a href="https://cbdstent.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://cbdstent.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://cbdstent.com/leveraging-the-latest-apps-for-a-smarter-more-connected-life/">leveraging the latest apps for a smarter more connected life</a> 
-<a href="https://cbdstent.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://cbdstent.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://cbdstent.com/market-research-reports/">market research reports</a> 
-<a href="https://cbdstent.com/marketing-seo-growth-50-resources-worth-bookmarking-85-1/">marketing seo growth 50 resources worth bookmarking 85 1</a> 
-<a href="https://cbdstent.com/marketing-seo-growth-essential-strategies-for-business-succe-85-6/">marketing seo growth essential strategies for business succe</a> 
-<a href="https://cbdstent.com/master-crypto-basics-guides-reviews-safety-tips-for-beginner-85-10/">master crypto basics guides reviews safety tips for beginner</a> 
-<a href="https://cbdstent.com/mastering-app-efficiency-boost-your-digital-experience-with/">mastering app efficiency boost your digital experience with</a> 
-<a href="https://cbdstent.com/mastering-app-overload-how-to-declutter-your-digital-life/">mastering app overload how to declutter your digital life</a> 
-<a href="https://cbdstent.com/mastering-business-finance-and-productivity-editor-s-top-pic-85-7/">mastering business finance and productivity editor s top pic</a> 
-<a href="https://cbdstent.com/mastering-business-finance-and-productivity-in-the-crypto-an-85-7/">mastering business finance and productivity in the crypto an</a> 
-<a href="https://cbdstent.com/mastering-business-finance-and-productivity-in-the-digital-a-85-7/">mastering business finance and productivity in the digital a</a> 
-<a href="https://cbdstent.com/mastering-business-finance-productivity-a-comprehensive-guid-85-7-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbdstent.com/mastering-business-finance-productivity-a-comprehensive-guid-85-7/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbdstent.com/mastering-business-finance-productivity-essential-resources-85-7/">mastering business finance productivity essential resources </a> 
-<a href="https://cbdstent.com/mastering-business-finance-productivity-travel-savings-strat-85-7/">mastering business finance productivity travel savings strat</a> 
-<a href="https://cbdstent.com/mastering-crypto-guides-reviews-and-how-tos-for-bitcoin-and-85-5/">mastering crypto guides reviews and how tos for bitcoin and </a> 
-<a href="https://cbdstent.com/mastering-cryptocurrency-bitcoin-and-blockchain-comprehensiv-85-5/">mastering cryptocurrency bitcoin and blockchain comprehensiv</a> 
