@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://madeleine-dore.com/how-to-stay-informed-the-best-news-sources-for-2023/">how to stay informed the best news sources for 2023</a> 
+<a href="https://madeleine-dore.com/how-to-tell-explainer-journalism-from-opinion-2/">how to tell explainer journalism from opinion 2</a> 
+<a href="https://madeleine-dore.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
+<a href="https://madeleine-dore.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://madeleine-dore.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://madeleine-dore.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://madeleine-dore.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://madeleine-dore.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
+<a href="https://madeleine-dore.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://madeleine-dore.com/making-sense-of-complex-topics-online-the-basics-2/">making sense of complex topics online the basics 2</a> 
+<a href="https://madeleine-dore.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://madeleine-dore.com/master-the-art-of-online-growth-guides-reviews-and-how-tos-f-107-8/">master the art of online growth guides reviews and how tos f</a> 
+<a href="https://madeleine-dore.com/mastering-business-and-personal-finance-a-marketing-centric/">mastering business and personal finance a marketing centric</a> 
+<a href="https://madeleine-dore.com/mastering-business-finance-and-productivity-with-the-digital-107-10/">mastering business finance and productivity with the digital</a> 
+<a href="https://madeleine-dore.com/mastering-business-finance-productivity-a-comprehensive-guid-107-5/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://madeleine-dore.com/mastering-business-finance-productivity-essential-resources-107-10/">mastering business finance productivity essential resources </a> 
+<a href="https://madeleine-dore.com/mastering-business-growth-personal-finance-strategies-for-en/">mastering business growth personal finance strategies for en</a> 
+<a href="https://madeleine-dore.com/mastering-cryptocurrency-bitcoin-blockchain-guides-reviews-h-107-8/">mastering cryptocurrency bitcoin blockchain guides reviews h</a> 
+<a href="https://madeleine-dore.com/mastering-event-planning-a-comprehensive-guide-to-memorable/">mastering event planning a comprehensive guide to memorable</a> 
+<a href="https://madeleine-dore.com/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
 <a href="https://madeleine-dore.com/mastering-on-page-seo-a-comprehensive-guide-to-boosting-your/">mastering on page seo a comprehensive guide to boosting your</a> 
 <a href="https://madeleine-dore.com/mastering-personal-finance-and-strategic-marketing-a-compreh-107-8/">mastering personal finance and strategic marketing a compreh</a> 
 <a href="https://madeleine-dore.com/mastering-personal-finance-marketing-and-business-growth-a-c-107-8/">mastering personal finance marketing and business growth a c</a> 
@@ -782,23 +802,3 @@
 <a href="https://modernwritingdesk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://modernwritingdesk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://modernwritingdesk.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-making-sense-of-complex-topics-online-3/">a closer look at making sense of complex topics online 3</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-the-value-of-slow-careful-reading-3/">a closer look at the value of slow careful reading 3</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://modernwritingdesk.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://modernwritingdesk.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://modernwritingdesk.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://modernwritingdesk.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://modernwritingdesk.com/boosting-your-child-s-early-development-proven-strategies-fo/">boosting your child s early development proven strategies fo</a> 
-<a href="https://modernwritingdesk.com/breaking-down-the-latest-news-and-analysis-what-you-need-to/">breaking down the latest news and analysis what you need to</a> 
-<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
-<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
