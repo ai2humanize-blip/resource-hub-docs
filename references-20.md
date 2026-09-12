@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc">QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw">QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7">QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYi5zaYpxyatQtDPfy1oFCJGjJDBeCxzwJmi4tsyehJZB">QmYi5zaYpxyatQtDPfy1oFCJGjJDBeCxzwJmi4tsyehJZB</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3">QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX">QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj">QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o">QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA">QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZT8JqUbm2dnt5wBncfHGzU8okXs888d74h6V2H1dQN77">QmZT8JqUbm2dnt5wBncfHGzU8okXs888d74h6V2H1dQN77</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZWiUSfTj9MmpMGbTqmFoH8q3o1RfW2v7LDzGMRioXFvh">QmZWiUSfTj9MmpMGbTqmFoH8q3o1RfW2v7LDzGMRioXFvh</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZdXLbYtPwBoFNE5yCdg6s8TcM4ee1GRtWUbXWfNRJHsT">QmZdXLbYtPwBoFNE5yCdg6s8TcM4ee1GRtWUbXWfNRJHsT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZhPTvryYjnRZn94WeKMmQxa2rFQ3aL67WFfkMwKrR8zh">QmZhPTvryYjnRZn94WeKMmQxa2rFQ3aL67WFfkMwKrR8zh</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZiazvJJjwz7myo9TPajTf4qenWfXKGCEi1mrm5SU18rq">QmZiazvJJjwz7myo9TPajTf4qenWfXKGCEi1mrm5SU18rq</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZmfkNhLrdavikDberQgx6ytgGPKWftNzDUdzNGqV7PAD">QmZmfkNhLrdavikDberQgx6ytgGPKWftNzDUdzNGqV7PAD</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZogmTA25DsThhGj5dFc8kdH3M58iLefbB9b66JRxFVcS">QmZogmTA25DsThhGj5dFc8kdH3M58iLefbB9b66JRxFVcS</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZvhuFxXdoaRzJn5y3Q723Xa9Zk7QKHZRwhwgMfSLr5sq">QmZvhuFxXdoaRzJn5y3Q723Xa9Zk7QKHZRwhwgMfSLr5sq</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZwLgdmcN3G4HfZEraMYUnPAFrMn2rdKS3Af6KRo1YH8c">QmZwLgdmcN3G4HfZEraMYUnPAFrMn2rdKS3Af6KRo1YH8c</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaG75KtPcMEpRButxKD9yUfdq7hnLXR1mu8PdG7fwhxeQ">QmaG75KtPcMEpRButxKD9yUfdq7hnLXR1mu8PdG7fwhxeQ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaMiM2TiHpr9qDSUbo14Em9XizoQYwFXPfHjk3uCpMGay">QmaMiM2TiHpr9qDSUbo14Em9XizoQYwFXPfHjk3uCpMGay</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmaSN2JxDLct4BmMMGEYNoqBpCvY1RusKjZgxTewuC3rmW">QmaSN2JxDLct4BmMMGEYNoqBpCvY1RusKjZgxTewuC3rmW</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmaSxWw3G2H4TrUdbTyeV37efFLwHSkkvuKhbd6Hd6h4Q2">QmaSxWw3G2H4TrUdbTyeV37efFLwHSkkvuKhbd6Hd6h4Q2</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmaVAJK3QpTKKpNZ2T47deFY2wKVsskwneQTezAK5bN5d7">QmaVAJK3QpTKKpNZ2T47deFY2wKVsskwneQTezAK5bN5d7</a> 
@@ -598,6 +618,7 @@
 <a href="https://khaki-ape-436464.hostingersite.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/marketing-seo-growth-strategies-for-success-in-the-digital-a-53-8/">marketing seo growth strategies for success in the digital a</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/master-digital-tools-online-resources-a-comprehensive-guide-53-5-2/">master digital tools online resources a comprehensive guide </a> 
 <a href="https://khaki-ape-436464.hostingersite.com/master-digital-tools-online-resources-a-comprehensive-guide-53-5/">master digital tools online resources a comprehensive guide </a> 
 <a href="https://khaki-ape-436464.hostingersite.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-53-6/">master the art of budget travel find cheap flights and save </a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-app-organization-boost-productivity-with-smart-dig-53-7/">mastering app organization boost productivity with smart dig</a> 
@@ -609,6 +630,8 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-privacy-how-to-safeguard-your-data-in-the/">mastering digital privacy how to safeguard your data in the</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-3/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-4/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-marketing-seo-growth-a-comprehensive-guide-53-8/">mastering marketing seo growth a comprehensive guide 53 8</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-marketing-seo-growth-a-comprehensive-roundup-53-8/">mastering marketing seo growth a comprehensive roundup 53 8</a> 
@@ -779,26 +802,3 @@
 <a href="https://labmagickite.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
 <a href="https://labmagickite.com/a-closer-look-at-how-to-build-a-personal-reading-list-3/">a closer look at how to build a personal reading list 3</a> 
 <a href="https://labmagickite.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://labmagickite.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://labmagickite.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://labmagickite.com/a-simple-framework-for-researching-any-topic-online-the-basics/">a simple framework for researching any topic online the basi</a> 
-<a href="https://labmagickite.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://labmagickite.com/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
-<a href="https://labmagickite.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
-<a href="https://labmagickite.com/boosting-your-business-and-personal-finances-through-strateg/">boosting your business and personal finances through strateg</a> 
-<a href="https://labmagickite.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-i/">breaking down the latest news in depth analysis and expert i</a> 
-<a href="https://labmagickite.com/breaking-down-today-s-top-news-expert-insights-and-analysis/">breaking down today s top news expert insights and analysis</a> 
-<a href="https://labmagickite.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne-104-10/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-g-104-5/">demystifying cryptocurrency bitcoin and blockchain a fresh g</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-p-2/">demystifying cryptocurrency bitcoin and blockchain a fresh p</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-p/">demystifying cryptocurrency bitcoin and blockchain a fresh p</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-2/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 

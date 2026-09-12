@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://casacours.uk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://casacours.uk.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://casacours.uk.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
+<a href="https://casacours.uk.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://casacours.uk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://casacours.uk.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://casacours.uk.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
+<a href="https://casacours.uk.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://casacours.uk.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://casacours.uk.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://casacours.uk.com/rep-res-pour-s-informer-sereinement-sur-les-courses/">rep res pour s informer sereinement sur les courses</a> 
+<a href="https://casacours.uk.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://casacours.uk.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
 <a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
 <a href="https://casacours.uk.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
 <a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
@@ -785,20 +802,3 @@
 <a href="https://cbdstent.com/mastering-marketing-seo-growth-essential-tools-and-strategie-85-6/">mastering marketing seo growth essential tools and strategie</a> 
 <a href="https://cbdstent.com/mastering-marketing-seo-growth-in-2026-a-comprehensive-guide-85-6/">mastering marketing seo growth in 2026 a comprehensive guide</a> 
 <a href="https://cbdstent.com/mastering-marketing-seo-growth-strategies-for-business-succe-85-6/">mastering marketing seo growth strategies for business succe</a> 
-<a href="https://cbdstent.com/mastering-marketing-seo-growth-strategies-for-success-85-6/">mastering marketing seo growth strategies for success 85 6</a> 
-<a href="https://cbdstent.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-85-6/">mastering marketing seo growth strategies for success in a c</a> 
-<a href="https://cbdstent.com/mastering-marketing-seo-growth-strategies-for-virginia-child-85-6/">mastering marketing seo growth strategies for virginia child</a> 
-<a href="https://cbdstent.com/mastering-personal-finance-a-business-and-marketing-perspect/">mastering personal finance a business and marketing perspect</a> 
-<a href="https://cbdstent.com/mastering-personal-finance-a-strategic-approach-to-business-2/">mastering personal finance a strategic approach to business </a> 
-<a href="https://cbdstent.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
-<a href="https://cbdstent.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
-<a href="https://cbdstent.com/mastering-personal-finance-business-and-marketing-a-comprehe-85-5/">mastering personal finance business and marketing a comprehe</a> 
-<a href="https://cbdstent.com/mastering-seo-how-to-boost-your-website-s-visibility-and-tra/">mastering seo how to boost your website s visibility and tra</a> 
-<a href="https://cbdstent.com/mastering-the-art-of-business-personal-finance-and-marketing-85-7/">mastering the art of business personal finance and marketing</a> 
-<a href="https://cbdstent.com/mastering-the-art-of-meal-prep-a-beginner-s-guide-to-healthi/">mastering the art of meal prep a beginner s guide to healthi</a> 
-<a href="https://cbdstent.com/mastering-the-art-of-personal-finance-in-business-marketing/">mastering the art of personal finance in business marketing</a> 
-<a href="https://cbdstent.com/mastering-time-management-boost-your-productivity-with-these/">mastering time management boost your productivity with these</a> 
-<a href="https://cbdstent.com/mastering-turf-betting-guides-reviews-and-how-tos-for-succes-85-10/">mastering turf betting guides reviews and how tos for succes</a> 
-<a href="https://cbdstent.com/navigating-modern-careers-strategies-for-job-satisfaction-an/">navigating modern careers strategies for job satisfaction an</a> 
-<a href="https://cbdstent.com/navigating-the-complex-world-of-ai-news-insights-and-analysi/">navigating the complex world of ai news insights and analysi</a> 
-<a href="https://cbdstent.com/navigating-the-complexities-of-today-s-news-landscape-a-comp/">navigating the complexities of today s news landscape a comp</a> 

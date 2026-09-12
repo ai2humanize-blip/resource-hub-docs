@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-evaluate-online-reviews-and-recommendations-and-why-it-matters/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-fact-check-something-in-five-minutes-and-why-it-matters/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-find-balanced-coverage-of-a-topic-61bd527c/">how to find balanced coverage of a topic 61bd527c</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-find-balanced-coverage-of-a-topic-e5f15c65/">how to find balanced coverage of a topic e5f15c65</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-find-reliable-how-to-guides-a-quick-guide-975066da/">how to find reliable how to guides a quick guide 975066da</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-read-the-news-without-getting-overwhelmed-a-practical-guide-8b353a1a/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-read-the-news-without-getting-overwhelmed-a-practical-guide-e741ed95/">how to read the news without getting overwhelmed a practical</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-read-the-news-without-getting-overwhelmed-a-practical-guide/">how to read the news without getting overwhelmed a practical</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-read-the-news-without-getting-overwhelmed-explained-simply/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
@@ -785,20 +802,3 @@
 <a href="https://casacours.uk.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
 <a href="https://casacours.uk.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
 <a href="https://casacours.uk.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://casacours.uk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://casacours.uk.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
-<a href="https://casacours.uk.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
-<a href="https://casacours.uk.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
-<a href="https://casacours.uk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://casacours.uk.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://casacours.uk.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
-<a href="https://casacours.uk.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://casacours.uk.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://casacours.uk.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://casacours.uk.com/rep-res-pour-s-informer-sereinement-sur-les-courses/">rep res pour s informer sereinement sur les courses</a> 
-<a href="https://casacours.uk.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://casacours.uk.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
-<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
-<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
-<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
