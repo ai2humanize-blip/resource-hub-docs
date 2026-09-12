@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://ls-boosting-produc-msro9yji.web.app/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://ls-boosting-your-business-and-personal-finances-with-s.ai2hmnz-rhub.workers.dev/">ls-boosting-your-business-and-personal-finances-with-s.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-breaking-down-t-msrje4o9.firebaseapp.com/">ls-breaking-down-t-msrje4o9.firebaseapp.com</a> 
+<a href="https://ls-breaking-down-t-msrje4o9.web.app/">ls-breaking-down-t-msrje4o9.web.app</a> 
+<a href="https://ls-breaking-down-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app">ls-breaking-down-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-building-a-daily-reading-habit-with-s-mtd70d3x-dot-stnews-489814.uc.r.appspot.com/">ls-building-a-daily-reading-habit-with-s-mtd70d3x-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-building-a-healthy-daily-reading-habi-mtmm16kv-dot-stnews-489814.uc.r.appspot.com/">ls-building-a-healthy-daily-reading-habi-mtmm16kv-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-building-a-healthy-daily-reading-habi-mtmmh9l2-dot-stnews-489814.uc.r.appspot.com/">ls-building-a-healthy-daily-reading-habi-mtmmh9l2-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-building-a-healthy-daily-reading-habit-a-pr-mt-imncw2y54a-uc.a.run.app">ls-building-a-healthy-daily-reading-habit-a-pr-mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-building-a-healthy-daily-reading-habit-and--mt-imncw2y54a-uc.a.run.app">ls-building-a-healthy-daily-reading-habit-and--mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-careers-and-jobs-resources-in-india-mte8l5qm.wasmer.app/">ls-careers-and-jobs-resources-in-india-mte8l5qm.wasmer.app</a> 
+<a href="https://ls-choosing-the-perfect-watch-a-comprehensive--ms-imncw2y54a-uc.a.run.app">ls-choosing-the-perfect-watch-a-comprehensive--ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-cloud-run-deploy-test-mshpfmax-imncw2y54a-uc.a.run.app">ls-cloud-run-deploy-test-mshpfmax-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-cloudflare-workers-deploy-test.ai2hmnz-rhub.workers.dev/">ls-cloudflare-workers-deploy-test.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-comprendre-les-paris-hippiques-les-ba-mtfkoi30.wasmer.app/">ls-comprendre-les-paris-hippiques-les-ba-mtfkoi30.wasmer.app</a> 
+<a href="https://ls-crypto-security-protecting-your-walle-mtada7al.wasmer.app/">ls-crypto-security-protecting-your-walle-mtada7al.wasmer.app</a> 
+<a href="https://ls-crypto-security-protecting-your-walle-mtadbs27-dot-stnews-489814.uc.r.appspot.com/">ls-crypto-security-protecting-your-walle-mtadbs27-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-crypto-security-protecting-your-wallet-keys-mt-imncw2y54a-uc.a.run.app">ls-crypto-security-protecting-your-wallet-keys-mt-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-decoding-today-s-breaking-news-in-dep-mssjj8gq-dot-stnews-489814.uc.r.appspot.com/">ls-decoding-today-s-breaking-news-in-dep-mssjj8gq-dot-stnews-489814.uc.r.appspot.com</a> 
+<a href="https://ls-demystifying-cr-mss2yhqf.firebaseapp.com/">ls-demystifying-cr-mss2yhqf.firebaseapp.com</a> 
+<a href="https://ls-demystifying-cr-mss2yhqf.web.app/">ls-demystifying-cr-mss2yhqf.web.app</a> 
+<a href="https://ls-demystifying-cryptocurrency-bitcoin-a-mssqkb2m.wasmer.app/">ls-demystifying-cryptocurrency-bitcoin-a-mssqkb2m.wasmer.app</a> 
+<a href="https://ls-demystifying-cryptocurrency-bitcoin-and-blo-ms-imncw2y54a-uc.a.run.app">ls-demystifying-cryptocurrency-bitcoin-and-blo-ms-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-demystifying-cryptocurrency-bitcoin-and-blockchain-.ai2hmnz-rhub.workers.dev/">ls-demystifying-cryptocurrency-bitcoin-and-blockchain-.ai2hmnz-rhub.workers.dev</a> 
 <a href="https://ls-demystifying-cryptocurrency-bitcoin-blockch-ms-imncw2y54a-uc.a.run.app">ls-demystifying-cryptocurrency-bitcoin-blockch-ms-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-demystifying-cryptocurrency-bitcoin-blockchain-and-.ai2hmnz-rhub.workers.dev/">ls-demystifying-cryptocurrency-bitcoin-blockchain-and-.ai2hmnz-rhub.workers.dev</a> 
@@ -779,26 +802,3 @@
 <a href="https://madeleine-dore.com/getting-how-to-get-the-most-out-of-online-guides-right-2/">getting how to get the most out of online guides right 2</a> 
 <a href="https://madeleine-dore.com/getting-how-to-get-the-most-out-of-online-guides-right-3/">getting how to get the most out of online guides right 3</a> 
 <a href="https://madeleine-dore.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
-<a href="https://madeleine-dore.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://madeleine-dore.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://madeleine-dore.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
-<a href="https://madeleine-dore.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://madeleine-dore.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
-<a href="https://madeleine-dore.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://madeleine-dore.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
-<a href="https://madeleine-dore.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://madeleine-dore.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://madeleine-dore.com/guides-reviews-how-tos-50-resources-worth-bookmarking-107-3-2/">guides reviews how tos 50 resources worth bookmarking 107 3 </a> 
-<a href="https://madeleine-dore.com/guides-reviews-how-tos-50-resources-worth-bookmarking-107-3/">guides reviews how tos 50 resources worth bookmarking 107 3</a> 
-<a href="https://madeleine-dore.com/how-ai-driven-apps-are-transforming-our-daily-digital-experi/">how ai driven apps are transforming our daily digital experi</a> 
-<a href="https://madeleine-dore.com/how-ai-is-revolutionizing-news-reporting-and-consumption/">how ai is revolutionizing news reporting and consumption</a> 
-<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
-<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-daily-life-and-work-3/">how ai powered apps are transforming daily life and work 3</a> 
-<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-daily-life-and-work-4/">how ai powered apps are transforming daily life and work 4</a> 
-<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-our-daily-digital-inter/">how ai powered apps are transforming our daily digital inter</a> 
-<a href="https://madeleine-dore.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
-<a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matters/">how to bookmark and revisit useful resources and why it matt</a> 
-<a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl-2/">how to bookmark and revisit useful resources explained simpl</a> 

@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://madeleine-dore.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
+<a href="https://madeleine-dore.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://madeleine-dore.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
+<a href="https://madeleine-dore.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://madeleine-dore.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
+<a href="https://madeleine-dore.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://madeleine-dore.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://madeleine-dore.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://madeleine-dore.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://madeleine-dore.com/guides-reviews-how-tos-50-resources-worth-bookmarking-107-3-2/">guides reviews how tos 50 resources worth bookmarking 107 3 </a> 
+<a href="https://madeleine-dore.com/guides-reviews-how-tos-50-resources-worth-bookmarking-107-3/">guides reviews how tos 50 resources worth bookmarking 107 3</a> 
+<a href="https://madeleine-dore.com/how-ai-driven-apps-are-transforming-our-daily-digital-experi/">how ai driven apps are transforming our daily digital experi</a> 
+<a href="https://madeleine-dore.com/how-ai-is-revolutionizing-news-reporting-and-consumption/">how ai is revolutionizing news reporting and consumption</a> 
+<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
+<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-daily-life-and-work-3/">how ai powered apps are transforming daily life and work 3</a> 
+<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-daily-life-and-work-4/">how ai powered apps are transforming daily life and work 4</a> 
+<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://madeleine-dore.com/how-ai-powered-apps-are-transforming-our-daily-digital-inter/">how ai powered apps are transforming our daily digital inter</a> 
+<a href="https://madeleine-dore.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matters/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl-2/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://madeleine-dore.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
 <a href="https://madeleine-dore.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
@@ -779,26 +802,3 @@
 <a href="https://metromsk.se.net/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
 <a href="https://metromsk.se.net/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
 <a href="https://metromsk.se.net/how-to-use-the-web-to-learn-a-new-skill-explained-simply-2/">how to use the web to learn a new skill explained simply 2</a> 
-<a href="https://metromsk.se.net/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://metromsk.se.net/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
-<a href="https://metromsk.se.net/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://metromsk.se.net/moscow-metro-first-timer-guide/">moscow metro first timer guide</a> 
-<a href="https://metromsk.se.net/moscow-through-the-seasons/">moscow through the seasons</a> 
-<a href="https://metromsk.se.net/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://metromsk.se.net/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
-<a href="https://metromsk.se.net/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
-<a href="https://metromsk.se.net/test/">test</a> 
-<a href="https://metromsk.se.net/the-basics-of-staying-safe-while-browsing-2/">the basics of staying safe while browsing 2</a> 
-<a href="https://metromsk.se.net/the-basics-of-staying-safe-while-browsing-3/">the basics of staying safe while browsing 3</a> 
-<a href="https://metromsk.se.net/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 
-<a href="https://metromsk.se.net/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://metromsk.se.net/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://metromsk.se.net/the-difference-between-skimming-and-deep-reading-online-expl-2/">the difference between skimming and deep reading online expl</a> 
-<a href="https://metromsk.se.net/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://metromsk.se.net/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://metromsk.se.net/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
-<a href="https://metromsk.se.net/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://metromsk.se.net/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://metromsk.se.net/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://metromsk.se.net/understanding-how-search-engines-rank-pages-a-quick-guide-2/">understanding how search engines rank pages a quick guide 2</a> 
-<a href="https://metromsk.se.net/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
