@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-Find-Reliable-How-To-Guides-right-3d3615d6bd4281c3acd7fae98ba293ac">Getting How to Find Reliable How To Guides right 3d3615d6bd4</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-Organize-the-Information-You-Find-Online-right-3d5615d6bd42810a8d2ad1736ad615ae">Getting How to Organize the Information You Find Online righ</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-compare-sources-on-the-same-story-right-3d1615d6bd4281999abcdb0272e7e1f2">Getting How to compare sources on the same story right 3d161</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-read-the-news-without-getting-overwhelmed-right-3d1615d6bd4281feacb6f84889357575">Getting How to read the news without getting overwhelmed rig</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-read-the-news-without-getting-overwhelmed-right-3d3615d6bd4281479cb1c5f752fd6c19">Getting How to read the news without getting overwhelmed rig</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-spot-low-quality-content-online-right-3d1615d6bd428192a303f8730cbbc03c">Getting How to spot low quality content online right 3d1615d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-tell-if-a-website-is-trustworthy-right-3d1615d6bd428197a83ac02c0b41af32">Getting How to tell if a website is trustworthy right 3d1615</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-The-Basics-of-Staying-Safe-While-Browsing-right-3d1615d6bd4281a68929efecee1aea72">Getting The Basics of Staying Safe While Browsing right 3d16</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-Why-Primary-Sources-Matter-and-How-to-Find-Them-right-3d1615d6bd428153bde7e7e8606091bb">Getting Why Primary Sources Matter and How to Find Them righ</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-AI-Powered-Apps-Are-Transforming-Everyday-Life-3bb615d6bd428199bf7ad3ba5bd1b84a">How AI Powered Apps Are Transforming Everyday Life 3bb615d6b</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-AI-Powered-Apps-Are-Transforming-Our-Daily-Lives-3bc615d6bd428125bae2c1285993a079">How AI Powered Apps Are Transforming Our Daily Lives 3bc615d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-AI-and-Machine-Learning-Are-Transforming-Everyday-Apps-3bb615d6bd428120a69bf2fee9207666">How AI and Machine Learning Are Transforming Everyday Apps 3</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-Recent-Global-Events-Are-Shaping-News-Consumption-Trends-3bc615d6bd42811abc31f31744bc20bc">How Recent Global Events Are Shaping News Consumption Trends</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Avoid-Misinformation-and-Hype-the-basics-3d1615d6bd428136a55ec28a2487e800">How to Avoid Misinformation and Hype the basics 3d1615d6bd42</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Bookmark-and-Revisit-Useful-Resources-and-why-it-matters-3d1615d6bd4281b2921dc00cdb7ae4e6">How to Bookmark and Revisit Useful Resources and why it matt</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Bookmark-and-Revisit-Useful-Resources-the-basics-3d1615d6bd42815f8eb3fda74884467c">How to Bookmark and Revisit Useful Resources the basics 3d16</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Build-a-Personal-Reading-List-3d1615d6bd4281788c66d30dc02e4af9">How to Build a Personal Reading List 3d1615d6bd4281788c66d30</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Choose-a-Trustworthy-Online-Casino-A-Comprehensive-Guide-3b8615d6bd4281e88fc5e5fec44eee6c">How to Choose a Trustworthy Online Casino A Comprehensive Gu</a> 
@@ -274,6 +289,7 @@
 <a href="https://autumnfallsinterview.com/mastering-business-personal-finance-and-marketing-a-comprehe-80-10/">mastering business personal finance and marketing a comprehe</a> 
 <a href="https://autumnfallsinterview.com/mastering-career-changes-job-searches-and-legal-knowledge-es-80-10/">mastering career changes job searches and legal knowledge es</a> 
 <a href="https://autumnfallsinterview.com/mastering-communication-home-upgrades-and-digital-privacy-a-80-10/">mastering communication home upgrades and digital privacy a </a> 
+<a href="https://autumnfallsinterview.com/mastering-digital-literacy-guides-reviews-how-tos-for-the-mo-80-10/">mastering digital literacy guides reviews how tos for the mo</a> 
 <a href="https://autumnfallsinterview.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-80-10/">mastering guides reviews how tos your ultimate round up for </a> 
 <a href="https://autumnfallsinterview.com/mastering-information-guides-reviews-and-how-tos-for-smarter-80-10/">mastering information guides reviews and how tos for smarter</a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-80-1/">mastering marketing seo and growth a comprehensive guide 80 </a> 
@@ -293,7 +309,9 @@
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-strategies-for-success-80-1/">mastering marketing seo growth strategies for success 80 1</a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-strategies-for-success-in-the-80-1/">mastering marketing seo growth strategies for success in the</a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-strategies-for-virginia-child-80-1/">mastering marketing seo growth strategies for virginia child</a> 
+<a href="https://autumnfallsinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-80-10/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-reading-research-and-digital-literacy-a-com-80-10/">mastering online reading research and digital literacy a com</a> 
+<a href="https://autumnfallsinterview.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-80-10/">mastering online research guides reviews how tos for smart l</a> 
 <a href="https://autumnfallsinterview.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
 <a href="https://autumnfallsinterview.com/mastering-personal-finance-business-and-marketing-a-comprehe-80-2/">mastering personal finance business and marketing a comprehe</a> 
 <a href="https://autumnfallsinterview.com/mastering-the-art-of-budgeting-a-guide-to-financial-success/">mastering the art of budgeting a guide to financial success</a> 
@@ -784,21 +802,3 @@
 <a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
 <a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
-<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-3/">making sense of complex topics online 3</a> 
-<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
-<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://bitslots.de.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://bitslots.de.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
-<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
-<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
-<a href="https://bitslots.de.com/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste/">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
-<a href="https://bitslots.de.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://bitslots.de.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
-<a href="https://bitslots.de.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://bitslots.de.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://bitslots.de.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://bitslots.de.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://bitslots.de.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
-<a href="https://bitslots.de.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
-<a href="https://bitslots.de.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://bitslots.de.com/the-truth-about-circulating-aavot-apk-files-2/">the truth about circulating aavot apk files 2</a> 
