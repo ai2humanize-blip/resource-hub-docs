@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online-2/">a closer look at recognizing credible experts online 2</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://cplemaire.us.org/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
+<a href="https://cplemaire.us.org/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 
+<a href="https://cplemaire.us.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cplemaire.us.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://cplemaire.us.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://cplemaire.us.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://cplemaire.us.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
@@ -784,21 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-find-balanced-coverage-of-topic.html">how to find balanced coverage of topic</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-find-balanced-coverage-of-topic_063927569.html">how to find balanced coverage of topic 063927569</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-find-genuinely-cheap-flights.html">how to find genuinely cheap flights</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-find-reliable-how-to-guides.html">how to find reliable how to guides</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-find-reliable-how-to-guides_01371031566.html">how to find reliable how to guides 01371031566</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-get-most-out-of-online-guides.html">how to get most out of online guides</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-get-most-out-of-online-guides_039898660.html">how to get most out of online guides 039898660</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-organize-information-you-find.html">how to organize information you find</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-read-crypto-market-news-without.html">how to read crypto market news without</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-read-news-without-getting.html">how to read news without getting</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-spot-low-quality-content-online.html">how to spot low quality content online</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-spot-low-quality-content-online_0492816379.html">how to spot low quality content online 0492816379</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-tell-if-website-is-trustworthy.html">how to tell if website is trustworthy</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-use-web-to-learn-new-skill.html">how to use web to learn new skill</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/making-sense-of-complex-topics-online.html">making sense of complex topics online</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/making-sense-of-complex-topics-online_0836820940.html">making sense of complex topics online 0836820940</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online.html">recognizing credible experts online</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online_01891563208.html">recognizing credible experts online 01891563208</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online_0536542947.html">recognizing credible experts online 0536542947</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online_0684205506.html">recognizing credible experts online 0684205506</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-basics-of-staying-safe-while.html">the basics of staying safe while</a> 

@@ -2,6 +2,36 @@
 
 [index](README.md) · [‹ prev](references-41.md)
 
+<a href="https://venusskin.net/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://venusskin.net/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://venusskin.net/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://venusskin.net/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
+<a href="https://venusskin.net/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://venusskin.net/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://venusskin.net/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://venusskin.net/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://venusskin.net/why-primary-sources-matter-and-how-to-find-them-a-practical-guide/">why primary sources matter and how to find them a practical </a> 
+<a href="https://venusskin.net/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://venusskin.net/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://verdant-sopapillas-6c7223.netlify.app/simple-habits-of-a-smart-internet-reader-explained-simply.html">simple habits of a smart internet reader explained simply</a> 
+<a href="https://vocal-maamoul-7f2b87.netlify.app/staying-safe-and-informed-the-latest-in-online-casino-and-ga.html">staying safe and informed the latest in online casino and ga</a> 
+<a href="https://voluble-cucurucho-78c424.netlify.app/a-closer-look-at-how-to-fact-check-something-in-five-minutes.html">a closer look at how to fact check something in five minutes</a> 
+<a href="https://voluble-phoenix-ea17d0.netlify.app/a-closer-look-at-why-primary-sources-matter-and-how-to-find-.html">a closer look at why primary sources matter and how to find</a> 
+<a href="https://voslot777.xyz/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://voslot777.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://voslot777.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://voslot777.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://voslot777.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://voslot777.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://voslot777.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://voslot777.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://voslot777.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://voslot777.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://voslot777.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://voslot777.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://voslot777.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
 <a href="https://voslot777.xyz/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
