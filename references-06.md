@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bandemusic.com/how-to-stay-informed-with-reliable-news-sources-in-a-digital/">how to stay informed with reliable news sources in a digital</a> 
+<a href="https://bandemusic.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://bandemusic.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://bandemusic.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://bandemusic.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://bandemusic.com/leveraging-technology-for-enhanced-productivity-apps-and-too/">leveraging technology for enhanced productivity apps and too</a> 
+<a href="https://bandemusic.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://bandemusic.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://bandemusic.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-81-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
+<a href="https://bandemusic.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://bandemusic.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-81-3/">master the art of budget travel find cheap flights and save </a> 
+<a href="https://bandemusic.com/mastering-app-organization-boost-productivity-with-smart-dig-81-9/">mastering app organization boost productivity with smart dig</a> 
+<a href="https://bandemusic.com/mastering-app-overload-streamline-your-digital-life-for-bett/">mastering app overload streamline your digital life for bett</a> 
+<a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-deep-dive-into-81-1/">mastering business finance and productivity a deep dive into</a> 
+<a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-6/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-roun-81-1-2/">mastering business finance productivity a comprehensive roun</a> 
+<a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-roun-81-1/">mastering business finance productivity a comprehensive roun</a> 
+<a href="https://bandemusic.com/mastering-business-finance-productivity-a-multi-topic-blog-g-81-6/">mastering business finance productivity a multi topic blog g</a> 
+<a href="https://bandemusic.com/mastering-business-personal-finance-and-marketing-a-comprehe-81-4/">mastering business personal finance and marketing a comprehe</a> 
 <a href="https://bandemusic.com/mastering-crypto-essential-terms-news-and-wallet-safety-for-81-6/">mastering crypto essential terms news and wallet safety for </a> 
 <a href="https://bandemusic.com/mastering-cryptocurrency-bitcoin-and-blockchain-guides-revie-81-4/">mastering cryptocurrency bitcoin and blockchain guides revie</a> 
 <a href="https://bandemusic.com/mastering-marketing-seo-and-growth-strategies-for-business-s-81-5/">mastering marketing seo and growth strategies for business s</a> 
@@ -783,22 +802,3 @@
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwhelmed/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://captainjackinterview.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://captainjackinterview.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://captainjackinterview.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://captainjackinterview.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
-<a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://captainjackinterview.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 

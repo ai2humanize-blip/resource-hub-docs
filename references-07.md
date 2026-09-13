@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwhelmed/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://captainjackinterview.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://captainjackinterview.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://captainjackinterview.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://captainjackinterview.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
+<a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://captainjackinterview.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
 <a href="https://captainjackinterview.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://captainjackinterview.com/boost-your-website-s-visibility-a-comprehensive-guide-to-seo/">boost your website s visibility a comprehensive guide to seo</a> 
 <a href="https://captainjackinterview.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-i/">breaking down the latest news in depth analysis and expert i</a> 
@@ -783,22 +802,3 @@
 <a href="https://cbdpuffbars.com/comprehensive-roundup-guides-reviews-how-tos-for-every-inter-84-6/">comprehensive roundup guides reviews how tos for every inter</a> 
 <a href="https://cbdpuffbars.com/cyberkannadig-the-future-of-web-tech-content-in-2026-84-5/">cyberkannadig the future of web tech content in 2026 84 5</a> 
 <a href="https://cbdpuffbars.com/decoding-news-trends-expert-guides-reviews-and-how-tos-for-2-84-6/">decoding news trends expert guides reviews and how tos for 2</a> 
-<a href="https://cbdpuffbars.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-84-7/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://cbdpuffbars.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://cbdpuffbars.com/discover-essential-digital-tools-online-resources-for-every-84-9/">discover essential digital tools online resources for every </a> 
-<a href="https://cbdpuffbars.com/discover-the-best-browser-games-digital-tools-for-endless-en-84-9/">discover the best browser games digital tools for endless en</a> 
-<a href="https://cbdpuffbars.com/discover-the-best-digital-tools-online-resources-for-every-n-84-9-2/">discover the best digital tools online resources for every n</a> 
-<a href="https://cbdpuffbars.com/discover-the-best-digital-tools-online-resources-for-every-n-84-9/">discover the best digital tools online resources for every n</a> 
-<a href="https://cbdpuffbars.com/discover-the-best-guides-reviews-how-tos-for-budget-travel-a-84-6/">discover the best guides reviews how tos for budget travel a</a> 
-<a href="https://cbdpuffbars.com/discover-the-best-independent-digital-tools-online-resources-84-9/">discover the best independent digital tools online resources</a> 
-<a href="https://cbdpuffbars.com/discovering-the-vibrant-world-of-independent-music-culture/">discovering the vibrant world of independent music culture</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-a-comprehensive-gui-84-4/">essential digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-crypto-and-fina-84-9/">essential digital tools online resources for crypto and fina</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-cryptocurrency-84-4/">essential digital tools online resources for cryptocurrency </a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-financial-and-m-84-4/">essential digital tools online resources for financial and m</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-modern-needs-84-4/">essential digital tools online resources for modern needs 84</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-navigating-the-84-4/">essential digital tools online resources for navigating the </a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-understanding-c-84-4/">essential digital tools online resources for understanding c</a> 
-<a href="https://cbdpuffbars.com/essential-guides-reviews-and-how-tos-for-independent-news-fi-84-6/">essential guides reviews and how tos for independent news fi</a> 
-<a href="https://cbdpuffbars.com/essential-guides-reviews-and-how-tos-navigating-cryptocurren-84-6/">essential guides reviews and how tos navigating cryptocurren</a> 
-<a href="https://cbdpuffbars.com/essential-guides-reviews-how-tos-for-a-smarter-safer-digital-84-6/">essential guides reviews how tos for a smarter safer digital</a> 
