@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://agriculture-lawyer.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://agriculture-lawyer.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://agriculture-lawyer.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://agriculture-lawyer.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
 <a href="https://agriculture-lawyer.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://agriculture-lawyer.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
@@ -53,6 +56,7 @@
 <a href="https://agriculture-lawyer.com/mastering-cryptocurrency-bitcoin-blockchain-ultimate-guides-75-5/">mastering cryptocurrency bitcoin blockchain ultimate guides </a> 
 <a href="https://agriculture-lawyer.com/mastering-cryptocurrency-guides-reviews-and-how-tos-for-ever-75-5/">mastering cryptocurrency guides reviews and how tos for ever</a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-75-5/">mastering guides reviews and how tos a comprehensive roundup</a> 
+<a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-75-5/">mastering guides reviews how tos a comprehensive roundup 75 </a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-75-10/">mastering guides reviews how tos your ultimate round up for </a> 
 <a href="https://agriculture-lawyer.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-75-6-2/">mastering marketing seo and growth a comprehensive guide 75 </a> 
 <a href="https://agriculture-lawyer.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-75-6/">mastering marketing seo and growth a comprehensive guide 75 </a> 
@@ -87,6 +91,8 @@
 <a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-strategies-for-business-succe-75-6/">mastering marketing seo growth strategies for business succe</a> 
 <a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-strategies-for-success-75-6/">mastering marketing seo growth strategies for success 75 6</a> 
 <a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-strategies-for-virginia-child-75-6/">mastering marketing seo growth strategies for virginia child</a> 
+<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5/">mastering online information guides reviews how tos for savv</a> 
+<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-smar-75-5/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-research-and-digital-literacy-a-com-75-10/">mastering online reading research and digital literacy a com</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-and-how-tos-for-the-75-5/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-how-tos-for-digital-75-5/">mastering online research guides reviews how tos for digital</a> 
@@ -796,9 +802,3 @@
 <a href="https://alcobar85.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://alcobar85.xyz/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://alcobar85.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://alcobar85.xyz/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://alcobar85.xyz/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://alcobar85.xyz/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
-<a href="https://alcobar85.xyz/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
-<a href="https://alcobar85.xyz/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
-<a href="https://alcobar85.xyz/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 

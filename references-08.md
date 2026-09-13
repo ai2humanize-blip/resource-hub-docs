@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://cbdpuffbars.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://cbdpuffbars.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://cbdpuffbars.com/why-niche-blogs-still-matter-a-practical-guide-2/">why niche blogs still matter a practical guide 2</a> 
+<a href="https://cbdpuffbars.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://cbdpuffbars.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-a-practical-guide/">why primary sources matter and how to find them a practical </a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://cbdstent.com/5-proven-strategies-to-skyrocket-your-website-s-organic-traf/">5 proven strategies to skyrocket your website s organic traf</a> 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://cbdstent.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://cbdstent.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cbdstent.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://cbdstent.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
 <a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
@@ -784,21 +802,3 @@
 <a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
 <a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
 <a href="https://crediblenews24.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://crediblenews24.com/staying-informed-in-2023-navigating-web-tech-and-content-tre-86-8/">staying informed in 2023 navigating web tech and content tre</a> 
-<a href="https://crediblenews24.com/staying-informed-top-independent-sites-for-web-tech-content-86-8/">staying informed top independent sites for web tech content </a> 
-<a href="https://crediblenews24.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://crediblenews24.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://crediblenews24.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
-<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://crediblenews24.com/the-future-of-ai-in-journalism-trends-and-challenges/">the future of ai in journalism trends and challenges</a> 
-<a href="https://crediblenews24.com/the-future-of-creativity-how-ai-powered-apps-are-transformin/">the future of creativity how ai powered apps are transformin</a> 
-<a href="https://crediblenews24.com/the-future-of-digital-interactions-how-ai-and-ar-are-transfo/">the future of digital interactions how ai and ar are transfo</a> 
-<a href="https://crediblenews24.com/the-future-of-mobile-apps-how-ai-and-5g-are-transforming-use/">the future of mobile apps how ai and 5g are transforming use</a> 
-<a href="https://crediblenews24.com/the-future-of-news-consumption-trends-challenges-and-opportu/">the future of news consumption trends challenges and opportu</a> 
-<a href="https://crediblenews24.com/the-rise-of-ai-powered-apps-transforming-our-digital-experie/">the rise of ai powered apps transforming our digital experie</a> 
