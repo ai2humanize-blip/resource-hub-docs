@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://cplemaire.us.org/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://cplemaire.us.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://cplemaire.us.org/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
+<a href="https://cplemaire.us.org/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
+<a href="https://cplemaire.us.org/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
 <a href="https://cplemaire.us.org/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
 <a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
 <a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
@@ -784,21 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online_0536542947.html">recognizing credible experts online 0536542947</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online_0684205506.html">recognizing credible experts online 0684205506</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-basics-of-staying-safe-while.html">the basics of staying safe while</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-difference-between-skimming-and.html">the difference between skimming and</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-difference-between-skimming-and_01798733407.html">the difference between skimming and 01798733407</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-difference-between-skimming-and_0436952170.html">the difference between skimming and 0436952170</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-value-of-slow-careful-reading.html">the value of slow careful reading</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-value-of-slow-careful-reading_01949229993.html">the value of slow careful reading 01949229993</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/understanding-how-indias-public.html">understanding how indias public</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/understanding-how-search-engines-rank.html">understanding how search engines rank</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-makes-explainer-article-genuinely.html">what makes explainer article genuinely</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-how-to-evaluate.html">what to know about how to evaluate</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-how-to-evaluate_0136437626.html">what to know about how to evaluate 0136437626</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-how-to-use-web-to.html">what to know about how to use web to</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-making-sense-of.html">what to know about making sense of</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-what-makes-explainer.html">what to know about what makes explainer</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-why-niche-blogs.html">what to know about why niche blogs</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-look-for-in-good-news-website.html">what to look for in good news website</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-look-for-in-good-news-website_01015617264.html">what to look for in good news website 01015617264</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-look-for-in-good-news-website_01418691074.html">what to look for in good news website 01418691074</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/why-context-matters-when-reading-online.html">why context matters when reading online</a> 

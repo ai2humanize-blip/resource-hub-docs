@@ -2,6 +2,36 @@
 
 [index](README.md) · [‹ prev](references-41.md)
 
+<a href="https://voslot777.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://voslot777.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://voslot777.xyz/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://voslot777.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://voslot777.xyz/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://voslot777.xyz/how-to-evaluate-online-reviews-and-recommendations-a-practical-guide/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://voslot777.xyz/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://voslot777.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://voslot777.xyz/how-to-read-the-news-without-getting-overwhelmed-2/">how to read the news without getting overwhelmed 2</a> 
+<a href="https://voslot777.xyz/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
+<a href="https://voslot777.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://voslot777.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://voslot777.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://voslot777.xyz/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
+<a href="https://voslot777.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://voslot777.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://voslot777.xyz/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://voslot777.xyz/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://voslot777.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://voslot777.xyz/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://warm-shortbread-1a53a9.netlify.app/casual-puzzle-and-arcade-games-for-all-ages.html">casual puzzle and arcade games for all ages</a> 
+<a href="https://webinkey.gr.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommendations/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://webinkey.gr.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://webinkey.gr.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://webinkey.gr.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://webinkey.gr.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://webinkey.gr.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://webinkey.gr.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://webinkey.gr.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://webinkey.gr.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://webinkey.gr.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://webinkey.gr.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://webinkey.gr.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
