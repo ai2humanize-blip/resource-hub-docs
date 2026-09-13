@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://cbdpuffbars.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://cbdpuffbars.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://cbdpuffbars.com/getting-understanding-how-search-engines-rank-pages-right-2/">getting understanding how search engines rank pages right 2</a> 
+<a href="https://cbdpuffbars.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://cbdpuffbars.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://cbdpuffbars.com/guides-reviews-how-tos-navigating-online-casinos-and-crypto-84-6/">guides reviews how tos navigating online casinos and crypto </a> 
+<a href="https://cbdpuffbars.com/holistic-wellness-integrating-organic-living-into-your-daily/">holistic wellness integrating organic living into your daily</a> 
+<a href="https://cbdpuffbars.com/how-ai-and-machine-learning-are-transforming-everyday-apps-2/">how ai and machine learning are transforming everyday apps 2</a> 
+<a href="https://cbdpuffbars.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://cbdpuffbars.com/how-ai-and-machine-learning-are-transforming-mobile-apps/">how ai and machine learning are transforming mobile apps</a> 
+<a href="https://cbdpuffbars.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://cbdpuffbars.com/how-ai-powered-apps-are-transforming-our-daily-digital-lives/">how ai powered apps are transforming our daily digital lives</a> 
+<a href="https://cbdpuffbars.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://cbdpuffbars.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype-2/">how to avoid misinformation and hype 2</a> 
+<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://cbdpuffbars.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://cbdpuffbars.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://cbdpuffbars.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://cbdpuffbars.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
@@ -784,21 +802,3 @@
 <a href="https://cplemaire.us.org/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
 <a href="https://cplemaire.us.org/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
 <a href="https://cplemaire.us.org/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
-<a href="https://cplemaire.us.org/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
-<a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
-<a href="https://cplemaire.us.org/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://cplemaire.us.org/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
-<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://cplemaire.us.org/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide-2/">recognizing credible experts online a quick guide 2</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 

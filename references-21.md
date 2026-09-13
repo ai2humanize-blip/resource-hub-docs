@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk">QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT">QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki">QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F">QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H">QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE">QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ">QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc">QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY">Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB">QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7">QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6">Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH">Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY">Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn">QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE">QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt">QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX">QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G">QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdemBTMw2MWN9cMav8gz9a6o5sVqS6P12RwVAdHXyq39m">QmdemBTMw2MWN9cMav8gz9a6o5sVqS6P12RwVAdHXyq39m</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdhQWwvPNznD6ozEu2L6MS7NZLhX6st3UCWo12LgCE6J1">QmdhQWwvPNznD6ozEu2L6MS7NZLhX6st3UCWo12LgCE6J1</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmdoH5KswDD2CcfeRKtBqionAr95xBSRe4zy6sxd6d6ykS">QmdoH5KswDD2CcfeRKtBqionAr95xBSRe4zy6sxd6d6ykS</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qme54TEw9878RjcFYzyD5WSE2RwGQn4457S3g5dbipQhaM">Qme54TEw9878RjcFYzyD5WSE2RwGQn4457S3g5dbipQhaM</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qme5NECJQmFbpENisU8eX3FuibPDvDFLgRqp4BvH71J1Aq">Qme5NECJQmFbpENisU8eX3FuibPDvDFLgRqp4BvH71J1Aq</a> 
@@ -619,6 +640,8 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-6/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-7/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-8/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-9/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-53-4-2/">mastering business finance productivity a comprehensive roun</a> 
@@ -627,6 +650,7 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-53-4-3/">mastering business finance productivity in the digital age 5</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-53-4/">mastering business finance productivity in the digital age 5</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-a-53-4-2/">mastering business finance productivity in the digital age a</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-a-53-4-3/">mastering business finance productivity in the digital age a</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-a-53-4/">mastering business finance productivity in the digital age a</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-crypto-essential-terms-news-interpretation-and-wal-53-8/">mastering crypto essential terms news interpretation and wal</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-literacy-essential-tools-online-resources-53-5/">mastering digital literacy essential tools online resources </a> 
@@ -778,27 +802,3 @@
 <a href="https://khaki-ape-436464.hostingersite.com/unlocking-the-digital-world-web-tech-content-insights-for-en-53-6/">unlocking the digital world web tech content insights for en</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/unlocking-the-future-how-ai-driven-apps-are-transforming-our/">unlocking the future how ai driven apps are transforming our</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/unlocking-the-power-of-keyword-research-for-seo-success/">unlocking the power of keyword research for seo success</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-opin-2/">unpacking today s top news in depth analysis and expert opin</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-opin/">unpacking today s top news in depth analysis and expert opin</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/web-tech-content-your-ultimate-guide-to-digital-productivity-53-6/">web tech content your ultimate guide to digital productivity</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-makes-a-website-easy-and-pleasant-to-read/">what makes a website easy and pleasant to read</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour-2/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-understanding-digital-literacy-2/">what to know about understanding digital literacy 2</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-explainer-journalism-web-and-content-matter-in-today-s-w-53-6/">why explainer journalism web and content matter in today s w</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 

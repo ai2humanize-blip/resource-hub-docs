@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://fideleturfturf.it.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
+<a href="https://fideleturfturf.it.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://fideleturfturf.it.com/how-to-find-genuinely-cheap-flights-avoiding-fake-deals-and-28-6/">how to find genuinely cheap flights avoiding fake deals and </a> 
+<a href="https://fideleturfturf.it.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
+<a href="https://fideleturfturf.it.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
+<a href="https://fideleturfturf.it.com/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
+<a href="https://fideleturfturf.it.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
+<a href="https://fideleturfturf.it.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
+<a href="https://fideleturfturf.it.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://fideleturfturf.it.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://fideleturfturf.it.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://fideleturfturf.it.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
+<a href="https://fideleturfturf.it.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://fideleturfturf.it.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://fideleturfturf.it.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu-2/">how to tell explainer journalism from opinion a practical gu</a> 
+<a href="https://fideleturfturf.it.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
+<a href="https://fideleturfturf.it.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://fideleturfturf.it.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://fideleturfturf.it.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://fideleturfturf.it.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
+<a href="https://fideleturfturf.it.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://fideleturfturf.it.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
 <a href="https://fideleturfturf.it.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
 <a href="https://fideleturfturf.it.com/making-sense-of-complex-topics-online-a-quick-guide-2/">making sense of complex topics online a quick guide 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-96-5-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-96-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-96-6-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-96-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-3/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://forotesis.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://forotesis.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://forotesis.com/understanding-how-search-engines-rank-pages-2/">understanding how search engines rank pages 2</a> 
-<a href="https://forotesis.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://forotesis.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://forotesis.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://forotesis.com/understanding-marketing-seo-growth-a-comprehensive-guide-for-96-5/">understanding marketing seo growth a comprehensive guide for</a> 
-<a href="https://forotesis.com/understanding-the-impact-of-ai-on-modern-journalism-a-fresh/">understanding the impact of ai on modern journalism a fresh</a> 
-<a href="https://forotesis.com/understanding-the-impact-of-ai-on-modern-news-consumption-an-3/">understanding the impact of ai on modern news consumption an</a> 
-<a href="https://forotesis.com/understanding-the-impact-of-ai-on-modern-news-consumption/">understanding the impact of ai on modern news consumption</a> 
-<a href="https://forotesis.com/understanding-the-latest-cybersecurity-trends-analysis-and-e/">understanding the latest cybersecurity trends analysis and e</a> 
-<a href="https://forotesis.com/understanding-the-latest-trends-in-cryptocurrency-news-and-a/">understanding the latest trends in cryptocurrency news and a</a> 
