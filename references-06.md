@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
+<a href="https://bandemusic.com/how-html5-revolutionized-casual-browser-gaming-for-business-81-6/">how html5 revolutionized casual browser gaming for business </a> 
+<a href="https://bandemusic.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://bandemusic.com/how-to-boost-your-productivity-with-the-best-apps-for-a-digi/">how to boost your productivity with the best apps for a digi</a> 
+<a href="https://bandemusic.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://bandemusic.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://bandemusic.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://bandemusic.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://bandemusic.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
 <a href="https://bandemusic.com/how-to-find-reliable-how-to-guides-2/">how to find reliable how to guides 2</a> 
@@ -785,20 +802,3 @@
 <a href="https://builtwith.com/ecoinsupply.com">ecoinsupply.com</a> 
 <a href="https://builtwith.com/ecoonomia.com">ecoonomia.com</a> 
 <a href="https://builtwith.com/etherelysium.com">etherelysium.com</a> 
-<a href="https://builtwith.com/foxperiodical.com">foxperiodical.com</a> 
-<a href="https://builtwith.com/fullimedia.com.co">fullimedia.com.co</a> 
-<a href="https://builtwith.com/getcryptomedia.com">getcryptomedia.com</a> 
-<a href="https://builtwith.com/gpsiteslist.org">gpsiteslist.org</a> 
-<a href="https://builtwith.com/idiominsider.net">idiominsider.net</a> 
-<a href="https://builtwith.com/marketcapitalize.com">marketcapitalize.com</a> 
-<a href="https://builtwith.com/mycoinpartner.com">mycoinpartner.com</a> 
-<a href="https://builtwith.com/newsrealtors.xyz">newsrealtors.xyz</a> 
-<a href="https://builtwith.com/newzcryptos.com">newzcryptos.com</a> 
-<a href="https://builtwith.com/oxpoll.cc">oxpoll.cc</a> 
-<a href="https://builtwith.com/pqrnews.com">pqrnews.com</a> 
-<a href="https://builtwith.com/quikconsolecom.net">quikconsolecom.net</a> 
-<a href="https://builtwith.com/retirewithcrypto.net">retirewithcrypto.net</a> 
-<a href="https://builtwith.com/serpinsight.link">serpinsight.link</a> 
-<a href="https://builtwith.com/serpinsightlinkinsertion.in.net">serpinsightlinkinsertion.in.net</a> 
-<a href="https://builtwith.com/superlot2.com">superlot2.com</a> 
-<a href="https://builtwith.com/tbnexpress.com">tbnexpress.com</a> 

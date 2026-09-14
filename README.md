@@ -111,6 +111,8 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://camocryptcom.org/">camocryptcom.org</a> 
 <a href="https://upsattaking.cc/">upsattaking.cc</a> 
 <a href="https://idiominsider.net/">idiominsider.net</a> 
+<a href="https://cloudstacklinks.com/">cloudstacklinks.com</a> 
+<a href="https://example.com/">example.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -156,4 +158,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 41](references-41.md)
 - [Reference set 42](references-42.md)
 
-_33,518 curated references across 42 sets._
+_33,547 curated references across 42 sets._
