@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://emiamedical.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
+<a href="https://emiamedical.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://emiamedical.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-2/">guides reviews how tos 50 resources worth bookmarking 92 8 2</a> 
+<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-3/">guides reviews how tos 50 resources worth bookmarking 92 8 3</a> 
+<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8/">guides reviews how tos 50 resources worth bookmarking 92 8</a> 
+<a href="https://emiamedical.com/guides-reviews-how-tos-navigating-the-information-age-92-3/">guides reviews how tos navigating the information age 92 3</a> 
+<a href="https://emiamedical.com/how-ai-and-machine-learning-are-revolutionizing-everyday-app/">how ai and machine learning are revolutionizing everyday app</a> 
+<a href="https://emiamedical.com/how-ai-and-machine-learning-are-transforming-daily-life-and/">how ai and machine learning are transforming daily life and</a> 
+<a href="https://emiamedical.com/how-ai-driven-news-platforms-are-revolutionizing-current-eve/">how ai driven news platforms are revolutionizing current eve</a> 
+<a href="https://emiamedical.com/how-ai-is-transforming-news-consumption-current-trends-and-f/">how ai is transforming news consumption current trends and f</a> 
+<a href="https://emiamedical.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
+<a href="https://emiamedical.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://emiamedical.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-quick-guide-2/">how to avoid misinformation and hype a quick guide 2</a> 
 <a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
 <a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://emiamedical.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
@@ -786,19 +802,3 @@
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-93-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-3/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://ezoterizm.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://ezoterizm.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://ezoterizm.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://ezoterizm.com/understanding-how-search-engines-rank-pages-and-why-it-matte-2/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://ezoterizm.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://ezoterizm.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://ezoterizm.com/understanding-legal-information-and-news-a-comprehensive-gui/">understanding legal information and news a comprehensive gui</a> 
-<a href="https://ezoterizm.com/understanding-the-future-of-finance-cryptocurrency-bitcoin-a/">understanding the future of finance cryptocurrency bitcoin a</a> 
-<a href="https://ezoterizm.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
-<a href="https://ezoterizm.com/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://ezoterizm.com/understanding-the-latest-cybersecurity-trends-news-analysis/">understanding the latest cybersecurity trends news analysis</a> 
-<a href="https://ezoterizm.com/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://ezoterizm.com/unlock-the-power-of-keyword-research-a-beginner-s-guide-to-s/">unlock the power of keyword research a beginner s guide to s</a> 
-<a href="https://ezoterizm.com/unlock-the-power-of-seo-a-comprehensive-guide-to-boosting-yo/">unlock the power of seo a comprehensive guide to boosting yo</a> 

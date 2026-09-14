@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://feetfinder.uk.net/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://feetfinder.uk.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://feetfinder.uk.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://feetfinder.uk.net/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://feetfinder.uk.net/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://feetfinder.uk.net/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://feetfinder.uk.net/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://feetfinder.uk.net/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://feetfinder.uk.net/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://feetfinder.uk.net/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://feetfinder.uk.net/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://feetfinder.uk.net/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://feetfinder.uk.net/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://feetfinder.uk.net/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
 <a href="https://feetfinder.uk.net/how-to-choose-comfortable-everyday-shoes-that-actually-fit/">how to choose comfortable everyday shoes that actually fit</a> 
 <a href="https://feetfinder.uk.net/how-to-evaluate-online-reviews-and-recommendations-a-practical-guide/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://feetfinder.uk.net/how-to-evaluate-online-reviews-and-recommendations-explained-simply/">how to evaluate online reviews and recommendations explained</a> 
@@ -786,19 +802,3 @@
 <a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://forotesis.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://forotesis.com/boost-your-online-visibility-a-fresh-approach-to-seo-for-sma/">boost your online visibility a fresh approach to seo for sma</a> 
-<a href="https://forotesis.com/boosting-your-business-and-personal-finances-a-marketing-dri/">boosting your business and personal finances a marketing dri</a> 
-<a href="https://forotesis.com/breaking-down-the-latest-developments-in-global-news-and-ana/">breaking down the latest developments in global news and ana</a> 
-<a href="https://forotesis.com/breaking-down-the-latest-sports-trends-and-analytics-for-inf/">breaking down the latest sports trends and analytics for inf</a> 
-<a href="https://forotesis.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://forotesis.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://forotesis.com/business-finance-productivity-navigating-news-trends-and-res-96-6/">business finance productivity navigating news trends and res</a> 
-<a href="https://forotesis.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
-<a href="https://forotesis.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
-<a href="https://forotesis.com/comprehensive-guides-reviews-and-how-tos-for-every-need-96-9/">comprehensive guides reviews and how tos for every need 96 9</a> 
-<a href="https://forotesis.com/cplemaire-quoi-sert-un-annuaire-du-turf/">cplemaire quoi sert un annuaire du turf</a> 
-<a href="https://forotesis.com/cyberkannadig/">cyberkannadig</a> 
-<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-96-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
-<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-96-5/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://forotesis.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://forotesis.com/digital-tools-online-resources-50-resources-worth-bookmarkin-96-2/">digital tools online resources 50 resources worth bookmarkin</a> 

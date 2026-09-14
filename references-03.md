@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-why-primary-sources-matter-and-how-to-fin.html">what to know about why primary sources matter and how to fin</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-look-for-in-a-good-news-website-a-practical-guide.html">what to look for in a good news website a practical guide</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-look-for-in-a-good-news-website-a-quick-guide.html">what to look for in a good news website a quick guide</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-look-for-in-a-good-news-website-and-why-it-matters.html">what to look for in a good news website and why it matters</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-look-for-in-a-good-news-website-explained-simply.html">what to look for in a good news website explained simply</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-look-for-in-a-good-news-website-the-basics.html">what to look for in a good news website the basics</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-look-for-in-a-good-news-website.html">what to look for in a good news website</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/why-browser-games-are-perfect-for-a-quick-break.html">why browser games are perfect for a quick break</a> 
@@ -403,6 +408,7 @@
 <a href="https://algiamedical.com/mastering-the-art-of-growing-your-own-herb-garden-a-beginner/">mastering the art of growing your own herb garden a beginner</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-77-7-2/">mastering web tech content a comprehensive guide 77 7 2</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-77-7-3/">mastering web tech content a comprehensive guide 77 7 3</a> 
+<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-77-7-4/">mastering web tech content a comprehensive guide 77 7 4</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-77-7/">mastering web tech content a comprehensive guide 77 7</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-77-7/">mastering web tech content a comprehensive guide for savvy r</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-u-77-7/">mastering web tech content a comprehensive guide for savvy u</a> 
@@ -418,6 +424,7 @@
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-77-7/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-77-7/">mastering web tech content a comprehensive guide to online l</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-77-7-2/">mastering web tech content a comprehensive guide to online r</a> 
+<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-77-7-3/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-77-7/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-77-7-2/">mastering web tech content a comprehensive guide to reliable</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-77-7/">mastering web tech content a comprehensive guide to reliable</a> 
@@ -759,6 +766,8 @@
 <a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-18/">mastering marketing seo growth a comprehensive guide 78 8 18</a> 
 <a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-19/">mastering marketing seo growth a comprehensive guide 78 8 19</a> 
 <a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-2/">mastering marketing seo growth a comprehensive guide 78 8 2</a> 
+<a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-20/">mastering marketing seo growth a comprehensive guide 78 8 20</a> 
+<a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-21/">mastering marketing seo growth a comprehensive guide 78 8 21</a> 
 <a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-3/">mastering marketing seo growth a comprehensive guide 78 8 3</a> 
 <a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-4/">mastering marketing seo growth a comprehensive guide 78 8 4</a> 
 <a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-5/">mastering marketing seo growth a comprehensive guide 78 8 5</a> 
@@ -793,12 +802,3 @@
 <a href="https://alientapereviews.com/mastering-the-digital-landscape-how-to-choose-the-right-apps/">mastering the digital landscape how to choose the right apps</a> 
 <a href="https://alientapereviews.com/mastering-the-intersection-of-business-personal-finance-and/">mastering the intersection of business personal finance and</a> 
 <a href="https://alientapereviews.com/mastering-time-management-boost-your-productivity-with-these/">mastering time management boost your productivity with these</a> 
-<a href="https://alientapereviews.com/mastering-turf-pmu-horse-racing-guides-reviews-how-tos-78-7/">mastering turf pmu horse racing guides reviews how tos 78 7</a> 
-<a href="https://alientapereviews.com/mastering-your-digital-life-top-apps-for-enhanced-productivi/">mastering your digital life top apps for enhanced productivi</a> 
-<a href="https://alientapereviews.com/mastering-your-digital-life-top-apps-for-productivity-health/">mastering your digital life top apps for productivity health</a> 
-<a href="https://alientapereviews.com/maximizing-business-finance-and-productivity-with-advanced-s-78-4/">maximizing business finance and productivity with advanced s</a> 
-<a href="https://alientapereviews.com/maximizing-business-finance-and-productivity-with-digital-re-78-9/">maximizing business finance and productivity with digital re</a> 
-<a href="https://alientapereviews.com/maximizing-your-digital-life-tools-tips-and-resources-for-ev-78-10/">maximizing your digital life tools tips and resources for ev</a> 
-<a href="https://alientapereviews.com/navigating-business-finance-and-productivity-a-comprehensive-78-4/">navigating business finance and productivity a comprehensive</a> 
-<a href="https://alientapereviews.com/navigating-business-finance-productivity-essential-tools-and-78-9/">navigating business finance productivity essential tools and</a> 
-<a href="https://alientapereviews.com/navigating-business-finance-productivity-for-virginia-childh-78-9/">navigating business finance productivity for virginia childh</a> 
