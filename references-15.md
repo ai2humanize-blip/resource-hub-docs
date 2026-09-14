@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://ezoterizm.com/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
+<a href="https://ezoterizm.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://ezoterizm.com/why-explainer-journalism-matters-more-than-ever/">why explainer journalism matters more than ever</a> 
+<a href="https://ezoterizm.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
+<a href="https://ezoterizm.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://ezoterizm.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://ezoterizm.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://ezoterizm.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://ezoterizm.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://ezoterizm.com/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
+<a href="https://fabbusinesssolutions.com/5-essential-strategies-for-building-a-fulfilling-and-success/">5 essential strategies for building a fulfilling and success</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resources/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://fabbusinesssolutions.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://fabbusinesssolutions.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://fabbusinesssolutions.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
@@ -781,24 +802,3 @@
 <a href="https://feetfinder.uk.net/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://feetfinder.uk.net/walking-for-wellbeing-getting-started-the-right-way/">walking for wellbeing getting started the right way</a> 
 <a href="https://feetfinder.uk.net/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://feetfinder.uk.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://feetfinder.uk.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
-<a href="https://feetfinder.uk.net/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
-<a href="https://feetfinder.uk.net/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://feetfinder.uk.net/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://fideleturfturf.it.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
-<a href="https://fideleturfturf.it.com/a-href-https-cyberkannadigs-org-the-rise-of-digital-nomadism/">a href https cyberkannadigs org the rise of digital nomadism</a> 
-<a href="https://fideleturfturf.it.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://fideleturfturf.it.com/boost-your-online-presence-with-the-best-advanced-seo-agency/">boost your online presence with the best advanced seo agency</a> 
-<a href="https://fideleturfturf.it.com/boost-your-website-s-visibility-with-these-proven-seo-techni/">boost your website s visibility with these proven seo techni</a> 
-<a href="https://fideleturfturf.it.com/breaking-down-today-s-top-news-analysis-and-expert-insights/">breaking down today s top news analysis and expert insights</a> 
