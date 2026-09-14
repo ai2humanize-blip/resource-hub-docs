@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://homaryreviews.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://homaryreviews.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://homaryreviews.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://homaryreviews.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://homaryreviews.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://homaryreviews.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://homaryreviews.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://homaryreviews.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://homaryreviews.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://homaryreviews.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://homaryreviews.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
 <a href="https://homaryreviews.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://homaryreviews.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
@@ -792,13 +802,3 @@
 <a href="https://ipfs.filebase.io/ipfs/QmUjedtvmnrkNNn5vn8rzJNCNHgdnVJq1cBam4nRkfHPvd">QmUjedtvmnrkNNn5vn8rzJNCNHgdnVJq1cBam4nRkfHPvd</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUqJYan3S3xDw9AH2y4cwABnMaiQuZNhEmiKWJF3a9fHA">QmUqJYan3S3xDw9AH2y4cwABnMaiQuZNhEmiKWJF3a9fHA</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUx98d7SdfJnXkWJKXcGviwGMQUccUMsGWBpUxgr81q9u">QmUx98d7SdfJnXkWJKXcGviwGMQUccUMsGWBpUxgr81q9u</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmUxs4dfQpCCL6YQLpzAL1VPLNsq8RfQ52DSAphfCX2LUc">QmUxs4dfQpCCL6YQLpzAL1VPLNsq8RfQ52DSAphfCX2LUc</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmV1FbdscPetZPkgg5hKjxFg8MG78ZECR5Kj8jd98mSPLi">QmV1FbdscPetZPkgg5hKjxFg8MG78ZECR5Kj8jd98mSPLi</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVLEGPDzzpSpkQoQ5pqmww2SC4YpRwykN8jk2Wn6xkmqW">QmVLEGPDzzpSpkQoQ5pqmww2SC4YpRwykN8jk2Wn6xkmqW</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVNfNHrpVMdekd41rg3D38DFgyACHbPoxLu2pReSD2TNG">QmVNfNHrpVMdekd41rg3D38DFgyACHbPoxLu2pReSD2TNG</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVi5Ygu5g4xsYtsmiB13fQP4gnkvwVPvVeitCHz73cRFg">QmVi5Ygu5g4xsYtsmiB13fQP4gnkvwVPvVeitCHz73cRFg</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVkVixxeoBwNzzhbFKe1EHfnYhYYuUs7HoqxdBu2S7U2L">QmVkVixxeoBwNzzhbFKe1EHfnYhYYuUs7HoqxdBu2S7U2L</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVr43tqBSCA2fkLtioB1cDNSB65GCBEadVd5v7Eo7LgMT">QmVr43tqBSCA2fkLtioB1cDNSB65GCBEadVd5v7Eo7LgMT</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVrcRVdv9eUoTx4ZRFaDmXTA1o8JHekPhc7oBW3c35nUn">QmVrcRVdv9eUoTx4ZRFaDmXTA1o8JHekPhc7oBW3c35nUn</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmVv2XsoHpgyH5EwVmx1T35Mdk53KRK9vTZdNeq2Qj5ch7">QmVv2XsoHpgyH5EwVmx1T35Mdk53KRK9vTZdNeq2Qj5ch7</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmW7SQu2WQ6TFdCqN573Gc7BRWfn6CfG3638AL3jVJDNPb">QmW7SQu2WQ6TFdCqN573Gc7BRWfn6CfG3638AL3jVJDNPb</a> 

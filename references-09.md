@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://competitorscreenshots.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
@@ -800,5 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-how-to-avoid-misinformation-and.html">getting how to avoid misinformation and</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-how-to-read-news-without.html">getting how to read news without</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-how-to-spot-low-quality-content.html">getting how to spot low quality content</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-understanding-digital-literacy.html">getting understanding digital literacy</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-what-makes-explainer-article.html">getting what makes explainer article</a> 

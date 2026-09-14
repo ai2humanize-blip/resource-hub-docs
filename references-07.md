@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwhelmed/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
@@ -800,5 +802,3 @@
 <a href="https://cbdpuffbars.com/comprehensive-guides-reviews-and-how-tos-for-tech-crypto-and-84-6/">comprehensive guides reviews and how tos for tech crypto and</a> 
 <a href="https://cbdpuffbars.com/comprehensive-guides-reviews-how-tos-your-ultimate-resource-84-6/">comprehensive guides reviews how tos your ultimate resource </a> 
 <a href="https://cbdpuffbars.com/comprehensive-roundup-guides-reviews-how-tos-for-every-inter-84-6/">comprehensive roundup guides reviews how tos for every inter</a> 
-<a href="https://cbdpuffbars.com/cyberkannadig-the-future-of-web-tech-content-in-2026-84-5/">cyberkannadig the future of web tech content in 2026 84 5</a> 
-<a href="https://cbdpuffbars.com/decoding-news-trends-expert-guides-reviews-and-how-tos-for-2-84-6/">decoding news trends expert guides reviews and how tos for 2</a> 

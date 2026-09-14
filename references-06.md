@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bandemusic.com/how-to-spot-low-quality-content-online-and-why-it-matters-2/">how to spot low quality content online and why it matters 2</a> 
+<a href="https://bandemusic.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
 <a href="https://bandemusic.com/how-to-stay-informed-with-reliable-news-sources-in-a-digital/">how to stay informed with reliable news sources in a digital</a> 
 <a href="https://bandemusic.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
 <a href="https://bandemusic.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
@@ -800,5 +802,3 @@
 <a href="https://capable-kelpie-04ab5e.netlify.app/navigating-the-future-how-bitcoin-blockchain-and-cryptocurre.html">navigating the future how bitcoin blockchain and cryptocurre</a> 
 <a href="https://captainjackinterview.com/a-2023-fall-fashion-trends-elevate-your-style-with-these-fre/">a 2023 fall fashion trends elevate your style with these fre</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
