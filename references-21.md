@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://insurance-thai.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://insurance-thai.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://insurance-thai.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://insurance-thai.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://insurance-thai.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
+<a href="https://insurance-thai.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNLn1QVvwMxd3NV31WRgJL2DR95sWDXsZ11qW4U7uLjyb">QmNLn1QVvwMxd3NV31WRgJL2DR95sWDXsZ11qW4U7uLjyb</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNN96T6dNZC3iMCy6r4UJqHL1rNhWYs1uUgzWGmSjSqPN">QmNN96T6dNZC3iMCy6r4UJqHL1rNhWYs1uUgzWGmSjSqPN</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNNVt3BjMXVwZZxNqBXeZGD2MnRsm6XMgMC74SiqB99vv">QmNNVt3BjMXVwZZxNqBXeZGD2MnRsm6XMgMC74SiqB99vv</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNNYW4Kn9JSixKffxhDjx2rtfSTuBXPwT4zvWShEQofkz">QmNNYW4Kn9JSixKffxhDjx2rtfSTuBXPwT4zvWShEQofkz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNYH16Yhe8ALtykbbKpQ4tTNi5GRNjUSjmDMzvVnRHVsG">QmNYH16Yhe8ALtykbbKpQ4tTNi5GRNjUSjmDMzvVnRHVsG</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNZd4ypVfLZzdfDbqEc2TyytQUSC9Fwxa5kNdT5K56M2a">QmNZd4ypVfLZzdfDbqEc2TyytQUSC9Fwxa5kNdT5K56M2a</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNashaZCJpUjMhu8AJyYEFvzQ454RK5s7KsUiT2H1J6wR">QmNashaZCJpUjMhu8AJyYEFvzQ454RK5s7KsUiT2H1J6wR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNeQCA5A2YHrcHDbQ9aZEVidhgohFTHFSuNCtEsQKPpBt">QmNeQCA5A2YHrcHDbQ9aZEVidhgohFTHFSuNCtEsQKPpBt</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNi4JNHkU2t52r7Mxv6bA7xEmitzPby8NzonWvueuJvE4">QmNi4JNHkU2t52r7Mxv6bA7xEmitzPby8NzonWvueuJvE4</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT">QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE">QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3">QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP">QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP">QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V">QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY">QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B">QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX">QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX</a> 
@@ -781,24 +802,3 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-11/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-12/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-13/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-4/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-5/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-6/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-7/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-8/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-53-4-2/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-53-4/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-skills-for-53-4-2/">mastering business finance productivity essential skills for</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-skills-for-53-4/">mastering business finance productivity essential skills for</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-53-4-2/">mastering business finance productivity in the digital age 5</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-53-4-3/">mastering business finance productivity in the digital age 5</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-53-4-4/">mastering business finance productivity in the digital age 5</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-53-4-5/">mastering business finance productivity in the digital age 5</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-53-4/">mastering business finance productivity in the digital age 5</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-a-53-4-2/">mastering business finance productivity in the digital age a</a> 
-<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-a-53-4-3/">mastering business finance productivity in the digital age a</a> 
