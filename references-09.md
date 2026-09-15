@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cochesdeocasion.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cochesdeocasion.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cochesdeocasion.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://cochesdeocasion.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cochesdeocasion.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cochesdeocasion.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cochesdeocasion.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://cochesdeocasion.xyz/getting-started-with-a-password-manager/">getting started with a password manager</a> 
 <a href="https://cochesdeocasion.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://cochesdeocasion.xyz/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
 <a href="https://cochesdeocasion.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
@@ -569,6 +580,7 @@
 <a href="https://croginalcats.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://croginalcats.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://croginalcats.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://croginalcats.xyz/techvantor/">techvantor</a> 
 <a href="https://croginalcats.xyz/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
 <a href="https://croginalcats.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://croginalcats.xyz/what-makes-an-explainer-article-genuinely-useful-a-practical-guide/">what makes an explainer article genuinely useful a practical</a> 
@@ -790,15 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/market-research-reports.html">market research reports</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/marketcapitalizecom-your-go-to-source.html">marketcapitalizecom your go to source</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/marketing-seo-growth-27-resources-worth.html">marketing seo growth 27 resources worth</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/marketing-seo-growth-45-resources-worth.html">marketing seo growth 45 resources worth</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/marketing-seo-growth-45-resources-worth_01741982175.html">marketing seo growth 45 resources worth 01741982175</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/mastering-personal-finance-how-smart.html">mastering personal finance how smart</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/micannamarketing-your-trusted-source.html">micannamarketing your trusted source</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/micro-influencer-rates.html">micro influencer rates</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/midjourney-prompts.html">midjourney prompts</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/money-news-today.html">money news today</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/monsoon-health-tips-india.html">monsoon health tips india</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/mycoinpartnercom-comprehensive-overview.html">mycoinpartnercom comprehensive overview</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/newsrealtors-independent-coverage-of.html">newsrealtors independent coverage of</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/newsrealtors-india-following-stories.html">newsrealtors india following stories</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/newsrealtors-india-following-stories_01706269139.html">newsrealtors india following stories 01706269139</a> 

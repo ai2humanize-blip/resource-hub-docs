@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://cbd-stone.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
+<a href="https://cbd-stone.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-2/">revolutionizing daily life how ai powered apps are transform</a> 
+<a href="https://cbd-stone.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-83-6/">revolutionizing daily life how ai powered apps are transform</a> 
+<a href="https://cbd-stone.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 
+<a href="https://cbd-stone.com/revolutionizing-digital-life-the-impact-of-ai-powered-apps-a-83-6/">revolutionizing digital life the impact of ai powered apps a</a> 
+<a href="https://cbd-stone.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://cbd-stone.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
+<a href="https://cbd-stone.com/staying-informed-in-2023-guides-reviews-how-tos-for-navigati-83-7/">staying informed in 2023 guides reviews how tos for navigati</a> 
+<a href="https://cbd-stone.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
+<a href="https://cbd-stone.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
+<a href="https://cbd-stone.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://cbd-stone.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://cbd-stone.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://cbd-stone.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
@@ -791,14 +802,3 @@
 <a href="https://cochesdeocasion.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://cochesdeocasion.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cochesdeocasion.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://cochesdeocasion.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://cochesdeocasion.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://cochesdeocasion.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://cochesdeocasion.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://cochesdeocasion.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://cochesdeocasion.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://cochesdeocasion.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://cochesdeocasion.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
-<a href="https://cochesdeocasion.xyz/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
-<a href="https://cochesdeocasion.xyz/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://cochesdeocasion.xyz/getting-started-with-a-password-manager/">getting started with a password manager</a> 

@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://bandemusic.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://bandemusic.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://bandemusic.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
+<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://bandemusic.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
+<a href="https://bandemusic.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://bandemusic.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://bandemusic.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://bandemusic.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
@@ -794,11 +802,3 @@
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohdifg5c2l">3muohdifg5c2l</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoheowh6c2l">3muoheowh6c2l</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohfx3kdy2x">3muohfx3kdy2x</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohh5hvxq2x">3muohh5hvxq2x</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohiflm4r2v">3muohiflm4r2v</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohjnhujv2i">3muohjnhujv2i</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohkvda6k2a">3muohkvda6k2a</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohm56zyg2x">3muohm56zyg2x</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohneyzsn2i">3muohneyzsn2i</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohommgub2v">3muohommgub2v</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohpsl5tt2f">3muohpsl5tt2f</a> 

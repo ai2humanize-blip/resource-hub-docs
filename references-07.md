@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohh5hvxq2x">3muohh5hvxq2x</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohiflm4r2v">3muohiflm4r2v</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohjnhujv2i">3muohjnhujv2i</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohkvda6k2a">3muohkvda6k2a</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohm56zyg2x">3muohm56zyg2x</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohneyzsn2i">3muohneyzsn2i</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohommgub2v">3muohommgub2v</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohpsl5tt2f">3muohpsl5tt2f</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohqzotnz2v">3muohqzotnz2v</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohsh2vso2x">3muohsh2vso2x</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muohtoywnt2a">3muohtoywnt2a</a> 
@@ -419,6 +427,7 @@
 <a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://captainjackinterview.com/wifi-keeps-disconnecting/">wifi keeps disconnecting</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
@@ -563,6 +572,7 @@
 <a href="https://casinonutanlicens.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://casinonutanlicens.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://casinonutanlicens.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://casinonutanlicens.xyz/fix-a-stuck-windows-update/">fix a stuck windows update</a> 
 <a href="https://casinonutanlicens.xyz/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
 <a href="https://casinonutanlicens.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
 <a href="https://casinonutanlicens.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -581,6 +591,7 @@
 <a href="https://casinonutanlicens.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://casinonutanlicens.xyz/smart-ways-to-learn-and-research-on-the-web-2/">smart ways to learn and research on the web 2</a> 
 <a href="https://casinonutanlicens.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://casinonutanlicens.xyz/the-full-cost-of-self-publishing/">the full cost of self publishing</a> 
 <a href="https://casinonutanlicens.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://casinonutanlicens.xyz/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://casinonutanlicens.xyz/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
@@ -791,14 +802,3 @@
 <a href="https://cbd-stone.com/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
 <a href="https://cbd-stone.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
 <a href="https://cbd-stone.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://cbd-stone.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
-<a href="https://cbd-stone.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-2/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://cbd-stone.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-83-6/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://cbd-stone.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://cbd-stone.com/revolutionizing-digital-life-the-impact-of-ai-powered-apps-a-83-6/">revolutionizing digital life the impact of ai powered apps a</a> 
-<a href="https://cbd-stone.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cbd-stone.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://cbd-stone.com/staying-informed-in-2023-guides-reviews-how-tos-for-navigati-83-7/">staying informed in 2023 guides reviews how tos for navigati</a> 
-<a href="https://cbd-stone.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://cbd-stone.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://cbd-stone.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
