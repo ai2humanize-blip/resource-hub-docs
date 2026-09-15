@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cnlawblog.jpn.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
+<a href="https://cnlawblog.jpn.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
+<a href="https://cnlawblog.jpn.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://cnlawblog.jpn.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://cnlawblog.jpn.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cnlawblog.jpn.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://cnlawblog.jpn.com/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
@@ -798,7 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-bio-line-break-generator.html">instagram bio line break generator</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-bio-line-breaks.html">instagram bio line breaks</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-caption-counter.html">instagram caption counter</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-caption-length.html">instagram caption length</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-carousel-splitter.html">instagram carousel splitter</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-engagement-rate-calculator.html">instagram engagement rate calculator</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-follower-growth-calculator.html">instagram follower growth calculator</a> 
