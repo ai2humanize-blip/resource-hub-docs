@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cnlawblog.jpn.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cnlawblog.jpn.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cnlawblog.jpn.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cnlawblog.jpn.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cnlawblog.jpn.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cnlawblog.jpn.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-organize-the-information-you-find-online-right/">getting how to organize the information you find online righ</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://cnlawblog.jpn.com/how-courts-and-the-justice-system-work/">how courts and the justice system work</a> 
+<a href="https://cnlawblog.jpn.com/how-laws-are-made-a-plain-language-guide/">how laws are made a plain language guide</a> 
+<a href="https://cnlawblog.jpn.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://cnlawblog.jpn.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
 <a href="https://cnlawblog.jpn.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-a-practical-guide/">how to fact check something in five minutes a practical guid</a> 
@@ -790,15 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-read-crypto-news-without-getting.html">how to read crypto news without getting</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-send-money-to-philippines.html">how to send money to philippines</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/hypepressscom-your-go-to-source-for.html">hypepressscom your go to source for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/illicit-label.html">illicit label</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/illicitlabelcom-underground-music.html">illicitlabelcom underground music</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/indian-legal-news.html">indian legal news</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/indian-nutrition-guide-hindi.html">indian nutrition guide hindi</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/industry-analysis-reports.html">industry analysis reports</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-marketing-glossary.html">influencer marketing glossary</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-marketing-guide.html">influencer marketing guide</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-marketing-platforms.html">influencer marketing platforms</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-metrics.html">influencer metrics</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-rate-calculator.html">influencer rate calculator</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-rate-calculator_0759104611.html">influencer rate calculator 0759104611</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-rates.html">influencer rates</a> 
