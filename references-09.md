@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
+<a href="https://cmdslot.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cmdslot.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cmdslot.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cmdslot.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cmdslot.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cmdslot.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cmdslot.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cmdslot.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cmdslot.xyz/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://cmdslot.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://cmdslot.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cmdslot.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://cmdslot.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://cmdslot.xyz/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
+<a href="https://cmdslot.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://cmdslot.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://cmdslot.xyz/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
 <a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
 <a href="https://cmdslot.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
@@ -784,21 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/filipino-superstitions.html">filipino superstitions</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/filipino-wedding-traditions.html">filipino wedding traditions</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/find-female-influencers.html">find female influencers</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/flux-prompts.html">flux prompts</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/foxperiodicalcom-your-trusted-source.html">foxperiodicalcom your trusted source</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/free-art-prompt-generator.html">free art prompt generator</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/free-art-prompt-generator_01063369021.html">free art prompt generator 01063369021</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/fullimedia-com-your-trusted-source-for.html">fullimedia com your trusted source for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/fullimedia-com.html">fullimedia com</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/fullimedia.html">fullimedia</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/getcryptomediacom-your-trusted-source.html">getcryptomediacom your trusted source</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/getjobsnewscom-your-comprehensive-guide.html">getjobsnewscom your comprehensive guide</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/gp-sites-list.html">gp sites list</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/gpsiteslist-your-go-to-resource-for.html">gpsiteslist your go to resource for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/gpsiteslist.html">gpsiteslist</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/guest-post-directory.html">guest post directory</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/guest-post-sites-list.html">guest post sites list</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/guest-posting-service.html">guest posting service</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/guest-posting-sites.html">guest posting sites</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/hogatoga-com-comprehensive-overview-of.html">hogatoga com comprehensive overview of</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/home-improvement-guide.html">home improvement guide</a> 
