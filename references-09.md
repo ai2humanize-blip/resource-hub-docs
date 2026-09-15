@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cmdslot.xyz/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://cmdslot.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://cmdslot.xyz/spot-sars-and-banking-phishing-scams-2/">spot sars and banking phishing scams 2</a> 
+<a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cmdslot.xyz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://cmdslot.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://cmdslot.xyz/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://cmdslot.xyz/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cmdslot.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://cnlawblog.jpn.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cnlawblog.jpn.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cnlawblog.jpn.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cnlawblog.jpn.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cnlawblog.jpn.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://cnlawblog.jpn.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
@@ -786,19 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/guest-posting-sites.html">guest posting sites</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/hogatoga-com-comprehensive-overview-of.html">hogatoga com comprehensive overview of</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/home-improvement-guide.html">home improvement guide</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/homesickness-ofw.html">homesickness ofw</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-long-do-backlinks-last.html">how long do backlinks last</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-many-backlinks-per-month.html">how many backlinks per month</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-much-do-backlinks-cost.html">how much do backlinks cost</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-much-do-influencers-charge.html">how much do influencers charge</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-much-to-charge-for-instagram-post.html">how much to charge for instagram post</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-check-casino-licence.html">how to check casino licence</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-cook-adobo.html">how to cook adobo</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-cook-sinigang.html">how to cook sinigang</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-evaluate-backlink-quality.html">how to evaluate backlink quality</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-find-influencers.html">how to find influencers</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-find-influencers_0325258717.html">how to find influencers 0325258717</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-find-influencers_0853179247.html">how to find influencers 0853179247</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-read-crypto-news-without-getting.html">how to read crypto news without getting</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/how-to-send-money-to-philippines.html">how to send money to philippines</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/hypepressscom-your-go-to-source-for.html">hypepressscom your go to source for</a> 

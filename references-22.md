@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://jiurui9.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://jiurui9.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://jiurui9.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://jiurui9.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
+<a href="https://jiurui9.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
+<a href="https://jiurui9.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://jiurui9.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://jiurui9.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://jiurui9.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://jiurui9.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
+<a href="https://jiurui9.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
+<a href="https://jiurui9.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://jiurui9.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://jiurui9.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://jiurui9.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://jiurui9.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://jiurui9.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://jiurui9.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://jiurui9.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
 <a href="https://jiurui9.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
@@ -118,6 +137,7 @@
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-smarter-interne-53-10/">essential digital tools online resources for smarter interne</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-smarter-interne-53-5/">essential digital tools online resources for smarter interne</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-smarter-researc-53-5/">essential digital tools online resources for smarter researc</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-the-modern-read-53-5/">essential digital tools online resources for the modern read</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-for-virginia-childh-53-5/">essential digital tools online resources for virginia childh</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/essential-digital-tools-online-resources-to-safeguard-agains-53-5/">essential digital tools online resources to safeguard agains</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/expert-guides-reviews-and-how-tos-transform-your-life-with-i-53-7/">expert guides reviews and how tos transform your life with i</a> 
@@ -245,6 +265,8 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-10/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-11/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-12/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-13/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-14/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-3/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-53-5-4/">mastering digital tools online resources a comprehensive gui</a> 
@@ -780,25 +802,3 @@
 <a href="https://landscape-paintings.net/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
 <a href="https://landscape-paintings.net/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://landscape-paintings.net/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://landscape-paintings.net/how-to-find-balanced-coverage-of-a-topic-a-quick-guide-2/">how to find balanced coverage of a topic a quick guide 2</a> 
-<a href="https://landscape-paintings.net/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://landscape-paintings.net/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://landscape-paintings.net/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://landscape-paintings.net/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
-<a href="https://landscape-paintings.net/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://landscape-paintings.net/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://landscape-paintings.net/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://landscape-paintings.net/how-to-navigate-job-transitions-smoothly-and-strategically/">how to navigate job transitions smoothly and strategically</a> 
-<a href="https://landscape-paintings.net/how-to-organize-the-information-you-find-online-a-practical-2/">how to organize the information you find online a practical </a> 
-<a href="https://landscape-paintings.net/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://landscape-paintings.net/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
-<a href="https://landscape-paintings.net/how-to-organize-the-information-you-find-online-explained-simply/">how to organize the information you find online explained si</a> 
-<a href="https://landscape-paintings.net/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://landscape-paintings.net/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
-<a href="https://landscape-paintings.net/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://landscape-paintings.net/how-to-read-the-news-without-getting-overwhelmed-and-why-it-matters/">how to read the news without getting overwhelmed and why it </a> 
-<a href="https://landscape-paintings.net/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
-<a href="https://landscape-paintings.net/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://landscape-paintings.net/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://landscape-paintings.net/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://landscape-paintings.net/how-to-stay-organized-in-the-digital-age-top-apps-and-strate/">how to stay organized in the digital age top apps and strate</a> 
