@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://autumnfallsinterview.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
 <a href="https://autumnfallsinterview.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
 <a href="https://autumnfallsinterview.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://autumnfallsinterview.com/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
@@ -798,7 +802,3 @@
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muog7g4re62a">3muog7g4re62a</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogamicqa2l">3muogamicqa2l</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogbuehdm2e">3muogbuehdm2e</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogd4ny5t2x">3muogd4ny5t2x</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogekbxyb24">3muogekbxyb24</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogfv4eos2x">3muogfv4eos2x</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoghabwib24">3muoghabwib24</a> 

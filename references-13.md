@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://dev.to/ai2humanizeblip/a-closer-look-at-a-simple-framework-for-researching-any-topic-online-elf">a closer look at a simple framework for researching any topi</a> 
+<a href="https://dev.to/ai2humanizeblip/a-closer-look-at-building-a-healthy-daily-reading-habit-2309">a closer look at building a healthy daily reading habit 2309</a> 
+<a href="https://dev.to/ai2humanizeblip/a-closer-look-at-building-a-healthy-daily-reading-habit-c6j">a closer look at building a healthy daily reading habit c6j</a> 
+<a href="https://dev.to/ai2humanizeblip/a-closer-look-at-how-to-build-a-personal-reading-list-d9p">a closer look at how to build a personal reading list d9p</a> 
+<a href="https://dev.to/ai2humanizeblip/a-closer-look-at-how-to-compare-sources-on-the-same-story-361m">a closer look at how to compare sources on the same story 36</a> 
+<a href="https://dev.to/ai2humanizeblip/a-closer-look-at-how-to-compare-sources-on-the-same-story-4mni">a closer look at how to compare sources on the same story 4m</a> 
+<a href="https://dev.to/ai2humanizeblip/a-closer-look-at-how-to-evaluate-online-reviews-and-recommendations-1972">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://dev.to/ai2humanizeblip/a-closer-look-at-how-to-fact-check-something-in-five-minutes-20pc">a closer look at how to fact check something in five minutes</a> 
 <a href="https://dev.to/ai2humanizeblip/a-closer-look-at-the-basics-of-staying-safe-while-browsing-527">a closer look at the basics of staying safe while browsing 5</a> 
 <a href="https://dev.to/ai2humanizeblip/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online-5g0d">a closer look at the difference between skimming and deep re</a> 
 <a href="https://dev.to/ai2humanizeblip/a-closer-look-at-why-context-matters-when-reading-online-21j9">a closer look at why context matters when reading online 21j</a> 
@@ -305,6 +313,7 @@
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-practical-guide-to-online-literacy-59p7">navigating web tech content a practical guide to online lite</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-avoiding-misinformation-and-enhancing-your-online-experience-3gii">navigating web tech content avoiding misinformation and enha</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-essential-guides-for-filipinos-1d49">navigating web tech content essential guides for filipinos 1</a> 
+<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-essential-guides-for-modern-living-lf7">navigating web tech content essential guides for modern livi</a> 
 <a href="https://dev.to/ai2humanizeblip/protecting-your-privacy-the-rise-of-anonymous-messaging-apps-in-the-digital-age-3ocn">protecting your privacy the rise of anonymous messaging apps</a> 
 <a href="https://dev.to/ai2humanizeblip/recognizing-credible-experts-online-373a">recognizing credible experts online 373a</a> 
 <a href="https://dev.to/ai2humanizeblip/recognizing-credible-experts-online-a-quick-guide-4kfk">recognizing credible experts online a quick guide 4kfk</a> 
@@ -793,12 +802,3 @@
 <a href="https://emiamedical.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://emiamedical.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://emiamedical.com/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://emiamedical.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://emiamedical.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://emiamedical.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://emiamedical.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://emiamedical.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://emiamedical.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://emiamedical.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
-<a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 

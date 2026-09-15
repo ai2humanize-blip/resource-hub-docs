@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://jollibeecasino.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://jollibeecasino.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://jollibeecasino.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://jollibeecasino.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://jollibeecasino.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://jollibeecasino.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://jollibeecasino.xyz/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://jollibeecasino.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://jollibeecasino.xyz/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://jollibeecasino.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://jollibeecasino.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://jollibeecasino.xyz/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://jollibeecasino.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://jollibeecasino.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://jollibeecasino.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://jollibeecasino.xyz/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
 <a href="https://jollibeecasino.xyz/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
 <a href="https://jollibeecasino.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://jollibeecasino.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
@@ -13,6 +29,7 @@
 <a href="https://jollibeecasino.xyz/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://jollibeecasino.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://jolly-beignet-ec513c.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://jolly-kitsune-450926.netlify.app/protecting-your-nid-and-birth-information.html">protecting your nid and birth information</a> 
 <a href="https://jovial-kelpie-ff68f5.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-a-co.html">understanding the impact of ai on modern news reporting a co</a> 
 <a href="https://kaleidoscopic-hotteok-de9543.netlify.app/staying-informed-navigating-today-s-news-landscape-with-reli.html">staying informed navigating today s news landscape with reli</a> 
 <a href="https://keen-torte-88724d.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -785,20 +802,3 @@
 <a href="https://landscape-paintings.net/mastering-marketing-seo-growth-a-comprehensive-roundup-105-6/">mastering marketing seo growth a comprehensive roundup 105 6</a> 
 <a href="https://landscape-paintings.net/mastering-marketing-seo-growth-strategies-for-business-succe-105-6-2/">mastering marketing seo growth strategies for business succe</a> 
 <a href="https://landscape-paintings.net/mastering-marketing-seo-growth-strategies-for-business-succe-105-6/">mastering marketing seo growth strategies for business succe</a> 
-<a href="https://landscape-paintings.net/mastering-marketing-seo-growth-strategies-for-success-in-202-105-6/">mastering marketing seo growth strategies for success in 202</a> 
-<a href="https://landscape-paintings.net/mastering-marketing-seo-growth-strategies-for-success-in-the-105-6/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://landscape-paintings.net/mastering-modern-knowledge-guides-reviews-how-tos-for-inform-105-10/">mastering modern knowledge guides reviews how tos for inform</a> 
-<a href="https://landscape-paintings.net/mastering-personal-finance-and-strategic-marketing-a-compreh-105-5/">mastering personal finance and strategic marketing a compreh</a> 
-<a href="https://landscape-paintings.net/mastering-personal-finance-for-business-growth-a-marketing-p/">mastering personal finance for business growth a marketing p</a> 
-<a href="https://landscape-paintings.net/mastering-personal-finance-how-strategic-business-and-market/">mastering personal finance how strategic business and market</a> 
-<a href="https://landscape-paintings.net/mastering-personal-finance-marketing-and-business-growth-a-s-105-6/">mastering personal finance marketing and business growth a s</a> 
-<a href="https://landscape-paintings.net/mastering-the-art-of-meal-prep-a-beginner-s-guide-to-efficie/">mastering the art of meal prep a beginner s guide to efficie</a> 
-<a href="https://landscape-paintings.net/mastering-the-art-of-personal-finance-and-marketing-for-busi/">mastering the art of personal finance and marketing for busi</a> 
-<a href="https://landscape-paintings.net/mastering-the-art-of-productive-meetings-a-comprehensive-gui/">mastering the art of productive meetings a comprehensive gui</a> 
-<a href="https://landscape-paintings.net/mastering-the-digital-world-essential-apps-and-tech-tips-for/">mastering the digital world essential apps and tech tips for</a> 
-<a href="https://landscape-paintings.net/mastering-web-tech-content-a-comprehensive-roundup-105-4/">mastering web tech content a comprehensive roundup 105 4</a> 
-<a href="https://landscape-paintings.net/navigating-modern-careers-expert-strategies-for-career-growt-105-7/">navigating modern careers expert strategies for career growt</a> 
-<a href="https://landscape-paintings.net/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://landscape-paintings.net/navigating-online-casino-news-safety-trends-and-responsible/">navigating online casino news safety trends and responsible</a> 
-<a href="https://landscape-paintings.net/navigating-privacy-in-the-digital-age-apps-and-tools-for-sec/">navigating privacy in the digital age apps and tools for sec</a> 
-<a href="https://landscape-paintings.net/navigating-the-complex-world-of-ai-in-journalism-current-tre/">navigating the complex world of ai in journalism current tre</a> 

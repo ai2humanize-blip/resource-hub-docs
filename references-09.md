@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cnlawblog.jpn.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://cnlawblog.jpn.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-a-practical-guide/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://cnlawblog.jpn.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://cnlawblog.jpn.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
 <a href="https://cnlawblog.jpn.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
 <a href="https://cnlawblog.jpn.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
@@ -137,6 +141,7 @@
 <a href="https://competitorscreenshots.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
 <a href="https://competitorscreenshots.com/the-difference-between-skimming-and-deep-reading-online-expl-2/">the difference between skimming and deep reading online expl</a> 
 <a href="https://competitorscreenshots.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://competitorscreenshots.com/the-teen-patti-terms-glossary/">the teen patti terms glossary</a> 
 <a href="https://competitorscreenshots.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
 <a href="https://competitorscreenshots.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://competitorscreenshots.com/understanding-digital-literacy/">understanding digital literacy</a> 
@@ -797,8 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-rate-calculator.html">influencer rate calculator</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-rate-calculator_0759104611.html">influencer rate calculator 0759104611</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-rates.html">influencer rates</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/influencer-whitelisting.html">influencer whitelisting</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-analytics-guide.html">instagram analytics guide</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-bio-line-break-generator.html">instagram bio line break generator</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-bio-line-breaks.html">instagram bio line breaks</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-caption-counter.html">instagram caption counter</a> 
