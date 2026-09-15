@@ -113,6 +113,11 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://idiominsider.net/">idiominsider.net</a> 
 <a href="https://cloudstacklinks.com/">cloudstacklinks.com</a> 
 <a href="https://example.com/">example.com</a> 
+<a href="https://techquillercom.org/">techquillercom.org</a> 
+<a href="https://techvantor.xyz/">techvantor.xyz</a> 
+<a href="https://blueflamepublishingblog.xyz/">blueflamepublishingblog.xyz</a> 
+<a href="https://sabiguide.com/">sabiguide.com</a> 
+<a href="https://staycluedup.com/">staycluedup.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -159,4 +164,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 42](references-42.md)
 - [Reference set 43](references-43.md)
 
-_33,846 curated references across 43 sets._
+_33,922 curated references across 43 sets._

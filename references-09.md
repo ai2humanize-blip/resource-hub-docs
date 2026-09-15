@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cnlawblog.jpn.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://cnlawblog.jpn.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://cnlawblog.jpn.com/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
+<a href="https://cnlawblog.jpn.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://cnlawblog.jpn.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-a-quick-guide/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
+<a href="https://cnlawblog.jpn.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://cnlawblog.jpn.com/understanding-your-basic-legal-rights/">understanding your basic legal rights</a> 
+<a href="https://cnlawblog.jpn.com/what-makes-an-explainer-article-genuinely-useful-and-why-it-matters/">what makes an explainer article genuinely useful and why it </a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://cnlawblog.jpn.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
 <a href="https://cnlawblog.jpn.com/what-to-know-about-understanding-how-search-engines-rank-pages/">what to know about understanding how search engines rank pag</a> 
 <a href="https://cnlawblog.jpn.com/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
@@ -790,15 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-carousel-splitter.html">instagram carousel splitter</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-engagement-rate-calculator.html">instagram engagement rate calculator</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-follower-growth-calculator.html">instagram follower growth calculator</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-font-generator.html">instagram font generator</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-grid-planner.html">instagram grid planner</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-hashtag-generator.html">instagram hashtag generator</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-image-size-checker.html">instagram image size checker</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-image-sizes.html">instagram image sizes</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-private-profile-viewer.html">instagram private profile viewer</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/instagram-safe-zone-checker.html">instagram safe zone checker</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/internal-linking-strategy.html">internal linking strategy</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/is-baginda168-legit.html">is baginda168 legit</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/jouer-de-facon-responsable-aux-courses.html">jouer de facon responsable aux courses</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/le-pmu-explique-simplement-paris.html">le pmu explique simplement paris</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/le-quinte-comprendre-le-pari-hippique.html">le quinte comprendre le pari hippique</a> 
