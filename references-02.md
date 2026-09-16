@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://agriculture-lawyer.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://agriculture-lawyer.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://agriculture-lawyer.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
 <a href="https://agriculture-lawyer.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://agriculture-lawyer.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
 <a href="https://agriculture-lawyer.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -201,8 +204,11 @@
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-smar-75-5/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-the-75-5/">mastering online information guides reviews how tos for the </a> 
 <a href="https://agriculture-lawyer.com/mastering-online-learning-and-research-guides-reviews-how-to-75-5/">mastering online learning and research guides reviews how to</a> 
+<a href="https://agriculture-lawyer.com/mastering-online-learning-guides-reviews-and-how-tos-for-dig-75-5/">mastering online learning guides reviews and how tos for dig</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-learning-guides-reviews-and-how-tos-for-suc-75-5/">mastering online learning guides reviews and how tos for suc</a> 
+<a href="https://agriculture-lawyer.com/mastering-online-learning-reading-and-research-comprehensive-75-5/">mastering online learning reading and research comprehensive</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-guides-reviews-and-how-tos-for-effe-75-5/">mastering online reading guides reviews and how tos for effe</a> 
+<a href="https://agriculture-lawyer.com/mastering-online-reading-guides-reviews-and-how-tos-for-savv-75-5/">mastering online reading guides reviews and how tos for savv</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-75-5/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-research-and-digital-literacy-a-com-75-10/">mastering online reading research and digital literacy a com</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-research-and-safety-a-comprehensive-75-5/">mastering online reading research and safety a comprehensive</a> 
@@ -796,9 +802,3 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn.html">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-42-4.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-43-4.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi.html">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-digital-literacy-and-why-it-matters.html">understanding digital literacy and why it matters</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-digital-literacy-explained-simply.html">understanding digital literacy explained simply</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-how-search-engines-rank-pages-a-practical-guid.html">understanding how search engines rank pages a practical guid</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-how-search-engines-rank-pages-a-quick-guide.html">understanding how search engines rank pages a quick guide</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://influencersgonewild.eu.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
+<a href="https://influencersgonewild.eu.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://influencersgonewild.eu.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
+<a href="https://influencersgonewild.eu.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
+<a href="https://influencersgonewild.eu.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://influencersgonewild.eu.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://influencersgonewild.eu.com/the-basics-of-staying-safe-while-browsing-the-basics-2/">the basics of staying safe while browsing the basics 2</a> 
+<a href="https://influencersgonewild.eu.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://influencersgonewild.eu.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://influencersgonewild.eu.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://influencersgonewild.eu.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://influencersgonewild.eu.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://influencersgonewild.eu.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://influencersgonewild.eu.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
+<a href="https://influencersgonewild.eu.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
+<a href="https://influencersgonewild.eu.com/understanding-how-search-engines-rank-pages-a-quick-guide-2/">understanding how search engines rank pages a quick guide 2</a> 
+<a href="https://influencersgonewild.eu.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
+<a href="https://influencersgonewild.eu.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://influencersgonewild.eu.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui-2/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://influencersgonewild.eu.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://influencersgonewild.eu.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
 <a href="https://influencersgonewild.eu.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
@@ -781,24 +802,3 @@
 <a href="https://jiliparty1.xyz/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
 <a href="https://jiliparty1.xyz/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
 <a href="https://jiliparty1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://jiliparty1.xyz/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://jiliparty1.xyz/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
-<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
-<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://jiliparty1.xyz/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://jiliparty1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://jiliparty1.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://jiliparty1.xyz/how-to-tell-explainer-journalism-from-opinion-a-practical-guide/">how to tell explainer journalism from opinion a practical gu</a> 
-<a href="https://jiliparty1.xyz/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://jiliparty1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://jiliparty1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://jiliparty1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://jiliparty1.xyz/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://jiliparty1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://jiliparty1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://jiurui9.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
-<a href="https://jiurui9.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://jiurui9.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://jiurui9.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://jiurui9.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 

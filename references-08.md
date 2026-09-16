@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://cbd-stone.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://cbd-stone.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://cbd-stone.com/how-ai-driven-apps-are-transforming-our-daily-digital-lives/">how ai driven apps are transforming our daily digital lives</a> 
+<a href="https://cbd-stone.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://cbd-stone.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-the-basics-2/">how to avoid misinformation and hype the basics 2</a> 
+<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://cbd-stone.com/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
+<a href="https://cbd-stone.com/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://cbd-stone.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://cbd-stone.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://cbd-stone.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://cbd-stone.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://cbd-stone.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://cbd-stone.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
 <a href="https://cbd-stone.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
 <a href="https://cbd-stone.com/how-to-compare-sources-on-the-same-story-the-basics-2/">how to compare sources on the same story the basics 2</a> 
 <a href="https://cbd-stone.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
@@ -784,21 +802,3 @@
 <a href="https://cbdstent.com/unlocking-success-business-finance-productivity-insights-85-7/">unlocking success business finance productivity insights 85 </a> 
 <a href="https://cbdstent.com/unlocking-the-future-how-bitcoin-and-blockchain-are-revoluti/">unlocking the future how bitcoin and blockchain are revoluti</a> 
 <a href="https://cbdstent.com/unlocking-the-future-transforming-your-digital-life-with-ai-85-8/">unlocking the future transforming your digital life with ai </a> 
-<a href="https://cbdstent.com/unlocking-the-secrets-of-effective-sports-news-and-analysis/">unlocking the secrets of effective sports news and analysis</a> 
-<a href="https://cbdstent.com/unpacking-the-latest-trends-in-news-consumption-and-analysis/">unpacking the latest trends in news consumption and analysis</a> 
-<a href="https://cbdstent.com/web-tech-and-organic-living-expert-insights-and-holistic-hea-85-9/">web tech and organic living expert insights and holistic hea</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-9-2/">web tech content 50 resources worth bookmarking 85 9 2</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-9/">web tech content 50 resources worth bookmarking 85 9</a> 
-<a href="https://cbdstent.com/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
-<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://cbdstent.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://cbdstent.com/what-to-know-about-a-simple-framework-for-researching-any-topic-online/">what to know about a simple framework for researching any to</a> 
-<a href="https://cbdstent.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://cbdstent.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
-<a href="https://cbdstent.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://cbdstent.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
-<a href="https://cbdstent.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
-<a href="https://cbdstent.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 

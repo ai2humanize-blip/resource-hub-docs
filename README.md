@@ -118,6 +118,11 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://blueflamepublishingblog.xyz/">blueflamepublishingblog.xyz</a> 
 <a href="https://sabiguide.com/">sabiguide.com</a> 
 <a href="https://staycluedup.com/">staycluedup.com</a> 
+<a href="https://getgabay.com/">getgabay.com</a> 
+<a href="https://thefontworld.net/">thefontworld.net</a> 
+<a href="https://janibd.com/">janibd.com</a> 
+<a href="https://tashbazzi.com/">tashbazzi.com</a> 
+<a href="https://todaykeralalotteryresult.net/">todaykeralalotteryresult.net</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -164,4 +169,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 42](references-42.md)
 - [Reference set 43](references-43.md)
 
-_34,218 curated references across 43 sets._
+_34,248 curated references across 43 sets._

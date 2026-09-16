@@ -176,6 +176,8 @@
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-a-comprehensive-guid-76-6-15/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-a-comprehensive-guid-76-6-16/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-a-comprehensive-guid-76-6-17/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://123angelnumber.com/mastering-business-finance-productivity-a-comprehensive-guid-76-6-18/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://123angelnumber.com/mastering-business-finance-productivity-a-comprehensive-guid-76-6-19/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-a-comprehensive-guid-76-6-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-a-comprehensive-guid-76-6-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-a-comprehensive-guid-76-6-4/">mastering business finance productivity a comprehensive guid</a> 
@@ -189,6 +191,7 @@
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-essential-online-rea-76-6/">mastering business finance productivity essential online rea</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-essential-online-ski-76-6/">mastering business finance productivity essential online ski</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-essential-online-str-76-6/">mastering business finance productivity essential online str</a> 
+<a href="https://123angelnumber.com/mastering-business-finance-productivity-essential-reading-an-76-6-2/">mastering business finance productivity essential reading an</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-essential-skills-for-76-6-2/">mastering business finance productivity essential skills for</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-essential-skills-for-76-6/">mastering business finance productivity essential skills for</a> 
 <a href="https://123angelnumber.com/mastering-business-finance-productivity-in-the-digital-age-76-6-2/">mastering business finance productivity in the digital age 7</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://agriculture-lawyer.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://agriculture-lawyer.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://agriculture-lawyer.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://agriculture-lawyer.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://agriculture-lawyer.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 

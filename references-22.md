@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://jiliparty1.xyz/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://jiliparty1.xyz/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
+<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://jiliparty1.xyz/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://jiliparty1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://jiliparty1.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://jiliparty1.xyz/how-to-tell-explainer-journalism-from-opinion-a-practical-guide/">how to tell explainer journalism from opinion a practical gu</a> 
+<a href="https://jiliparty1.xyz/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://jiliparty1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://jiliparty1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://jiliparty1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://jiliparty1.xyz/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://jiliparty1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://jiliparty1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://jiurui9.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://jiurui9.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
 <a href="https://jiurui9.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
 <a href="https://jiurui9.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
@@ -301,6 +322,8 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-19/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-20/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-21/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-22/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-5/">mastering business finance productivity a comprehensive guid</a> 
@@ -320,6 +343,7 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-reading-an-53-4-2/">mastering business finance productivity essential reading an</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-reading-an-53-4/">mastering business finance productivity essential reading an</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-skills-for-53-4-2/">mastering business finance productivity essential skills for</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-skills-for-53-4-3/">mastering business finance productivity essential skills for</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-skills-for-53-4/">mastering business finance productivity essential skills for</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-53-4-2/">mastering business finance productivity in the digital age 5</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-in-the-digital-age-53-4-3/">mastering business finance productivity in the digital age 5</a> 
@@ -778,27 +802,3 @@
 <a href="https://labmagickite.com/what-to-know-about-simple-habits-of-a-smart-internet-reader-2/">what to know about simple habits of a smart internet reader </a> 
 <a href="https://labmagickite.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
 <a href="https://labmagickite.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
-<a href="https://labmagickite.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://labmagickite.com/what-to-know-about-why-context-matters-when-reading-online-3/">what to know about why context matters when reading online 3</a> 
-<a href="https://labmagickite.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://labmagickite.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://labmagickite.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
-<a href="https://labmagickite.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://labmagickite.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://labmagickite.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
-<a href="https://labmagickite.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://labmagickite.com/why-general-interest-blogs-matter-in-a-niche-world-a-deep-di-104-3/">why general interest blogs matter in a niche world a deep di</a> 
-<a href="https://labmagickite.com/why-niche-blogs-still-matter-the-basics-2/">why niche blogs still matter the basics 2</a> 
-<a href="https://labmagickite.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re-2/">a closer look at the difference between skimming and deep re</a> 
