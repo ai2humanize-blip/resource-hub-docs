@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://ezoterizm.com/10-organic-living-tips-for-a-healthier-happier-you/">10 organic living tips for a healthier happier you</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-compare-sources-on-the-same-story-2/">a closer look at how to compare sources on the same story 2</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://ezoterizm.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://ezoterizm.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://ezoterizm.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://ezoterizm.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://ezoterizm.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://ezoterizm.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://ezoterizm.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
 <a href="https://ezoterizm.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://ezoterizm.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://ezoterizm.com/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
@@ -634,6 +654,7 @@
 <a href="https://fabulouspoetry.it.com/discovering-the-joys-of-urban-gardening-a-beginner-s-guide/">discovering the joys of urban gardening a beginner s guide</a> 
 <a href="https://fabulouspoetry.it.com/embrace-organic-living-health-and-wellness-tips-for-a-balanc/">embrace organic living health and wellness tips for a balanc</a> 
 <a href="https://fabulouspoetry.it.com/enhancing-privacy-and-productivity-innovative-apps-for-the-m/">enhancing privacy and productivity innovative apps for the m</a> 
+<a href="https://fabulouspoetry.it.com/essential-cyber-safety-guides-for-business-finance-productiv-27-5/">essential cyber safety guides for business finance productiv</a> 
 <a href="https://fabulouspoetry.it.com/essential-guide-to-business-finance-and-productivity-in-sout-27-5/">essential guide to business finance and productivity in sout</a> 
 <a href="https://fabulouspoetry.it.com/essential-guide-to-managing-business-finance-and-productivit-27-5/">essential guide to managing business finance and productivit</a> 
 <a href="https://fabulouspoetry.it.com/essential-independent-news-and-explainer-sites-for-business-27-5/">essential independent news and explainer sites for business </a> 
@@ -781,24 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-44/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-45/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-5/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-6/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-7/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-8/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-read-27-5/">mastering business finance productivity a comprehensive read</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-roun-27-5-2/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-roun-27-5/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-habits-and-27-5/">mastering business finance productivity essential habits and</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-online-rea-27-5/">mastering business finance productivity essential online rea</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-online-ski-27-5/">mastering business finance productivity essential online ski</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-online-str-27-5-2/">mastering business finance productivity essential online str</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-online-str-27-5/">mastering business finance productivity essential online str</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-reading-an-27-5-2/">mastering business finance productivity essential reading an</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-reading-an-27-5/">mastering business finance productivity essential reading an</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-resources-27-5/">mastering business finance productivity essential resources </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-skills-for-27-5-2/">mastering business finance productivity essential skills for</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-skills-for-27-5-3/">mastering business finance productivity essential skills for</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-skills-for-27-5/">mastering business finance productivity essential skills for</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-tech-tips-27-5/">mastering business finance productivity essential tech tips </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-web-skills-27-5/">mastering business finance productivity essential web skills</a> 

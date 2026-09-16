@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://cyberkannadig.it.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely-3/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cyberkannadig.it.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://cyberkannadig.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://cyberkannadig.it.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
+<a href="https://cyberkannadig.it.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://cyberkannadig.it.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://cyberkannadig.it.com/why-niche-blogs-still-matter-a-practical-guide-2/">why niche blogs still matter a practical guide 2</a> 
 <a href="https://cyberkannadig.it.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://cyberkannadig.it.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
 <a href="https://cyberkannadig.it.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
@@ -220,6 +234,7 @@
 <a href="https://cybinxo.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
 <a href="https://cybinxo.com/the-future-of-sports-news-how-ai-and-data-analytics-are-tran/">the future of sports news how ai and data analytics are tran</a> 
 <a href="https://cybinxo.com/the-impact-of-ai-on-news-reporting-current-trends-and-future/">the impact of ai on news reporting current trends and future</a> 
+<a href="https://cybinxo.com/the-playfair-display-and-source-sans-pairing/">the playfair display and source sans pairing</a> 
 <a href="https://cybinxo.com/the-rise-of-ai-in-journalism-opportunities-and-challenges/">the rise of ai in journalism opportunities and challenges</a> 
 <a href="https://cybinxo.com/the-rise-of-ai-powered-apps-transforming-our-digital-experie/">the rise of ai powered apps transforming our digital experie</a> 
 <a href="https://cybinxo.com/the-rise-of-sustainable-fashion-how-eco-friendly-choices-are/">the rise of sustainable fashion how eco friendly choices are</a> 
@@ -786,19 +801,4 @@
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-business-finance-a-strategic-approach-to-personal/">mastering business finance a strategic approach to personal</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-business-finance-and-productivity-a-comprehensive-51-1/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-business-finance-and-productivity-a-comprehensive-51-6/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-51-1/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-51-6/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-51-1/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-business-finance-productivity-a-multi-topic-blog-g-51-6/">mastering business finance productivity a multi topic blog g</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-career-changes-job-searches-and-legal-knowledge-es-51-4/">mastering career changes job searches and legal knowledge es</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-crypto-blockchain-guides-reviews-how-tos-for-inves-51-4/">mastering crypto blockchain guides reviews how tos for inves</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-crypto-essential-terms-news-and-wallet-safety-for-51-6/">mastering crypto essential terms news and wallet safety for </a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-digital-literacy-guides-reviews-how-tos-for-the-mo-51-4/">mastering digital literacy guides reviews how tos for the mo</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-digital-skills-guides-reviews-how-tos-for-online-l-51-4/">mastering digital skills guides reviews how tos for online l</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-51-2-10/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-51-2-11/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-51-2-12/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-51-2-13/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-51-2-14/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-51-2-15/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-digital-tools-online-resources-a-comprehensive-gui-51-2-16/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/mastering-business-finance-and-productivity-essential-guides-51-1/">mastering business finance and productivity essential guides</a> 
