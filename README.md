@@ -168,5 +168,6 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 41](references-41.md)
 - [Reference set 42](references-42.md)
 - [Reference set 43](references-43.md)
+- [Reference set 44](references-44.md)
 
-_34,367 curated references across 43 sets._
+_34,413 curated references across 44 sets._
