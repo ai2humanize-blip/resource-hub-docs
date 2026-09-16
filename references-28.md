@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://ls-why-primary-sources-matter-and-how-to-mtmmm3x9-dot-stnews-489814.uc.r.appspot.com/">ls-why-primary-sources-matter-and-how-to-mtmmm3x9-dot-stnews-489814.uc.r.appspot.com</a> 
 <a href="https://ls-why-primary-sources-matter-and-how-to-mtmmuamu-dot-stnews-489814.uc.r.appspot.com/">ls-why-primary-sources-matter-and-how-to-mtmmuamu-dot-stnews-489814.uc.r.appspot.com</a> 
 <a href="https://ls-why-primary-sources-matter-and-how-to-mtmn4i29-dot-stnews-489814.uc.r.appspot.com/">ls-why-primary-sources-matter-and-how-to-mtmn4i29-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-why-primary-sources-matter-and-how-to-mtmndcwc-dot-stnews-489814.uc.r.appspot.com/">ls-why-primary-sources-matter-and-how-to-mtmndcwc-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-why-primary-sources-matter-and-how-to-mtmnnh82-dot-stnews-489814.uc.r.appspot.com/">ls-why-primary-sources-matter-and-how-to-mtmnnh82-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-why-professional-certifications-still-matte-mt-imncw2y54a-uc.a.run.app">ls-why-professional-certifications-still-matte-mt-imncw2y54a-uc.a.run.app</a> 

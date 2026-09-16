@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
 <a href="https://montanagreenpower.org/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
 <a href="https://montanagreenpower.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://montanagreenpower.org/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
@@ -799,6 +802,3 @@
 <a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://myfitbodygoals.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide-2/">why niche blogs still matter a practical guide 2</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide-3/">why niche blogs still matter a practical guide 3</a> 

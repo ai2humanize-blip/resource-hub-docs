@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://cyberkannadig.it.com/understanding-daily-watch-reports-a-comprehensive-guide-for/">understanding daily watch reports a comprehensive guide for</a> 
+<a href="https://cyberkannadig.it.com/understanding-digital-literacy-explained-simply-2/">understanding digital literacy explained simply 2</a> 
 <a href="https://cyberkannadig.it.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://cyberkannadig.it.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://cyberkannadig.it.com/understanding-how-search-engines-rank-pages-2/">understanding how search engines rank pages 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-effectively-vet-study-abroad-resources-for-web-tech-c-51-8/">how to effectively vet study abroad resources for web tech c</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
 <a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
@@ -799,6 +802,3 @@
 <a href="https://getolive.org/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://getolive.org/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://getolive.org/staying-informed-and-ahead-the-ultimate-guide-to-sports-news-97-8/">staying informed and ahead the ultimate guide to sports news</a> 
-<a href="https://getolive.org/staying-informed-comprehensive-guides-reviews-and-how-tos-fo-97-8/">staying informed comprehensive guides reviews and how tos fo</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 

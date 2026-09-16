@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://illicitlabel.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://illicitlabel.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
 <a href="https://illicitlabel.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
 <a href="https://illicitlabel.com/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
 <a href="https://illicitlabel.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://ireplicadealers.com/newsrealtors-independent-coverage-of-india-and-world-news/">newsrealtors independent coverage of india and world news</a> 
 <a href="https://ireplicadealers.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
 <a href="https://ireplicadealers.com/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
-<a href="https://ireplicadealers.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
-<a href="https://ireplicadealers.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://ireplicadealers.com/revolutionizing-creativity-how-ai-powered-tools-are-transfor-103-5/">revolutionizing creativity how ai powered tools are transfor</a> 

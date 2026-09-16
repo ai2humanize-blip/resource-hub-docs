@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://myfitbodygoals.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide-2/">why niche blogs still matter a practical guide 2</a> 
+<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide-3/">why niche blogs still matter a practical guide 3</a> 
 <a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-quick-guide-2/">why niche blogs still matter a quick guide 2</a> 
 <a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters-2/">how to find balanced coverage of a topic and why it matters </a> 
-<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 

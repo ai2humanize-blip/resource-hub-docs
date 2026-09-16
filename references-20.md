@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://heatherburrisphotography.com/staying-informed-the-best-strategies-for-consuming-current-n/">staying informed the best strategies for consuming current n</a> 
+<a href="https://heatherburrisphotography.com/staying-informed-top-independent-sites-for-web-tech-content-99-10/">staying informed top independent sites for web tech content </a> 
+<a href="https://heatherburrisphotography.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga-99-8/">staying safe and informed the latest in online casino and ga</a> 
 <a href="https://heatherburrisphotography.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
 <a href="https://heatherburrisphotography.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://heatherburrisphotography.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
@@ -799,6 +802,3 @@
 <a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
 <a href="https://illicitlabel.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
 <a href="https://illicitlabel.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://illicitlabel.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://illicitlabel.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://illicitlabel.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 

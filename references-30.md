@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://marlonwayansnetworth.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://marlonwayansnetworth.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://marlonwayansnetworth.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://marlonwayansnetworth.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://marlonwayansnetworth.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
 <a href="https://marlonwayansnetworth.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
@@ -799,6 +802,3 @@
 <a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
-<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide-2/">how to find balanced coverage of a topic a practical guide 2</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://dellywoodfilms.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://dellywoodfilms.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://dellywoodfilms.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://dellywoodfilms.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
-<a href="https://dellywoodfilms.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://dellywoodfilms.com/guides-reviews-how-tos-navigating-online-casinos-and-crypto-89-1/">guides reviews how tos navigating online casinos and crypto </a> 

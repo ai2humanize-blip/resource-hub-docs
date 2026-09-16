@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://sinknews.it.com/how-to-identify-and-pursue-your-dream-career-path-in-2023/">how to identify and pursue your dream career path in 2023</a> 
+<a href="https://sinknews.it.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita/">how to leverage the latest apps for a more productive digita</a> 
+<a href="https://sinknews.it.com/how-to-maximize-your-travel-experience-with-minimal-packing/">how to maximize your travel experience with minimal packing</a> 
+<a href="https://sinknews.it.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
 <a href="https://sinknews.it.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
 <a href="https://sinknews.it.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://sinknews.it.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
@@ -798,7 +802,3 @@
 <a href="https://stanfordinterview.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
 <a href="https://stanfordinterview.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://stanfordinterview.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://stanfordinterview.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://stanfordinterview.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://stanfordinterview.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://stanfordinterview.com/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
