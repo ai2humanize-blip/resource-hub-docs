@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msytfn43u22a">3msytfn43u22a</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msyu5f2zzr2u">3msyu5f2zzr2u</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msyuynmlez2s">3msyuynmlez2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msywkla7p32y">3msywkla7p32y</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msyxies6si26">3msyxies6si26</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msyyhl75rw2q">3msyyhl75rw2q</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msyzd6xooy2k">3msyzd6xooy2k</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz2bsnhw42b">3msz2bsnhw42b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz3dllqh22a">3msz3dllqh22a</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz55oaq3c2q">3msz55oaq3c2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz5zqk7kc2q">3msz5zqk7kc2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz6ypork52d">3msz6ypork52d</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz7wccogw2e">3msz7wccogw2e</a> 
@@ -238,6 +248,7 @@
 <a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
 <a href="https://captainjackinterview.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-and-more-a-comprehensive-round-82-5/">business finance productivity and more a comprehensive round</a> 
+<a href="https://captainjackinterview.com/check-a-kerala-lottery-ticket/">check a kerala lottery ticket</a> 
 <a href="https://captainjackinterview.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-82-3/">comprehensive guides reviews and how tos for every interest </a> 
 <a href="https://captainjackinterview.com/comprehensive-guides-reviews-and-how-tos-for-seo-success-in-82-3/">comprehensive guides reviews and how tos for seo success in </a> 
 <a href="https://captainjackinterview.com/comprehensive-guides-reviews-and-how-tos-navigating-the-digi-82-8/">comprehensive guides reviews and how tos navigating the digi</a> 
@@ -791,14 +802,3 @@
 <a href="https://cbd-stone.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://cbd-stone.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
 <a href="https://cbd-stone.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
-<a href="https://cbd-stone.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
-<a href="https://cbd-stone.com/how-to-compare-sources-on-the-same-story-the-basics-2/">how to compare sources on the same story the basics 2</a> 
-<a href="https://cbd-stone.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
-<a href="https://cbd-stone.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://cbd-stone.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://cbd-stone.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://cbd-stone.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
-<a href="https://cbd-stone.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://cbd-stone.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://cbd-stone.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://cbd-stone.com/how-to-optimize-your-website-for-voice-search-in-2023/">how to optimize your website for voice search in 2023</a> 
