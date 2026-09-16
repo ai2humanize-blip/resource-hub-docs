@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://heatherburrisphotography.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
+<a href="https://heatherburrisphotography.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
+<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
+<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://heatherburrisphotography.com/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
+<a href="https://hedaroibergroup.com/5-essential-steps-to-create-a-comprehensive-home-fire-safety/">5 essential steps to create a comprehensive home fire safety</a> 
+<a href="https://hedaroibergroup.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://hedaroibergroup.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://hedaroibergroup.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing-2/">a closer look at the basics of staying safe while browsing 2</a> 
+<a href="https://hedaroibergroup.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://hedaroibergroup.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://hedaroibergroup.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://hedaroibergroup.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://hedaroibergroup.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://hedaroibergroup.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://hedaroibergroup.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://hedaroibergroup.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
 <a href="https://hedaroibergroup.com/a-simple-framework-for-researching-any-topic-online-and-why-it-matters/">a simple framework for researching any topic online and why </a> 
 <a href="https://hedaroibergroup.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://hedaroibergroup.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
@@ -781,24 +802,3 @@
 <a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
 <a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://influencersgonewild.eu.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://influencersgonewild.eu.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://influencersgonewild.eu.com/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
-<a href="https://influencersgonewild.eu.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://influencersgonewild.eu.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://influencersgonewild.eu.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://influencersgonewild.eu.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://influencersgonewild.eu.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
-<a href="https://influencersgonewild.eu.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 

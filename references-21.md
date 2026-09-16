@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://influencersgonewild.eu.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://influencersgonewild.eu.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
+<a href="https://influencersgonewild.eu.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
+<a href="https://influencersgonewild.eu.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
+<a href="https://influencersgonewild.eu.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://influencersgonewild.eu.com/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
+<a href="https://influencersgonewild.eu.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
+<a href="https://influencersgonewild.eu.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://influencersgonewild.eu.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://influencersgonewild.eu.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://influencersgonewild.eu.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://influencersgonewild.eu.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
 <a href="https://influencersgonewild.eu.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
 <a href="https://influencersgonewild.eu.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://influencersgonewild.eu.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://ireplicadealers.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://ireplicadealers.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://ireplicadealers.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://jade-beijinho-3b8585.netlify.app/getting-how-to-compare-sources-on-the-same-story-right.html">getting how to compare sources on the same story right</a> 
-<a href="https://jade-frangipane-89c0aa.netlify.app/getting-how-to-tell-if-a-website-is-trustworthy-right.html">getting how to tell if a website is trustworthy right</a> 
-<a href="https://jade-tapioca-2356ad.netlify.app/how-ai-powered-apps-are-revolutionizing-daily-life.html">how ai powered apps are revolutionizing daily life</a> 
-<a href="https://jiliparty1.xyz/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://jiliparty1.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
-<a href="https://jiliparty1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://jiliparty1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://jiliparty1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://jiliparty1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://jiliparty1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://jiliparty1.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://jiliparty1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://jiliparty1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://jiliparty1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://jiliparty1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://jiliparty1.xyz/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
-<a href="https://jiliparty1.xyz/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://jiliparty1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 

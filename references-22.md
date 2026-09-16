@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://jade-beijinho-3b8585.netlify.app/getting-how-to-compare-sources-on-the-same-story-right.html">getting how to compare sources on the same story right</a> 
+<a href="https://jade-frangipane-89c0aa.netlify.app/getting-how-to-tell-if-a-website-is-trustworthy-right.html">getting how to tell if a website is trustworthy right</a> 
+<a href="https://jade-tapioca-2356ad.netlify.app/how-ai-powered-apps-are-revolutionizing-daily-life.html">how ai powered apps are revolutionizing daily life</a> 
+<a href="https://jiliparty1.xyz/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://jiliparty1.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
+<a href="https://jiliparty1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://jiliparty1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://jiliparty1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://jiliparty1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://jiliparty1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://jiliparty1.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://jiliparty1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://jiliparty1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://jiliparty1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://jiliparty1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://jiliparty1.xyz/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
+<a href="https://jiliparty1.xyz/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://jiliparty1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://jiliparty1.xyz/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://jiliparty1.xyz/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
 <a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
@@ -324,6 +345,8 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-20/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-21/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-22/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-23/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-24/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-guid-53-4-5/">mastering business finance productivity a comprehensive guid</a> 
@@ -337,6 +360,7 @@
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-53-4-2/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-a-comprehensive-roun-53-4/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-habits-and-53-4/">mastering business finance productivity essential habits and</a> 
+<a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-online-rea-53-4-2/">mastering business finance productivity essential online rea</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-online-rea-53-4/">mastering business finance productivity essential online rea</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-online-ski-53-4/">mastering business finance productivity essential online ski</a> 
 <a href="https://khaki-ape-436464.hostingersite.com/mastering-business-finance-productivity-essential-online-str-53-4/">mastering business finance productivity essential online str</a> 
@@ -778,27 +802,3 @@
 <a href="https://labmagickite.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
 <a href="https://labmagickite.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://labmagickite.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://labmagickite.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://labmagickite.com/understanding-legal-news-and-information-a-comprehensive-gui/">understanding legal news and information a comprehensive gui</a> 
-<a href="https://labmagickite.com/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://labmagickite.com/unlocking-creativity-how-ai-powered-apps-are-revolutionizing/">unlocking creativity how ai powered apps are revolutionizing</a> 
-<a href="https://labmagickite.com/unlocking-the-power-of-social-media-for-small-business-growt/">unlocking the power of social media for small business growt</a> 
-<a href="https://labmagickite.com/unlocking-the-power-of-web-tech-and-content-a-comprehensive-104-5/">unlocking the power of web tech and content a comprehensive </a> 
-<a href="https://labmagickite.com/unlocking-the-secrets-of-successful-urban-gardening-a-beginn/">unlocking the secrets of successful urban gardening a beginn</a> 
-<a href="https://labmagickite.com/unpacking-the-latest-trends-in-news-consumption-a-comprehens/">unpacking the latest trends in news consumption a comprehens</a> 
-<a href="https://labmagickite.com/unpacking-today-s-top-news-analysis-and-insights-you-need/">unpacking today s top news analysis and insights you need</a> 
-<a href="https://labmagickite.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://labmagickite.com/web-tech-content-50-resources-worth-bookmarking-104-10-2/">web tech content 50 resources worth bookmarking 104 10 2</a> 
-<a href="https://labmagickite.com/web-tech-content-50-resources-worth-bookmarking-104-10-3/">web tech content 50 resources worth bookmarking 104 10 3</a> 
-<a href="https://labmagickite.com/web-tech-content-50-resources-worth-bookmarking-104-10/">web tech content 50 resources worth bookmarking 104 10</a> 
-<a href="https://labmagickite.com/web-tech-content-navigating-the-digital-age-with-cutting-edg-104-5/">web tech content navigating the digital age with cutting edg</a> 
-<a href="https://labmagickite.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://labmagickite.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://labmagickite.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://labmagickite.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://labmagickite.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://labmagickite.com/what-to-know-about-how-to-organize-the-information-you-find-online/">what to know about how to organize the information you find </a> 
-<a href="https://labmagickite.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://labmagickite.com/what-to-know-about-simple-habits-of-a-smart-internet-reader-2/">what to know about simple habits of a smart internet reader </a> 
-<a href="https://labmagickite.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
-<a href="https://labmagickite.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 

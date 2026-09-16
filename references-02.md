@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://agriculture-lawyer.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://agriculture-lawyer.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://agriculture-lawyer.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://agriculture-lawyer.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://agriculture-lawyer.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://agriculture-lawyer.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
@@ -119,6 +122,7 @@
 <a href="https://agriculture-lawyer.com/marketing-seo-growth-essential-strategies-for-business-succe-75-6/">marketing seo growth essential strategies for business succe</a> 
 <a href="https://agriculture-lawyer.com/master-online-learning-guides-reviews-and-how-tos-for-succes-75-5/">master online learning guides reviews and how tos for succes</a> 
 <a href="https://agriculture-lawyer.com/master-online-research-guides-reviews-how-tos-for-smart-sear-75-5/">master online research guides reviews how tos for smart sear</a> 
+<a href="https://agriculture-lawyer.com/master-smart-reading-online-guides-reviews-how-tos-for-savvy-75-5/">master smart reading online guides reviews how tos for savvy</a> 
 <a href="https://agriculture-lawyer.com/master-the-web-guides-reviews-and-how-tos-for-every-learner-75-5/">master the web guides reviews and how tos for every learner </a> 
 <a href="https://agriculture-lawyer.com/master-your-online-experience-guides-reviews-and-how-tos-for-75-5/">master your online experience guides reviews and how tos for</a> 
 <a href="https://agriculture-lawyer.com/mastering-app-discoverability-strategies-for-boosting-your-a/">mastering app discoverability strategies for boosting your a</a> 
@@ -201,6 +205,7 @@
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-3/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5/">mastering online information guides reviews how tos for savv</a> 
+<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-smar-75-5-2/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-smar-75-5/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-the-75-5/">mastering online information guides reviews how tos for the </a> 
 <a href="https://agriculture-lawyer.com/mastering-online-learning-and-research-guides-reviews-how-to-75-5/">mastering online learning and research guides reviews how to</a> 
@@ -213,6 +218,7 @@
 <a href="https://agriculture-lawyer.com/mastering-online-reading-research-and-digital-literacy-a-com-75-10/">mastering online reading research and digital literacy a com</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-research-and-safety-a-comprehensive-75-5/">mastering online reading research and safety a comprehensive</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-75-5/">mastering online research guides reviews and how tos for sav</a> 
+<a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-and-how-tos-for-sma-75-5/">mastering online research guides reviews and how tos for sma</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-and-how-tos-for-the-75-5-2/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-and-how-tos-for-the-75-5/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-how-tos-for-digital-75-5/">mastering online research guides reviews how tos for digital</a> 
@@ -796,9 +802,3 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/transforming-your-digital-life-the-power-of-ai-powered-apps--42-4.html">transforming your digital life the power of ai powered apps </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/transforming-your-digital-life-top-ai-powered-apps-and-tools-43-5.html">transforming your digital life top ai powered apps and tools</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/transforming-your-digital-life-top-apps-for-productivity-lea-43-5.html">transforming your digital life top apps for productivity lea</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/ultimate-guide-to-browser-games-reviews-how-tos-why-they-re--43-7.html">ultimate guide to browser games reviews how tos why they re </a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/ultimate-guide-to-independent-crypto-finance-and-news-resour-43-7.html">ultimate guide to independent crypto finance and news resour</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/uncovering-the-future-of-sports-news-trends-and-innovations-.html">uncovering the future of sports news trends and innovations</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn.html">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-42-4.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-43-4.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
