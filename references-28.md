@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
@@ -789,16 +802,3 @@
 <a href="https://ls-why-context-matters-when-reading-online-the-basics.ai2hmnz-rhub.workers.dev/">ls-why-context-matters-when-reading-online-the-basics.ai2hmnz-rhub.workers.dev</a> 
 <a href="https://ls-why-context-matters-when-reading-online-the-mt-imncw2y54a-uc.a.run.app">ls-why-context-matters-when-reading-online-the-mt-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-why-explainer-journalism-matters-more-than-ever.ai2hmnz-rhub.workers.dev/">ls-why-explainer-journalism-matters-more-than-ever.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-why-general-interest-blogs-still-matt-mtd6wapp.wasmer.app/">ls-why-general-interest-blogs-still-matt-mtd6wapp.wasmer.app</a> 
-<a href="https://ls-why-niche-blogs-still-matter-a-practi-mtmm27x9.wasmer.app/">ls-why-niche-blogs-still-matter-a-practi-mtmm27x9.wasmer.app</a> 
-<a href="https://ls-why-niche-blogs-still-matter-a-practical-gu-mt-imncw2y54a-uc.a.run.app">ls-why-niche-blogs-still-matter-a-practical-gu-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-niche-blogs-still-matter-a-quick--mtmnhzkp-dot-stnews-489814.uc.r.appspot.com/">ls-why-niche-blogs-still-matter-a-quick--mtmnhzkp-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-why-niche-blogs-still-matter-explained-simp-mt-imncw2y54a-uc.a.run.app">ls-why-niche-blogs-still-matter-explained-simp-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-niche-blogs-still-matter-the-basics-mtmn8x-imncw2y54a-uc.a.run.app">ls-why-niche-blogs-still-matter-the-basics-mtmn8x-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-primary-sources-matter-and-how-to-find--mh-imncw2y54a-uc.a.run.app">ls-why-primary-sources-matter-and-how-to-find--mh-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-primary-sources-matter-and-how-to-find--mt-imncw2y54a-uc.a.run.app">ls-why-primary-sources-matter-and-how-to-find--mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-primary-sources-matter-and-how-to-find-them-a-p.ai2hmnz-rhub.workers.dev/">ls-why-primary-sources-matter-and-how-to-find-them-a-p.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-why-primary-sources-matter-and-how-to-find-them-and.ai2hmnz-rhub.workers.dev/">ls-why-primary-sources-matter-and-how-to-find-them-and.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-why-primary-sources-matter-and-how-to-mtmmm3x9-dot-stnews-489814.uc.r.appspot.com/">ls-why-primary-sources-matter-and-how-to-mtmmm3x9-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-why-primary-sources-matter-and-how-to-mtmmuamu-dot-stnews-489814.uc.r.appspot.com/">ls-why-primary-sources-matter-and-how-to-mtmmuamu-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-why-primary-sources-matter-and-how-to-mtmn4i29-dot-stnews-489814.uc.r.appspot.com/">ls-why-primary-sources-matter-and-how-to-mtmn4i29-dot-stnews-489814.uc.r.appspot.com</a> 

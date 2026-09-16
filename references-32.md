@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://myfitbodygoals.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-a-simple-framework-for-researching-any-topic-online/">what to know about a simple framework for researching any to</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-how-to-fact-check-something-in-five-minutes/">what to know about how to fact check something in five minut</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-understanding-how-search-engines-rank-pag-2/">what to know about understanding how search engines rank pag</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-what-to-look-for-in-a-good-news-website-3/">what to know about what to look for in a good news website 3</a> 
+<a href="https://myfitbodygoals.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
 <a href="https://myfitbodygoals.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide-2/">why niche blogs still matter a practical guide 2</a> 
 <a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide-3/">why niche blogs still matter a practical guide 3</a> 
@@ -787,18 +802,3 @@
 <a href="https://obesetuber.com/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
 <a href="https://obesetuber.com/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
 <a href="https://obesetuber.com/how-small-business-owners-can-master-personal-finance-and-ma/">how small business owners can master personal finance and ma</a> 
-<a href="https://obesetuber.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
-<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
-<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
-<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://obesetuber.com/how-to-boost-your-digital-privacy-apps-and-tools-for-secure/">how to boost your digital privacy apps and tools for secure</a> 
-<a href="https://obesetuber.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
-<a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 

@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-42.md) · [‹ prev](references-40.md)
 
+<a href="https://structurespy.it.com/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
+<a href="https://structurespy.it.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://structurespy.it.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
+<a href="https://structurespy.it.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://structurespy.it.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://structurespy.it.com/why-explainer-journalism-matters-more-than-ever/">why explainer journalism matters more than ever</a> 
+<a href="https://structurespy.it.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://structurespy.it.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://structurespy.it.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://structurespy.it.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
+<a href="https://structurespy.it.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://stupendous-praline-e8a48c.netlify.app/how-to-find-balanced-coverage-of-a-topic-a-practical-guide.html">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://sulawesita.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://sulawesita.com/a-closer-look-at-a-simple-framework-for-researching-any-topic-online/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://sulawesita.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://sulawesita.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://sulawesita.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://sulawesita.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://sulawesita.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://sulawesita.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://sulawesita.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
 <a href="https://sulawesita.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://sulawesita.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
@@ -782,23 +802,3 @@
 <a href="https://telegra.ph/The-Difference-Between-Skimming-and-Deep-Reading-Online-explained-simply-09-04">The Difference Between Skimming and Deep Reading Online expl</a> 
 <a href="https://telegra.ph/The-Practical-Guide-to-Breaking-News-Updates-08-23">The Practical Guide to Breaking News Updates 08 23</a> 
 <a href="https://telegra.ph/The-Practical-Guide-to-Certified-Digital-Academy-08-23">The Practical Guide to Certified Digital Academy 08 23</a> 
-<a href="https://telegra.ph/The-Practical-Guide-to-Cyberkannadig-08-23">The Practical Guide to Cyberkannadig 08 23</a> 
-<a href="https://telegra.ph/The-Practical-Guide-to-Virginia-Childhood-Education-08-23">The Practical Guide to Virginia Childhood Education 08 23</a> 
-<a href="https://telegra.ph/The-Practical-Guide-to-Wellorganic-Health-India-08-23">The Practical Guide to Wellorganic Health India 08 23</a> 
-<a href="https://telegra.ph/The-truth-about-circulating-Aavot-APK-files-08-28">The truth about circulating Aavot APK files 08 28</a> 
-<a href="https://telegra.ph/The-truth-about-circulating-Aavot-APK-files-08-28-2">The truth about circulating Aavot APK files 08 28 2</a> 
-<a href="https://telegra.ph/The-value-of-slow-careful-reading-explained-simply-09-04">The value of slow careful reading explained simply 09 04</a> 
-<a href="https://telegra.ph/Understanding-Consumer-Tech-News-08-23">Understanding Consumer Tech News 08 23</a> 
-<a href="https://telegra.ph/Understanding-Digital-Literacy-and-why-it-matters-09-04">Understanding Digital Literacy and why it matters 09 04</a> 
-<a href="https://telegra.ph/Understanding-Digital-Literacy-the-basics-09-04">Understanding Digital Literacy the basics 09 04</a> 
-<a href="https://telegra.ph/Understanding-Event-Planning-Guide-08-23">Understanding Event Planning Guide 08 23</a> 
-<a href="https://telegra.ph/Understanding-How-Search-Engines-Rank-Pages--a-quick-guide-09-04">Understanding How Search Engines Rank Pages a quick guide 09</a> 
-<a href="https://telegra.ph/Understanding-How-Search-Engines-Rank-Pages--a-quick-guide-09-04-2">Understanding How Search Engines Rank Pages a quick guide 09</a> 
-<a href="https://telegra.ph/Understanding-How-Search-Engines-Rank-Pages-and-why-it-matters-09-04">Understanding How Search Engines Rank Pages and why it matte</a> 
-<a href="https://telegra.ph/Understanding-How-Search-Engines-Rank-Pages-and-why-it-matters-09-04-2">Understanding How Search Engines Rank Pages and why it matte</a> 
-<a href="https://telegra.ph/Understanding-How-Search-Engines-Rank-Pages-explained-simply-09-04">Understanding How Search Engines Rank Pages explained simply</a> 
-<a href="https://telegra.ph/Understanding-Instagram-Engagement-Rate-Calculator-08-23">Understanding Instagram Engagement Rate Calculator 08 23</a> 
-<a href="https://telegra.ph/Understanding-Tech-Business-News-08-23">Understanding Tech Business News 08 23</a> 
-<a href="https://telegra.ph/Understanding-Today-Biggest-Technology-Trends-08-26">Understanding Today Biggest Technology Trends 08 26</a> 
-<a href="https://telegra.ph/Understanding-Underground-Music-Authority-08-23">Understanding Underground Music Authority 08 23</a> 
-<a href="https://telegra.ph/Wallets-and-self-custody-the-safety-first-basics-08-28">Wallets and self custody the safety first basics 08 28</a> 

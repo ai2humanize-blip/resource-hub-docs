@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://montanagreenpower.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://montanagreenpower.org/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://montanagreenpower.org/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://montanagreenpower.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://montanagreenpower.org/how-ai-is-transforming-the-news-industry-a-comprehensive-ana/">how ai is transforming the news industry a comprehensive ana</a> 
+<a href="https://montanagreenpower.org/how-ai-powered-apps-are-revolutionizing-everyday-life/">how ai powered apps are revolutionizing everyday life</a> 
+<a href="https://montanagreenpower.org/how-ai-powered-apps-are-transforming-our-daily-lives-and-wor/">how ai powered apps are transforming our daily lives and wor</a> 
+<a href="https://montanagreenpower.org/how-ai-powered-apps-are-transforming-our-daily-lives/">how ai powered apps are transforming our daily lives</a> 
+<a href="https://montanagreenpower.org/how-recent-economic-trends-are-shaping-the-future-of-global/">how recent economic trends are shaping the future of global</a> 
+<a href="https://montanagreenpower.org/how-strategic-personal-finance-management-can-boost-your-bus/">how strategic personal finance management can boost your bus</a> 
+<a href="https://montanagreenpower.org/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
 <a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
 <a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
@@ -365,6 +379,7 @@
 <a href="https://myclassnews.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-34-1-3/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://myclassnews.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-34-1-4/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://myclassnews.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-34-1-5/">mastering guides reviews and how tos a comprehensive roundup</a> 
+<a href="https://myclassnews.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-34-1-6/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://myclassnews.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-34-1/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://myclassnews.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-34-1-2/">mastering guides reviews how tos a comprehensive roundup 34 </a> 
 <a href="https://myclassnews.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-34-1-3/">mastering guides reviews how tos a comprehensive roundup 34 </a> 
@@ -787,18 +802,3 @@
 <a href="https://myfitbodygoals.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://myfitbodygoals.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
 <a href="https://myfitbodygoals.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
-<a href="https://myfitbodygoals.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-a-simple-framework-for-researching-any-topic-online/">what to know about a simple framework for researching any to</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-how-to-fact-check-something-in-five-minutes/">what to know about how to fact check something in five minut</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-understanding-how-search-engines-rank-pag-2/">what to know about understanding how search engines rank pag</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-what-to-look-for-in-a-good-news-website-3/">what to know about what to look for in a good news website 3</a> 
-<a href="https://myfitbodygoals.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
