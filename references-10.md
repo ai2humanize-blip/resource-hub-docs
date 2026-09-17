@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
 <a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
 <a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
@@ -433,6 +435,7 @@
 <a href="https://cyberkannadig.it.com/comprehensive-cyber-safety-guides-reviews-how-tos-you-need-t-26-4/">comprehensive cyber safety guides reviews how tos you need t</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-how-tos-essential-resources-for-filipin-26-4/">comprehensive guides how tos essential resources for filipin</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-26-4-2/">comprehensive guides in depth reviews and practical how tos </a> 
+<a href="https://cyberkannadig.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-26-4-3/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-26-4/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-for-effective-onlin-26-4/">comprehensive guides reviews and how tos for effective onlin</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-for-every-need-26-4/">comprehensive guides reviews and how tos for every need 26 4</a> 
@@ -471,6 +474,7 @@
 <a href="https://cyberkannadig.it.com/essential-guides-reviews-and-how-tos-for-independent-crypto-26-4/">essential guides reviews and how tos for independent crypto </a> 
 <a href="https://cyberkannadig.it.com/essential-guides-reviews-and-how-tos-for-independent-news-an-26-4/">essential guides reviews and how tos for independent news an</a> 
 <a href="https://cyberkannadig.it.com/essential-guides-reviews-and-how-tos-top-independent-news-an-26-4/">essential guides reviews and how tos top independent news an</a> 
+<a href="https://cyberkannadig.it.com/essential-guides-reviews-and-how-tos-your-ultimate-resource-26-4/">essential guides reviews and how tos your ultimate resource </a> 
 <a href="https://cyberkannadig.it.com/essential-guides-reviews-how-tos-for-aspiring-authors-from-i-26-4/">essential guides reviews how tos for aspiring authors from i</a> 
 <a href="https://cyberkannadig.it.com/essential-guides-reviews-how-tos-for-south-africans-from-ban-26-4/">essential guides reviews how tos for south africans from ban</a> 
 <a href="https://cyberkannadig.it.com/essential-guides-reviews-how-tos-from-palacsinta-to-moscow-m-26-4/">essential guides reviews how tos from palacsinta to moscow m</a> 
@@ -798,7 +802,3 @@
 <a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-26-3-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-26-3-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-26-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

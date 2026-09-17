@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://esm.sh/ls-how-to-spot-low-quality-content-online-and-why-it-matters-mtmnhyem@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-spot-low-quality-content-online-mtmo2xsl@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-spot-low-quality-content-online-the-basics-mtmnwht8@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-tell-explainer-journalism-from-opinion-explained-simp-mtmng4lc@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-tell-explainer-journalism-from-opinion-mtmnh0hz@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-tell-if-a-website-is-trustworthy-explained-simply-mtpo8pra@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-tell-if-a-website-is-trustworthy-mtmm04bd@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-use-the-web-to-learn-a-new-skill-explained-simply-mtmo07tl@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-independent-web-resources-mu4wbp2c@1.0.0/index.html">index</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabulouspoetry.it.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
 <a href="https://fabulouspoetry.it.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
 <a href="https://fabulouspoetry.it.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://fabulouspoetry.it.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://fabulouspoetry.it.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://fabulouspoetry.it.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://fabulouspoetry.it.com/marketing-seo-growth-45-resources-worth-bookmarking-27-19/">marketing seo growth 45 resources worth bookmarking 27 19</a> 
-<a href="https://fabulouspoetry.it.com/marketing-seo-growth-essential-strategies-for-business-succe-27-4/">marketing seo growth essential strategies for business succe</a> 
-<a href="https://fabulouspoetry.it.com/marketing-seo-growth-strategies-for-business-success-in-the-27-4/">marketing seo growth strategies for business success in the </a> 
