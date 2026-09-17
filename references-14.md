@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://ecomhuntreviews.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://ecomhuntreviews.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://ecomhuntreviews.com/how-to-avoid-misinformation-and-hype-explained-simply-2/">how to avoid misinformation and hype explained simply 2</a> 
+<a href="https://ecomhuntreviews.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://ecomhuntreviews.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://ecomhuntreviews.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://ecomhuntreviews.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matters/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://ecomhuntreviews.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
@@ -520,6 +525,8 @@
 <a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
 <a href="https://emiamedical.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
 <a href="https://endearing-truffle-d89cbb.netlify.app/the-elearning-trends-reshaping-how-we-teach-and-learn.html">the elearning trends reshaping how we teach and learn</a> 
+<a href="https://esm.sh/curated-web-directory-hub@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@006a7e9/independent-web-resources.html">independent web resources</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00b0d03/a-closer-look-at-why-primary-sources-matter-and-how-to-find-.html">a closer look at why primary sources matter and how to find</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00fe7d8/revolutionizing-daily-life-how-apps-are-transforming-the-dig.html">revolutionizing daily life how apps are transforming the dig</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@0167f9e/simple-habits-of-a-smart-internet-reader.html">simple habits of a smart internet reader</a> 
@@ -794,11 +801,4 @@
 <a href="https://esm.sh/ls-how-to-tell-if-a-website-is-trustworthy-explained-simply-mtpo8pra@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-tell-if-a-website-is-trustworthy-mtmm04bd@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-use-the-web-to-learn-a-new-skill-explained-simply-mtmo07tl@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-making-sense-of-complex-topics-online-explained-simply-mtmmga9k@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-making-sense-of-complex-topics-online-the-basics-mtmnmijx@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-mastering-app-notifications-a-guide-to-balancing-engagement-msrfy2ck@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-navigating-modern-careers-essential-workplace-advice-for-job-msuhpznh@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-navigating-the-complexities-of-modern-news-consumption-an-in-msrihbgl@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-navigating-the-latest-news-in-depth-analysis-and-expert-comm-msrh7u8r@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-navigating-the-legal-landscape-a-guide-to-understanding-lega-msuhqpq0@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-newsrealtors-independent-coverage-of-india-and-world-news-mt30zebi@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-independent-web-resources-mu4wbp2c@1.0.0/index.html">index</a> 

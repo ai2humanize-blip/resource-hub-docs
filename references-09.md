@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cbdstent.com/navigating-the-modern-news-landscape-business-finance-and-pr-85-7/">navigating the modern news landscape business finance and pr</a> 
 <a href="https://cbdstent.com/navigating-the-modern-news-landscape-business-finance-produc-85-7/">navigating the modern news landscape business finance produc</a> 
 <a href="https://cbdstent.com/navigating-the-news-landscape-in-2023-guides-reviews-and-how-85-5/">navigating the news landscape in 2023 guides reviews and how</a> 
 <a href="https://cbdstent.com/navigating-the-shifting-landscape-of-news-consumption-a-comp-85-6/">navigating the shifting landscape of news consumption a comp</a> 
@@ -118,6 +119,7 @@
 <a href="https://cbdstent.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
 <a href="https://cbdstent.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
 <a href="https://cbdstent.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://cdn.jsdelivr.net/npm/curated-web-directory-hub@1.0.0/index.html">index</a> 
 <a href="https://celadon-marzipan-45718d.netlify.app/discover-the-future-of-digital-communication-secure-messagin.html">discover the future of digital communication secure messagin</a> 
 <a href="https://celadon-zuccutto-155242.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://celebrated-gaufre-016892.netlify.app/cloud-backlinks.html">cloud backlinks</a> 
@@ -800,5 +802,3 @@
 <a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 

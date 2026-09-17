@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://illicitlabel.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://illicitlabel.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://illicitlabel.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
+<a href="https://illicitlabel.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g-2/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-3/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://illicitlabel.com/how-to-find-balanced-coverage-of-a-topic-2/">how to find balanced coverage of a topic 2</a> 
@@ -790,15 +802,3 @@
 <a href="https://ireplicadealers.com/navigating-online-casino-news-safety-and-responsible-play-ti/">navigating online casino news safety and responsible play ti</a> 
 <a href="https://ireplicadealers.com/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon-103-4/">navigating the crypto landscape bitcoin blockchain and beyon</a> 
 <a href="https://ireplicadealers.com/navigating-the-crypto-revolution-a-beginner-s-guide-to-bitco/">navigating the crypto revolution a beginner s guide to bitco</a> 
-<a href="https://ireplicadealers.com/navigating-the-crypto-world-bitcoin-blockchain-and-beyond/">navigating the crypto world bitcoin blockchain and beyond</a> 
-<a href="https://ireplicadealers.com/navigating-the-digital-age-how-to-leverage-new-apps-for-ever/">navigating the digital age how to leverage new apps for ever</a> 
-<a href="https://ireplicadealers.com/navigating-the-digital-landscape-top-apps-for-business-finan-103-4/">navigating the digital landscape top apps for business finan</a> 
-<a href="https://ireplicadealers.com/navigating-the-evolving-landscape-of-news-consumption-in-202/">navigating the evolving landscape of news consumption in 202</a> 
-<a href="https://ireplicadealers.com/navigating-the-evolving-news-landscape-current-trends-and-re/">navigating the evolving news landscape current trends and re</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-business-finance-productivity-insights-103-4/">navigating the future business finance productivity insights</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-current-news-analysis-and-insights-for/">navigating the future current news analysis and insights for</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-how-ai-and-apps-are-transforming-our-d/">navigating the future how ai and apps are transforming our d</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-of-business-finance-productivity-in-20-103-9/">navigating the future of business finance productivity in 20</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-of-finance-a-comprehensive-guide-to-cr-103-3/">navigating the future of finance a comprehensive guide to cr</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-of-finance-cryptocurrency-bitcoin-and-103-4/">navigating the future of finance cryptocurrency bitcoin and </a> 
