@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://esm.sh/ls-how-to-bookmark-and-revisit-useful-resources-a-quick-guide-mtmndbn5@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-bookmark-and-revisit-useful-resources-explained-simpl-mtmm9h2u@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-bookmark-and-revisit-useful-resources-explained-simpl-mtmmk7l0@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-a-personal-reading-list-a-quick-guide-mtmnkp2m@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-a-personal-reading-list-explained-simply-mtmm26tt@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-a-personal-reading-list-explained-simply-mtmn9t0m@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-a-personal-reading-list-the-basics-mtmmco7a@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-real-digital-skills-with-online-courses-mtiyy1hg@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-choose-the-perfect-watch-a-comprehensive-buying-guide-msrhv1ga@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-compare-sources-on-the-same-story-a-quick-guide-mtmnebdu@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-and-why-i-mtmn2o3b@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-explained-mtmn0qxz@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-mtmo3thh@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-fact-check-something-in-five-minutes-a-quick-guide-mtmmj7uh@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-fact-check-something-in-five-minutes-mtmn3kng@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-fact-check-something-in-five-minutes-mtppn9va@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-fact-check-something-in-five-minutes-the-basics-mtmn5c5r@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-find-balanced-coverage-of-a-topic-a-quick-guide-mtmnuls0@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-find-genuinely-cheap-flights-without-falling-for-fake-mtj0j5vq@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-find-reliable-how-to-guides-a-practical-guide-mtmmnwog@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-find-reliable-how-to-guides-a-quick-guide-mtmn680d@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-find-reliable-how-to-guides-mtmmqqtm@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-get-the-most-out-of-online-guides-explained-simply-mtmmi8ca@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-organize-the-information-you-find-online-a-practical-mtmmot5s@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-read-crypto-market-news-without-getting-misled-mtjxu77g@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-spot-low-quality-content-online-a-practical-guide-mtmmej10@1.0.0/index.html">index</a> 
@@ -779,26 +802,3 @@
 <a href="https://fabulouspoetry.it.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://fabulouspoetry.it.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://fabulouspoetry.it.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://fabulouspoetry.it.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-a-practical-guid-2/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://fabulouspoetry.it.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters-2/">how to get the most out of online guides and why it matters </a> 
-<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-explained-simply-2/">how to get the most out of online guides explained simply 2</a> 
-<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://fabulouspoetry.it.com/how-to-leverage-personal-finance-strategies-for-business-gro/">how to leverage personal finance strategies for business gro</a> 
-<a href="https://fabulouspoetry.it.com/how-to-navigate-the-digital-world-essential-apps-and-tools-f/">how to navigate the digital world essential apps and tools f</a> 
-<a href="https://fabulouspoetry.it.com/how-to-organize-the-information-you-find-online-a-practical-2/">how to organize the information you find online a practical </a> 
-<a href="https://fabulouspoetry.it.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://fabulouspoetry.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical-2/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://fabulouspoetry.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://fabulouspoetry.it.com/how-to-safely-follow-an-app-that-s-still-in-development-2/">how to safely follow an app that s still in development 2</a> 
-<a href="https://fabulouspoetry.it.com/how-to-safely-follow-an-app-that-s-still-in-development/">how to safely follow an app that s still in development</a> 
-<a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
-<a href="https://fabulouspoetry.it.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 

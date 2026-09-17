@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://croginalcats.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://croginalcats.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://croginalcats.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://croginalcats.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://croginalcats.xyz/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://croginalcats.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://croginalcats.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://croginalcats.xyz/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://croginalcats.xyz/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://croginalcats.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://croginalcats.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://croginalcats.xyz/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
+<a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://croginalcats.xyz/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://croginalcats.xyz/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://croginalcats.xyz/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
+<a href="https://croginalcats.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://croginalcats.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://croginalcats.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://croginalcats.xyz/techvantor/">techvantor</a> 
+<a href="https://croginalcats.xyz/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://croginalcats.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://croginalcats.xyz/what-makes-an-explainer-article-genuinely-useful-a-practical-guide/">what makes an explainer article genuinely useful a practical</a> 
 <a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
@@ -780,25 +802,3 @@
 <a href="https://cyberkannadig.it.com/transform-your-life-with-insights-into-web-tech-and-content-26-3/">transform your life with insights into web tech and content </a> 
 <a href="https://cyberkannadig.it.com/transform-your-lifestyle-5-organic-living-tips-for-holistic/">transform your lifestyle 5 organic living tips for holistic</a> 
 <a href="https://cyberkannadig.it.com/transforming-daily-life-how-ai-powered-apps-are-revolutioniz/">transforming daily life how ai powered apps are revolutioniz</a> 
-<a href="https://cyberkannadig.it.com/transforming-your-digital-life-how-ai-driven-apps-are-revolu-26-3/">transforming your digital life how ai driven apps are revolu</a> 
-<a href="https://cyberkannadig.it.com/transforming-your-digital-life-top-apps-and-ai-innovations-f-26-3/">transforming your digital life top apps and ai innovations f</a> 
-<a href="https://cyberkannadig.it.com/turf-pour-d-butants-par-o-commencer/">turf pour d butants par o commencer</a> 
-<a href="https://cyberkannadig.it.com/ultimate-guide-to-font-pairing-reviews-guides-and-how-tos-26-4/">ultimate guide to font pairing reviews guides and how tos 26</a> 
-<a href="https://cyberkannadig.it.com/ultimate-guide-to-guides-reviews-how-tos-fonts-pairings-and-26-4/">ultimate guide to guides reviews how tos fonts pairings and </a> 
-<a href="https://cyberkannadig.it.com/ultimate-guides-in-depth-reviews-and-practical-how-tos-your-26-4/">ultimate guides in depth reviews and practical how tos your </a> 
-<a href="https://cyberkannadig.it.com/ultimate-guides-reviews-how-tos-val-town-hf-space-and-blogge-26-4/">ultimate guides reviews how tos val town hf space and blogge</a> 
-<a href="https://cyberkannadig.it.com/ultimate-roundup-guides-reviews-and-how-tos-for-every-web-en-26-4/">ultimate roundup guides reviews and how tos for every web en</a> 
-<a href="https://cyberkannadig.it.com/ultimate-tech-troubleshooting-guide-fixes-for-common-issues-26-4/">ultimate tech troubleshooting guide fixes for common issues </a> 
-<a href="https://cyberkannadig.it.com/underground-music-authority-a-complete-2026-guide-to-web-tec-26-3/">underground music authority a complete 2026 guide to web tec</a> 
-<a href="https://cyberkannadig.it.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-4/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-5/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-6/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
