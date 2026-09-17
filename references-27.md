@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://livejournal.micro.blog/2026/09/04/a-closer-look-at-what.html">a closer look at what</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/getting-a-simple-framework-for.html">getting a simple framework for</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/getting-building-a-healthy-daily.html">getting building a healthy daily</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/getting-how-to-find-balanced.html">getting how to find balanced</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/getting-how-to-spot-lowquality.html">getting how to spot lowquality</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/getting-making-sense-of-complex.html">getting making sense of complex</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/getting-why-context-matters-when.html">getting why context matters when</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-avoid-misinformation-and.html">how to avoid misinformation and</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/how-to-bookmark-and-revisit.html">how to bookmark and revisit</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/how-to-build-a-personal.html">how to build a personal</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/how-to-compare-sources-on.html">how to compare sources on</a> 
@@ -249,6 +257,7 @@
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-read-32-10/">mastering business finance productivity a comprehensive read</a> 
+<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-roun-32-10-2/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-roun-32-10/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-habits-and-32-10/">mastering business finance productivity essential habits and</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-essential-online-rea-32-10/">mastering business finance productivity essential online rea</a> 
@@ -793,12 +802,3 @@
 <a href="https://ls-a-closer-look-at-how-to-evaluate-online-reviews-and.ai2hmnz-rhub.workers.dev/">ls-a-closer-look-at-how-to-evaluate-online-reviews-and.ai2hmnz-rhub.workers.dev</a> 
 <a href="https://ls-a-closer-look-at-how-to-fact-check-somethin-mt-imncw2y54a-uc.a.run.app">ls-a-closer-look-at-how-to-fact-check-somethin-mt-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-a-closer-look-at-how-to-get-the-most-out-of-mt-imncw2y54a-uc.a.run.app">ls-a-closer-look-at-how-to-get-the-most-out-of-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-a-closer-look-at-how-to-tell-explainer-jour-mt-imncw2y54a-uc.a.run.app">ls-a-closer-look-at-how-to-tell-explainer-jour-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-a-closer-look-at-how-to-tell-explainer-journalism-f.ai2hmnz-rhub.workers.dev/">ls-a-closer-look-at-how-to-tell-explainer-journalism-f.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-a-closer-look-at-the-basics-of-staying-safe-while-b.ai2hmnz-rhub.workers.dev/">ls-a-closer-look-at-the-basics-of-staying-safe-while-b.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-a-closer-look-at-understanding-digita-mtmo2yzw-dot-stnews-489814.uc.r.appspot.com/">ls-a-closer-look-at-understanding-digita-mtmo2yzw-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-a-closer-look-at-understanding-how-search-e-mt-imncw2y54a-uc.a.run.app">ls-a-closer-look-at-understanding-how-search-e-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-a-closer-look-at-what-makes-an-explai-mtmnbnfx-dot-stnews-489814.uc.r.appspot.com/">ls-a-closer-look-at-what-makes-an-explai-mtmnbnfx-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-a-closer-look-at-what-makes-an-explai-mtmnkq9s-dot-stnews-489814.uc.r.appspot.com/">ls-a-closer-look-at-what-makes-an-explai-mtmnkq9s-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-a-closer-look-at-what-to-look-for-in-a-good-mt-imncw2y54a-uc.a.run.app">ls-a-closer-look-at-what-to-look-for-in-a-good-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-a-closer-look-at-why-context-matters-when-r-mt-imncw2y54a-uc.a.run.app">ls-a-closer-look-at-why-context-matters-when-r-mt-imncw2y54a-uc.a.run.app</a> 

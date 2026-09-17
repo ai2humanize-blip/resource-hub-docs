@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://esm.sh/ls-how-to-organize-the-information-you-find-online-a-practical-mtmmot5s@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-read-crypto-market-news-without-getting-misled-mtjxu77g@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-spot-low-quality-content-online-a-practical-guide-mtmmej10@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-spot-low-quality-content-online-and-why-it-matters-mtmnhyem@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-spot-low-quality-content-online-mtmo2xsl@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-spot-low-quality-content-online-the-basics-mtmnwht8@1.0.0/index.html">index</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
 <a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
 <a href="https://fabulouspoetry.it.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
-<a href="https://fabulouspoetry.it.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://fabulouspoetry.it.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://fabulouspoetry.it.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 

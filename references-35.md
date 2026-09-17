@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-build-a-personal-reading-list-a-quick-guide-2/">how to build a personal reading list a quick guide 2</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-choose-a-virtual-seo-expert-in-2026-a-comprehensive-g-46-8/">how to choose a virtual seo expert in 2026 a comprehensive g</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-effectively-vet-study-abroad-resources-for-web-tech-c-46-3/">how to effectively vet study abroad resources for web tech c</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://peru-peafowl-728163.hostingersite.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://peru-peafowl-728163.hostingersite.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-3/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://peru-peafowl-728163.hostingersite.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://peru-peafowl-728163.hostingersite.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
@@ -792,13 +802,3 @@
 <a href="https://playboicartinetworth.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://playboicartinetworth.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://playboicartinetworth.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://playboicartinetworth.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://playboicartinetworth.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://playboicartinetworth.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://playboicartinetworth.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://playboicartinetworth.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://playboicartinetworth.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://playboicartinetworth.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
-<a href="https://playboicartinetworth.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://playboicartinetworth.com/understanding-legal-information-and-staying-updated-with-leg/">understanding legal information and staying updated with leg</a> 
-<a href="https://playboicartinetworth.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 

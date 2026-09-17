@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://linkstack.ewr1.vultrobjects.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid.html">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://linkstack.ewr1.vultrobjects.com/why-primary-sources-matter-and-how-to-find-them-explained-si.html">why primary sources matter and how to find them explained si</a> 
+<a href="https://linkstack.ewr1.vultrobjects.com/why-you-should-avoid-unofficial-apk-downloads.html">why you should avoid unofficial apk downloads</a> 
+<a href="https://linkstack.hashnode.dev/a-closer-look-at-a-simple-framework-for-researching-any-topic-online">a closer look at a simple framework for researching any topi</a> 
+<a href="https://linkstack.hashnode.dev/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://linkstack.hashnode.dev/a-closer-look-at-how-to-find-reliable-how-to-guides">a closer look at how to find reliable how to guides</a> 
+<a href="https://linkstack.hashnode.dev/a-closer-look-at-how-to-get-the-most-out-of-online-guides">a closer look at how to get the most out of online guides</a> 
+<a href="https://linkstack.hashnode.dev/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy">a closer look at how to tell if a website is trustworthy</a> 
 <a href="https://linkstack.hashnode.dev/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online">a closer look at the difference between skimming and deep re</a> 
 <a href="https://linkstack.hashnode.dev/a-closer-look-at-what-to-look-for-in-a-good-news-website">a closer look at what to look for in a good news website</a> 
 <a href="https://linkstack.hashnode.dev/a-simple-framework-for-researching-any-topic-online-a-practical-guide">a simple framework for researching any topic online a practi</a> 
@@ -794,11 +802,3 @@
 <a href="https://livejournal.micro.blog/2026/09/04/080237.html">080237</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/080401.html">080401</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/a-closer-look-at-how.html">a closer look at how</a> 
-<a href="https://livejournal.micro.blog/2026/09/04/a-closer-look-at-what.html">a closer look at what</a> 
-<a href="https://livejournal.micro.blog/2026/09/04/getting-a-simple-framework-for.html">getting a simple framework for</a> 
-<a href="https://livejournal.micro.blog/2026/09/04/getting-building-a-healthy-daily.html">getting building a healthy daily</a> 
-<a href="https://livejournal.micro.blog/2026/09/04/getting-how-to-find-balanced.html">getting how to find balanced</a> 
-<a href="https://livejournal.micro.blog/2026/09/04/getting-how-to-spot-lowquality.html">getting how to spot lowquality</a> 
-<a href="https://livejournal.micro.blog/2026/09/04/getting-making-sense-of-complex.html">getting making sense of complex</a> 
-<a href="https://livejournal.micro.blog/2026/09/04/getting-why-context-matters-when.html">getting why context matters when</a> 
-<a href="https://livejournal.micro.blog/2026/09/04/how-to-avoid-misinformation-and.html">how to avoid misinformation and</a> 

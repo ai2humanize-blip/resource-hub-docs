@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://croginalcats.xyz/what-makes-an-explainer-article-genuinely-useful-a-practical-guide/">what makes an explainer article genuinely useful a practical</a> 
 <a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
@@ -622,6 +623,7 @@
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-3/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-4/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
+<a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-curated-web-directory-rou-26-4/">mastering guides reviews how tos a curated web directory rou</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-26-4/">mastering guides reviews how tos your ultimate resource 26 4</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-26-4/">mastering guides reviews how tos your ultimate round up for </a> 
 <a href="https://cyberkannadig.it.com/mastering-information-guides-reviews-how-tos-for-the-modern-26-4/">mastering information guides reviews how tos for the modern </a> 
@@ -800,5 +802,3 @@
 <a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
