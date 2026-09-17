@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://casinoisloty.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://casinoisloty.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://casinoisloty.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://casinoisloty.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://casinoisloty.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://casinoisloty.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://casinoisloty.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://casinoisloty.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://casinoisloty.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://casinoisloty.xyz/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
 <a href="https://casinoisloty.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://casinoisloty.xyz/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
 <a href="https://casinoisloty.xyz/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide/">how to evaluate online reviews and recommendations a quick g</a> 
@@ -192,12 +202,15 @@
 <a href="https://cbd-stone.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cbd-stone.com/marketing-seo-growth-essential-strategies-for-business-succe-83-3/">marketing seo growth essential strategies for business succe</a> 
 <a href="https://cbd-stone.com/marketing-seo-growth-strategies-for-success-in-the-digital-a-83-8/">marketing seo growth strategies for success in the digital a</a> 
+<a href="https://cbd-stone.com/master-business-finance-productivity-a-comprehensive-guide-t-83-4/">master business finance productivity a comprehensive guide t</a> 
+<a href="https://cbd-stone.com/master-digital-tools-online-resources-a-comprehensive-guide-83-5/">master digital tools online resources a comprehensive guide </a> 
 <a href="https://cbd-stone.com/master-the-art-of-budget-travel-cheap-flights-smart-booking-83-5/">master the art of budget travel cheap flights smart booking </a> 
 <a href="https://cbd-stone.com/mastering-app-organization-boost-productivity-with-smart-dig-83-7/">mastering app organization boost productivity with smart dig</a> 
 <a href="https://cbd-stone.com/mastering-app-organization-the-ultimate-guide-to-a-clutter-f/">mastering app organization the ultimate guide to a clutter f</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-and-productivity-a-comprehensive-83-4-2/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://cbd-stone.com/mastering-business-finance-and-productivity-a-comprehensive-83-4/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://cbd-stone.com/mastering-business-finance-and-productivity-your-ultimate-re-83-4/">mastering business finance and productivity your ultimate re</a> 
+<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-9-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-9-3/">mastering business finance productivity a comprehensive guid</a> 
@@ -529,6 +542,7 @@
 <a href="https://cbdpuffbars.com/mastering-marketing-seo-growth-a-comprehensive-guide-84-2/">mastering marketing seo growth a comprehensive guide 84 2</a> 
 <a href="https://cbdpuffbars.com/mastering-marketing-seo-growth-a-comprehensive-guide-for-suc-84-7/">mastering marketing seo growth a comprehensive guide for suc</a> 
 <a href="https://cbdpuffbars.com/mastering-marketing-seo-growth-strategies-for-success-84-7/">mastering marketing seo growth strategies for success 84 7</a> 
+<a href="https://cbdpuffbars.com/mastering-online-information-guides-reviews-how-tos-for-savv-84-6/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdpuffbars.com/mastering-online-research-guides-reviews-how-tos-for-smarter-84-6/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://cbdpuffbars.com/mastering-personal-finance-and-marketing-for-business-growth/">mastering personal finance and marketing for business growth</a> 
 <a href="https://cbdpuffbars.com/mastering-the-art-of-business-finance-and-marketing-integrat/">mastering the art of business finance and marketing integrat</a> 
@@ -539,6 +553,7 @@
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10-2/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-84-10/">mastering web tech content a comprehensive guide for the mod</a> 
+<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-84-5/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-smarter-84-10/">mastering web tech content a comprehensive guide to smarter </a> 
 <a href="https://cbdpuffbars.com/maximizing-business-finance-and-productivity-with-curated-re-84-3/">maximizing business finance and productivity with curated re</a> 
 <a href="https://cbdpuffbars.com/maximizing-your-business-growth-a-deep-dive-into-marketing-s-84-7/">maximizing your business growth a deep dive into marketing s</a> 
@@ -563,6 +578,7 @@
 <a href="https://cbdpuffbars.com/navigating-today-s-media-landscape-current-news-explainers-a/">navigating today s media landscape current news explainers a</a> 
 <a href="https://cbdpuffbars.com/navigating-today-s-news-and-emerging-trends-a-comprehensive-84-6/">navigating today s news and emerging trends a comprehensive </a> 
 <a href="https://cbdpuffbars.com/navigating-today-s-news-landscape-strategies-for-staying-inf-84-8/">navigating today s news landscape strategies for staying inf</a> 
+<a href="https://cbdpuffbars.com/navigating-web-tech-content-avoiding-misinformation-and-enha-84-5/">navigating web tech content avoiding misinformation and enha</a> 
 <a href="https://cbdpuffbars.com/newsrealtors-india-following-the-stories-that-matter/">newsrealtors india following the stories that matter</a> 
 <a href="https://cbdpuffbars.com/recognizing-credible-experts-online-a-quick-guide-2/">recognizing credible experts online a quick guide 2</a> 
 <a href="https://cbdpuffbars.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
@@ -786,19 +802,3 @@
 <a href="https://cbdstent.com/how-to-evaluate-online-reviews-and-recommendations-the-basics/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
-<a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-the-basics-2/">how to fact check something in five minutes the basics 2</a> 
-<a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://cbdstent.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://cbdstent.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://cbdstent.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://cbdstent.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://cbdstent.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://cbdstent.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
-<a href="https://cbdstent.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://cbdstent.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://cbdstent.com/how-to-navigate-the-latest-news-and-analysis-for-informed-de/">how to navigate the latest news and analysis for informed de</a> 
-<a href="https://cbdstent.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://cbdstent.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
