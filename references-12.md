@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-build-a-personal-reading-list-2/">how to build a personal reading list 2</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-choose-a-virtual-seo-expert-in-2026-a-comprehensive-g-51-3/">how to choose a virtual seo expert in 2026 a comprehensive g</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
@@ -800,5 +802,3 @@
 <a href="https://dellywoodfilms.com/exploring-web-tech-content-a-comprehensive-roundup-for-knowl-89-5/">exploring web tech content a comprehensive roundup for knowl</a> 
 <a href="https://dellywoodfilms.com/exploring-web-tech-content-trends-a-comprehensive-2026-guide-89-10/">exploring web tech content trends a comprehensive 2026 guide</a> 
 <a href="https://dellywoodfilms.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://dellywoodfilms.com/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
-<a href="https://dellywoodfilms.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 

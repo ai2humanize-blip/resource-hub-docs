@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://fideleturfturf.it.com/what-makes-a-website-easy-and-pleasant-to-read/">what makes a website easy and pleasant to read</a> 
+<a href="https://fideleturfturf.it.com/what-makes-an-explainer-article-genuinely-useful-the-basics-2/">what makes an explainer article genuinely useful the basics </a> 
+<a href="https://fideleturfturf.it.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://fideleturfturf.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://fideleturfturf.it.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
 <a href="https://fideleturfturf.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://fideleturfturf.it.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://fideleturfturf.it.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
@@ -625,6 +630,7 @@
 <a href="https://frabjous-zabaione-7b8404.netlify.app/casino-utan-spelpaus-explained-a-practical-guide-for-players.html">casino utan spelpaus explained a practical guide for players</a> 
 <a href="https://fujigrouphk.com/gindex.html">gindex</a> 
 <a href="https://fujigrouphk.com/picks.html">picks</a> 
+<a href="https://ga.jspm.io/npm:curated-web-directory-hub@1.0.0/index.html">index</a> 
 <a href="https://gentle-kitten-b6b885.netlify.app/why-primary-sources-matter-and-how-to-find-them-a-quick-guid.html">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://genuine-nougat-24966b.netlify.app/discover-the-transformative-power-of-music-education-for-chi.html">discover the transformative power of music education for chi</a> 
 <a href="https://getolive.org/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
@@ -796,9 +802,3 @@
 <a href="https://getolive.org/navigating-the-digital-age-how-to-choose-the-right-apps-for/">navigating the digital age how to choose the right apps for</a> 
 <a href="https://getolive.org/navigating-the-digital-news-landscape-ai-trends-and-insights-97-6/">navigating the digital news landscape ai trends and insights</a> 
 <a href="https://getolive.org/navigating-the-digital-world-how-ai-powered-apps-are-transfo-97-9/">navigating the digital world how ai powered apps are transfo</a> 
-<a href="https://getolive.org/navigating-the-future-bitcoin-blockchain-and-the-latest-cryp/">navigating the future bitcoin blockchain and the latest cryp</a> 
-<a href="https://getolive.org/navigating-the-future-how-ai-driven-apps-are-transforming-ou/">navigating the future how ai driven apps are transforming ou</a> 
-<a href="https://getolive.org/navigating-the-future-how-bitcoin-and-blockchain-are-transfo/">navigating the future how bitcoin and blockchain are transfo</a> 
-<a href="https://getolive.org/navigating-the-future-of-ai-current-developments-and-their-i/">navigating the future of ai current developments and their i</a> 
-<a href="https://getolive.org/navigating-the-future-of-digital-currencies-key-trends-and-d/">navigating the future of digital currencies key trends and d</a> 
-<a href="https://getolive.org/navigating-the-future-of-finance-understanding-crypto-bitcoi/">navigating the future of finance understanding crypto bitcoi</a> 

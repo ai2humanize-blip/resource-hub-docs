@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-43.md) · [‹ prev](references-41.md)
 
+<a href="https://telegra.ph/How-to-Get-the-Most-Out-of-Online-Guides-the-basics-09-04">How to Get the Most Out of Online Guides the basics 09 04</a> 
+<a href="https://telegra.ph/How-to-Read-Crypto-Market-News-Without-Getting-Misled-09-02">How to Read Crypto Market News Without Getting Misled 09 02</a> 
+<a href="https://telegra.ph/How-to-Read-Crypto-News-Without-Getting-Misled-08-26">How to Read Crypto News Without Getting Misled 08 26</a> 
+<a href="https://telegra.ph/How-to-Tell-Explainer-Journalism-from-Opinion--a-quick-guide-09-06">How to Tell Explainer Journalism from Opinion a quick guide </a> 
+<a href="https://telegra.ph/How-to-compare-sources-on-the-same-story--a-quick-guide-09-04">How to compare sources on the same story a quick guide 09 04</a> 
+<a href="https://telegra.ph/How-to-compare-sources-on-the-same-story-09-04">How to compare sources on the same story 09 04</a> 
+<a href="https://telegra.ph/How-to-compare-sources-on-the-same-story-09-06">How to compare sources on the same story 09 06</a> 
+<a href="https://telegra.ph/How-to-compare-sources-on-the-same-story-explained-simply-09-04">How to compare sources on the same story explained simply 09</a> 
+<a href="https://telegra.ph/How-to-compare-sources-on-the-same-story-the-basics-09-04">How to compare sources on the same story the basics 09 04</a> 
+<a href="https://telegra.ph/How-to-compare-sources-on-the-same-story-the-basics-09-06">How to compare sources on the same story the basics 09 06</a> 
+<a href="https://telegra.ph/How-to-fact-check-something-in-five-minutes-and-why-it-matters-09-04">How to fact check something in five minutes and why it matte</a> 
 <a href="https://telegra.ph/How-to-fact-check-something-in-five-minutes-and-why-it-matters-09-04-2">How to fact check something in five minutes and why it matte</a> 
 <a href="https://telegra.ph/How-to-find-balanced-coverage-of-a-topic-a-practical-guide-09-04">How to find balanced coverage of a topic a practical guide 0</a> 
 <a href="https://telegra.ph/How-to-find-balanced-coverage-of-a-topic-explained-simply-09-04">How to find balanced coverage of a topic explained simply 09</a> 
@@ -791,14 +802,3 @@
 <a href="https://uploadarticle.us.com/getting-the-basics-of-staying-safe-while-browsing-right-2/">getting the basics of staying safe while browsing right 2</a> 
 <a href="https://uploadarticle.us.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
 <a href="https://uploadarticle.us.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://uploadarticle.us.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://uploadarticle.us.com/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
-<a href="https://uploadarticle.us.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://uploadarticle.us.com/how-to-avoid-misinformation-and-hype-explained-simply-2/">how to avoid misinformation and hype explained simply 2</a> 
-<a href="https://uploadarticle.us.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://uploadarticle.us.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://uploadarticle.us.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://uploadarticle.us.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://uploadarticle.us.com/how-to-evaluate-online-reviews-and-recommendations-a-practic-2/">how to evaluate online reviews and recommendations a practic</a> 
-<a href="https://uploadarticle.us.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
-<a href="https://uploadarticle.us.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 

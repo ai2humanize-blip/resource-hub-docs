@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://myfitbodygoals.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-every-o/">the ultimate guide to choosing the perfect watch for every o</a> 
+<a href="https://myfitbodygoals.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
+<a href="https://myfitbodygoals.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
+<a href="https://myfitbodygoals.com/transform-your-life-10-practical-health-wellness-and-organic/">transform your life 10 practical health wellness and organic</a> 
+<a href="https://myfitbodygoals.com/transforming-daily-life-how-ai-and-apps-are-redefining-our-d-112-9/">transforming daily life how ai and apps are redefining our d</a> 
+<a href="https://myfitbodygoals.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-4/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-5/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -791,14 +802,3 @@
 <a href="https://obesetuber.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://obesetuber.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
 <a href="https://obesetuber.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
-<a href="https://obesetuber.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
-<a href="https://obesetuber.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find-2/">a closer look at why primary sources matter and how to find </a> 
-<a href="https://obesetuber.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
-<a href="https://obesetuber.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://obesetuber.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://obesetuber.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://obesetuber.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://obesetuber.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
-<a href="https://obesetuber.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://obesetuber.com/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
-<a href="https://obesetuber.com/baginda168-review/">baginda168 review</a> 

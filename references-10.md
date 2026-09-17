@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
 <a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
 <a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
 <a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-write-for-fashion-blogs-guest-posting-guide.html">how to write for fashion blogs guest posting guide</a> 
@@ -454,6 +455,7 @@
 <a href="https://cyberkannadig.it.com/digital-tools-online-resources-40-resources-worth-bookmarkin-26-2/">digital tools online resources 40 resources worth bookmarkin</a> 
 <a href="https://cyberkannadig.it.com/digital-tools-online-resources-45-resources-worth-bookmarkin-26-2/">digital tools online resources 45 resources worth bookmarkin</a> 
 <a href="https://cyberkannadig.it.com/discover-the-best-independent-guides-reviews-and-how-tos-for-26-4/">discover the best independent guides reviews and how tos for</a> 
+<a href="https://cyberkannadig.it.com/discover-the-best-independent-web-resources-guides-reviews-h-26-4/">discover the best independent web resources guides reviews h</a> 
 <a href="https://cyberkannadig.it.com/discover-the-best-local-seo-strategies-for-small-business-ow/">discover the best local seo strategies for small business ow</a> 
 <a href="https://cyberkannadig.it.com/discover-the-best-no-download-web-games-the-tech-behind-them-26-3/">discover the best no download web games the tech behind them</a> 
 <a href="https://cyberkannadig.it.com/discover-the-best-web-tech-content-resources-for-2026-26-3/">discover the best web tech content resources for 2026 26 3</a> 
@@ -800,5 +802,3 @@
 <a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-26-3-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-26-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cyberkannadig.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

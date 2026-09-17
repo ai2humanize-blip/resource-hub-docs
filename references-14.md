@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://ecomhuntreviews.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://ecomhuntreviews.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ecomhuntreviews.com/how-to-achieve-a-balanced-lifestyle-practical-tips-for-every/">how to achieve a balanced lifestyle practical tips for every</a> 
 <a href="https://ecomhuntreviews.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://ecomhuntreviews.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://ecomhuntreviews.com/how-to-avoid-misinformation-and-hype-explained-simply-2/">how to avoid misinformation and hype explained simply 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://esm.sh/ls-how-to-tell-explainer-journalism-from-opinion-explained-simp-mtmng4lc@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-tell-explainer-journalism-from-opinion-mtmnh0hz@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-tell-if-a-website-is-trustworthy-explained-simply-mtpo8pra@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-how-to-tell-if-a-website-is-trustworthy-mtmm04bd@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-how-to-use-the-web-to-learn-a-new-skill-explained-simply-mtmo07tl@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-independent-web-resources-mu4wbp2c@1.0.0/index.html">index</a> 

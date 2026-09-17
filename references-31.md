@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://montanagreenpower.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://montanagreenpower.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://montanagreenpower.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://montanagreenpower.org/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
+<a href="https://montanagreenpower.org/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
+<a href="https://montanagreenpower.org/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
+<a href="https://montanagreenpower.org/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://montanagreenpower.org/boosting-your-business-and-personal-finances-with-strategic/">boosting your business and personal finances with strategic</a> 
+<a href="https://montanagreenpower.org/breaking-down-the-latest-global-news-in-depth-analysis-and-e/">breaking down the latest global news in depth analysis and e</a> 
+<a href="https://montanagreenpower.org/breaking-down-today-s-top-news-in-depth-analysis-and-expert-2/">breaking down today s top news in depth analysis and expert </a> 
+<a href="https://montanagreenpower.org/breaking-down-today-s-top-news-in-depth-analysis-and-expert/">breaking down today s top news in depth analysis and expert</a> 
 <a href="https://montanagreenpower.org/building-a-healthy-daily-reading-habit-a-practical-guide-2/">building a healthy daily reading habit a practical guide 2</a> 
 <a href="https://montanagreenpower.org/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
 <a href="https://montanagreenpower.org/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
@@ -791,14 +802,3 @@
 <a href="https://myfitbodygoals.com/the-rise-of-sustainable-fashion-how-eco-friendly-choices-are-3/">the rise of sustainable fashion how eco friendly choices are</a> 
 <a href="https://myfitbodygoals.com/the-truth-about-circulating-aavot-apk-files-2/">the truth about circulating aavot apk files 2</a> 
 <a href="https://myfitbodygoals.com/the-truth-about-circulating-aavot-apk-files/">the truth about circulating aavot apk files</a> 
-<a href="https://myfitbodygoals.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-every-o/">the ultimate guide to choosing the perfect watch for every o</a> 
-<a href="https://myfitbodygoals.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
-<a href="https://myfitbodygoals.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://myfitbodygoals.com/transform-your-life-10-practical-health-wellness-and-organic/">transform your life 10 practical health wellness and organic</a> 
-<a href="https://myfitbodygoals.com/transforming-daily-life-how-ai-and-apps-are-redefining-our-d-112-9/">transforming daily life how ai and apps are redefining our d</a> 
-<a href="https://myfitbodygoals.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-4/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-5/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://myfitbodygoals.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
