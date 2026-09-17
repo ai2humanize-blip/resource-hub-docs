@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a4ea59a/mastering-the-art-of-effective-note-taking-techniques-for-su.html">mastering the art of effective note taking techniques for su</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a57512c/understanding-the-intersection-of-cryptocurrency-bitcoin-and.html">understanding the intersection of cryptocurrency bitcoin and</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a5af28e/mastering-mobile-apps-how-to-optimize-your-digital-experienc.html">mastering mobile apps how to optimize your digital experienc</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a615957/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a6cdf53/what-to-look-for-in-a-good-news-website-and-why-it-matters.html">what to look for in a good news website and why it matters</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a747fab/how-to-use-the-web-to-learn-a-new-skill.html">how to use the web to learn a new skill</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@a820a95/how-to-get-the-most-out-of-online-guides-a-quick-guide.html">how to get the most out of online guides a quick guide</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ab32091/getting-understanding-digital-literacy-right.html">getting understanding digital literacy right</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ac00b6f/what-to-look-for-in-a-good-news-website-explained-simply.html">what to look for in a good news website explained simply</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ae93556/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters.html">how to find balanced coverage of a topic and why it matters</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@afa23d1/a-closer-look-at-a-simple-framework-for-researching-any-topi.html">a closer look at a simple framework for researching any topi</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b01fee0/the-evolution-of-sports-news-how-modern-analysis-is-transfor.html">the evolution of sports news how modern analysis is transfor</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b085258/mastering-the-art-of-budgeting-boost-your-business-and-perso.html">mastering the art of budgeting boost your business and perso</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b31b414/how-to-find-reliable-how-to-guides-a-practical-guide.html">how to find reliable how to guides a practical guide</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b5f2d80/the-value-of-slow-careful-reading.html">the value of slow careful reading</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b60fe1e/unlocking-the-power-of-social-media-a-comprehensive-guide-fo.html">unlocking the power of social media a comprehensive guide fo</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b6c6edd/how-to-read-the-news-without-getting-overwhelmed-the-basics.html">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ba7a597/a-closer-look-at-understanding-digital-literacy.html">a closer look at understanding digital literacy</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@bb1daaa/understanding-the-impact-of-recent-economic-news-on-global-m.html">understanding the impact of recent economic news on global m</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@bc53df7/what-to-know-about-the-value-of-slow-careful-reading.html">what to know about the value of slow careful reading</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@bd6e705/a-closer-look-at-the-value-of-slow-careful-reading.html">a closer look at the value of slow careful reading</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@be44100/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui.html">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@bf8b483/how-to-compare-sources-on-the-same-story.html">how to compare sources on the same story</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c294343/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c424ced/navigating-the-evolving-landscape-of-news-consumption-in-202.html">navigating the evolving landscape of news consumption in 202</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c52bf24/how-to-get-the-most-out-of-online-guides-a-quick-guide.html">how to get the most out of online guides a quick guide</a> 
@@ -779,26 +802,3 @@
 <a href="https://fabbusinesssolutions.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://fabbusinesssolutions.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
-<a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://fabbusinesssolutions.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://fabbusinesssolutions.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://fabbusinesssolutions.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://fabbusinesssolutions.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://fabbusinesssolutions.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
-<a href="https://fabbusinesssolutions.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://fabulous-valkyrie-be860a.netlify.app/simple-habits-of-a-smart-internet-reader-a-practical-guide.html">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
-<a href="https://fabulouspoetry.it.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://fabulouspoetry.it.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://fabulouspoetry.it.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://fabulouspoetry.it.com/apply-for-a-driver-s-license-in-nigeria/">apply for a driver s license in nigeria</a> 
-<a href="https://fabulouspoetry.it.com/baginda-168/">baginda 168</a> 
