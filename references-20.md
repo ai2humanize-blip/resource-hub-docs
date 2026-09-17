@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://heatherburrisphotography.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://heatherburrisphotography.com/rep-rer-un-cheval-bien-plac-analyser-une-course-sans-illusio/">rep rer un cheval bien plac analyser une course sans illusio</a> 
+<a href="https://heatherburrisphotography.com/revolutionizing-creativity-how-ai-powered-tools-are-transfor-99-9/">revolutionizing creativity how ai powered tools are transfor</a> 
+<a href="https://heatherburrisphotography.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-99-8/">revolutionizing daily life how ai powered apps are transform</a> 
+<a href="https://heatherburrisphotography.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-99-9/">revolutionizing daily life how ai powered apps are transform</a> 
+<a href="https://heatherburrisphotography.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 
+<a href="https://heatherburrisphotography.com/revolutionizing-daily-life-the-impact-of-innovative-apps-on/">revolutionizing daily life the impact of innovative apps on</a> 
 <a href="https://heatherburrisphotography.com/revolutionizing-daily-life-top-ai-powered-apps-for-business-99-8/">revolutionizing daily life top ai powered apps for business </a> 
 <a href="https://heatherburrisphotography.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://heatherburrisphotography.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
@@ -795,10 +802,3 @@
 <a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
 <a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-3/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://illicitlabel.com/how-to-find-balanced-coverage-of-a-topic-2/">how to find balanced coverage of a topic 2</a> 
-<a href="https://illicitlabel.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://illicitlabel.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://illicitlabel.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 

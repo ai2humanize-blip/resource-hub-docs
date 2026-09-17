@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://sinknews.it.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://sinknews.it.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://sinknews.it.com/getting-what-makes-an-explainer-article-genuinely-useful-rig-2/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://sinknews.it.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://sinknews.it.com/guides-reviews-how-tos-45-resources-worth-bookmarking-36-19/">guides reviews how tos 45 resources worth bookmarking 36 19</a> 
+<a href="https://sinknews.it.com/how-ai-and-apps-are-revolutionizing-our-digital-lives-a-deep/">how ai and apps are revolutionizing our digital lives a deep</a> 
+<a href="https://sinknews.it.com/how-ai-powered-apps-are-revolutionizing-daily-life-and-work/">how ai powered apps are revolutionizing daily life and work</a> 
+<a href="https://sinknews.it.com/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
+<a href="https://sinknews.it.com/how-to-avoid-misinformation-and-hype-the-basics-2/">how to avoid misinformation and hype the basics 2</a> 
+<a href="https://sinknews.it.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://sinknews.it.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://sinknews.it.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://sinknews.it.com/how-to-boost-your-productivity-with-the-best-apps-for-digita/">how to boost your productivity with the best apps for digita</a> 
@@ -792,13 +802,3 @@
 <a href="https://sogutmacimarketi.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://sogutmacimarketi.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://sogutmacimarketi.com/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
-<a href="https://sogutmacimarketi.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://sogutmacimarketi.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://sogutmacimarketi.com/why-your-browser-is-slow/">why your browser is slow</a> 
-<a href="https://solo.to/linkstacks">linkstacks</a> 
-<a href="https://speednewscentral.org.uk/gindex.html">gindex</a> 
-<a href="https://speednewscentral.org.uk/picks.html">picks</a> 
-<a href="https://spiffy-pudding-fb04c0.netlify.app/why-context-matters-when-reading-online.html">why context matters when reading online</a> 
-<a href="https://spiffy-twilight-4c9473.netlify.app/the-best-free-fonts-for-websites.html">the best free fonts for websites</a> 
-<a href="https://splendid-elf-3e8411.netlify.app/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic.html">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://sprightly-frangipane-3c157d.netlify.app/what-to-know-about-why-primary-sources-matter-and-how-to-fin.html">what to know about why primary sources matter and how to fin</a> 

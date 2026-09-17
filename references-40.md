@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://sogutmacimarketi.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://sogutmacimarketi.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://sogutmacimarketi.com/why-your-browser-is-slow/">why your browser is slow</a> 
+<a href="https://solo.to/linkstacks">linkstacks</a> 
+<a href="https://speednewscentral.org.uk/gindex.html">gindex</a> 
+<a href="https://speednewscentral.org.uk/picks.html">picks</a> 
+<a href="https://spiffy-pudding-fb04c0.netlify.app/why-context-matters-when-reading-online.html">why context matters when reading online</a> 
+<a href="https://spiffy-twilight-4c9473.netlify.app/the-best-free-fonts-for-websites.html">the best free fonts for websites</a> 
+<a href="https://splendid-elf-3e8411.netlify.app/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic.html">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://sprightly-frangipane-3c157d.netlify.app/what-to-know-about-why-primary-sources-matter-and-how-to-fin.html">what to know about why primary sources matter and how to fin</a> 
 <a href="https://sprightly-gingersnap-21d205.netlify.app/mastering-business-personal-finance-and-marketing-a-holistic.html">mastering business personal finance and marketing a holistic</a> 
 <a href="https://stalwart-cucurucho-4b5e73.netlify.app/understanding-digital-literacy-explained-simply.html">understanding digital literacy explained simply</a> 
 <a href="https://stanfordinterview.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
@@ -792,13 +802,3 @@
 <a href="https://structurespy.it.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
 <a href="https://structurespy.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://structurespy.it.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://structurespy.it.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://structurespy.it.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
-<a href="https://structurespy.it.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://structurespy.it.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://structurespy.it.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://structurespy.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://structurespy.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
-<a href="https://structurespy.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://structurespy.it.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
-<a href="https://structurespy.it.com/why-choose-an-advanced-seo-agency-in-india-for-your-business/">why choose an advanced seo agency in india for your business</a> 

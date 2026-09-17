@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://polovnakola.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://polovnakola.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://polovnakola.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://polovnakola.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://polovnakola.com/boosting-your-business-and-personal-finances-with-strategic/">boosting your business and personal finances with strategic</a> 
+<a href="https://polovnakola.com/boosting-your-business-with-strategic-personal-finance-and-m/">boosting your business with strategic personal finance and m</a> 
+<a href="https://polovnakola.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
+<a href="https://polovnakola.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://polovnakola.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://polovnakola.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
 <a href="https://polovnakola.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
 <a href="https://polovnakola.com/choosing-the-perfect-timepiece-a-comprehensive-watch-buying/">choosing the perfect timepiece a comprehensive watch buying</a> 
 <a href="https://polovnakola.com/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 
@@ -792,13 +802,3 @@
 <a href="https://relaxed-gingersnap-f1f2e2.netlify.app/understanding-the-latest-trends-in-cryptocurrency-news-and-a.html">understanding the latest trends in cryptocurrency news and a</a> 
 <a href="https://relaxed-syrniki-cc1560.netlify.app/how-to-find-balanced-coverage-of-a-topic-a-quick-guide.html">how to find balanced coverage of a topic a quick guide</a> 
 <a href="https://reliable-dolphin-665e11.netlify.app/how-to-build-a-personal-reading-list-a-quick-guide.html">how to build a personal reading list a quick guide</a> 
-<a href="https://reliable-faun-c617cc.netlify.app/the-ultimate-guide-to-choosing-the-perfect-wine-for-any-occa.html">the ultimate guide to choosing the perfect wine for any occa</a> 
-<a href="https://reliable-kitsune-2e9a70.netlify.app/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters.html">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://render-resource-hub.onrender.com/5-innovative-ways-to-transform-your-kitchen-on-a-budget.html">5 innovative ways to transform your kitchen on a budget</a> 
-<a href="https://render-resource-hub.onrender.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource.html">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://render-resource-hub.onrender.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes.html">a closer look at how to fact check something in five minutes</a> 
-<a href="https://render-resource-hub.onrender.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill.html">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://render-resource-hub.onrender.com/a-closer-look-at-the-difference-between-skimming-and-deep-re.html">a closer look at the difference between skimming and deep re</a> 
-<a href="https://render-resource-hub.onrender.com/a-closer-look-at-understanding-digital-literacy.html">a closer look at understanding digital literacy</a> 
-<a href="https://render-resource-hub.onrender.com/a-closer-look-at-understanding-how-search-engines-rank-pages.html">a closer look at understanding how search engines rank pages</a> 
-<a href="https://render-resource-hub.onrender.com/a-simple-framework-for-researching-any-topic-online-and-why-.html">a simple framework for researching any topic online and why</a> 

@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://ls-boosting-produc-msro9yji.web.app/font-pairing-resources-worth-bookmarking/">font pairing resources worth bookmarking</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
@@ -793,12 +802,3 @@
 <a href="https://ls-what-to-look-for-in-a-good-news-website-and-m9-imncw2y54a-uc.a.run.app">ls-what-to-look-for-in-a-good-news-website-and-m9-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-what-to-look-for-in-a-good-news-website-and-mt-imncw2y54a-uc.a.run.app">ls-what-to-look-for-in-a-good-news-website-and-mt-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-why-context-matters-when-reading-onli-mtmm28b1-dot-stnews-489814.uc.r.appspot.com/">ls-why-context-matters-when-reading-onli-mtmm28b1-dot-stnews-489814.uc.r.appspot.com</a> 
-<a href="https://ls-why-context-matters-when-reading-onli-mtt3wowm.wasmer.app/">ls-why-context-matters-when-reading-onli-mtt3wowm.wasmer.app</a> 
-<a href="https://ls-why-context-matters-when-reading-online-a-q-mt-imncw2y54a-uc.a.run.app">ls-why-context-matters-when-reading-online-a-q-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-context-matters-when-reading-online-a-quick-gui.ai2hmnz-rhub.workers.dev/">ls-why-context-matters-when-reading-online-a-quick-gui.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-why-context-matters-when-reading-online-and-mt-imncw2y54a-uc.a.run.app">ls-why-context-matters-when-reading-online-and-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-context-matters-when-reading-online-exp-mt-imncw2y54a-uc.a.run.app">ls-why-context-matters-when-reading-online-exp-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-context-matters-when-reading-online-mtmo3u-imncw2y54a-uc.a.run.app">ls-why-context-matters-when-reading-online-mtmo3u-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-context-matters-when-reading-online-the-basics.ai2hmnz-rhub.workers.dev/">ls-why-context-matters-when-reading-online-the-basics.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-why-context-matters-when-reading-online-the-mt-imncw2y54a-uc.a.run.app">ls-why-context-matters-when-reading-online-the-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-why-explainer-journalism-matters-more-than-ever.ai2hmnz-rhub.workers.dev/">ls-why-explainer-journalism-matters-more-than-ever.ai2hmnz-rhub.workers.dev</a> 

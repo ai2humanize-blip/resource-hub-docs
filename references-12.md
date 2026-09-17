@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-effectively-vet-study-abroad-resources-for-web-tech-c-51-8/">how to effectively vet study abroad resources for web tech c</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://darkslateblue-dolphin-363244.hostingersite.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
@@ -800,5 +802,3 @@
 <a href="https://dellywoodfilms.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
 <a href="https://dellywoodfilms.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
 <a href="https://dellywoodfilms.com/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
-<a href="https://dellywoodfilms.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://dellywoodfilms.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
