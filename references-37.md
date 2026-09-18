@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-38.md) · [‹ prev](references-36.md)
 
+<a href="https://pinasscatter.xyz/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://pinasscatter.xyz/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://pixect.xyz/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://pixect.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
+<a href="https://pixect.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://pixect.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
+<a href="https://pixect.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://pixect.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://pixect.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://pixect.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://pixect.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://pixect.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://pixect.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
@@ -792,13 +802,3 @@
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-35-9/">why niche blogs still matter a deep dive into web tech conte</a> 

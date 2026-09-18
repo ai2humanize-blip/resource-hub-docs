@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cbdpuffbars.com/the-future-of-apps-how-ai-and-personalization-are-transformi/">the future of apps how ai and personalization are transformi</a> 
 <a href="https://cbdpuffbars.com/the-future-of-news-ai-algorithms-and-the-role-of-human-journ/">the future of news ai algorithms and the role of human journ</a> 
 <a href="https://cbdpuffbars.com/the-future-of-news-how-ai-and-technology-are-transforming-jo/">the future of news how ai and technology are transforming jo</a> 
 <a href="https://cbdpuffbars.com/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-84-5/">the practical guide to ai art prompt generators web tech con</a> 
@@ -566,6 +567,8 @@
 <a href="https://cnlawblog.jpn.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://cnlawblog.jpn.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
 <a href="https://cnlawblog.jpn.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://cnlawblog.odoo.com/blog/our-blog-1/a-practical-guide-to-finding-trustworthy-resources-online-1">a practical guide to finding trustworthy resources online 1</a> 
+<a href="https://cnlawblog.odoo.com/blog/our-blog-1/a-practical-guide-to-vetting-online-resources-2">a practical guide to vetting online resources 2</a> 
 <a href="https://cochesdeocasion.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://cochesdeocasion.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://cochesdeocasion.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -799,6 +802,3 @@
 <a href="https://cplemaire.us.org/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://cplemaire.us.org/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://cplemaire.us.org/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 

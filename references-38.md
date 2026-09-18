@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/04/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-35-9/">why niche blogs still matter a deep dive into web tech conte</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
@@ -792,13 +802,3 @@
 <a href="https://ricegumnetworth.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
 <a href="https://ricegumnetworth.com/why-niche-blogs-still-matter-explained-simply-2/">why niche blogs still matter explained simply 2</a> 
 <a href="https://ricegumnetworth.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://ricegumnetworth.com/why-niche-blogs-still-matter-the-basics-2/">why niche blogs still matter the basics 2</a> 
-<a href="https://ricegumnetworth.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://ricegumnetworth.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
-<a href="https://ricegumnetworth.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://ricegumnetworth.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://ricegumnetworth.com/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
-<a href="https://ridetwowheels.com/gindex.html">gindex</a> 
-<a href="https://ridetwowheels.com/picks.html">picks</a> 
-<a href="https://roaring-lebkuchen-1f85df.netlify.app/getting-how-to-compare-sources-on-the-same-story-right.html">getting how to compare sources on the same story right</a> 
-<a href="https://rococo-crostata-b4b503.netlify.app/understanding-the-impact-of-ai-on-modern-journalism-a-compre.html">understanding the impact of ai on modern journalism a compre</a> 

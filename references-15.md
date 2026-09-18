@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://emiamedical.com/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://emiamedical.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://emiamedical.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://emiamedical.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
 <a href="https://emiamedical.com/getting-how-to-organize-the-information-you-find-online-righ-2/">getting how to organize the information you find online righ</a> 
 <a href="https://emiamedical.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
 <a href="https://emiamedical.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
@@ -798,7 +802,3 @@
 <a href="https://ezoterizm.com/the-value-of-slow-careful-reading-a-quick-guide-3/">the value of slow careful reading a quick guide 3</a> 
 <a href="https://ezoterizm.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://ezoterizm.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
-<a href="https://ezoterizm.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://ezoterizm.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
-<a href="https://ezoterizm.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://ezoterizm.com/transforming-daily-life-the-impact-of-ai-powered-apps-in-the-93-5/">transforming daily life the impact of ai powered apps in the</a> 

@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic-2/">what to know about how to find balanced coverage of a topic </a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://peachpuff-hawk-865930.hostingersite.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://peachpuff-hawk-865930.hostingersite.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
 <a href="https://peachpuff-hawk-865930.hostingersite.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
 <a href="https://peachpuff-hawk-865930.hostingersite.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
@@ -792,13 +802,3 @@
 <a href="https://pinasscatter.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://pinasscatter.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://pinasscatter.xyz/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://pinasscatter.xyz/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://pinasscatter.xyz/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://pixect.xyz/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://pixect.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
-<a href="https://pixect.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://pixect.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://pixect.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://pixect.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://pixect.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://pixect.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 

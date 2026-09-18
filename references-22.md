@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
+<a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right-3/">getting understanding digital literacy right 3</a> 
+<a href="https://influencersgonewild.eu.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://influencersgonewild.eu.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://influencersgonewild.eu.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://influencersgonewild.eu.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://influencersgonewild.eu.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
 <a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
 <a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
@@ -794,11 +802,3 @@
 <a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ireplicadealers.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://ireplicadealers.com/understanding-digital-literacy-2/">understanding digital literacy 2</a> 
-<a href="https://ireplicadealers.com/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
-<a href="https://ireplicadealers.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://ireplicadealers.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://ireplicadealers.com/understanding-how-search-engines-rank-pages-and-why-it-matte-2/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://ireplicadealers.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://ireplicadealers.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://ireplicadealers.com/understanding-legal-news-a-guide-to-staying-informed-and-mak/">understanding legal news a guide to staying informed and mak</a> 
