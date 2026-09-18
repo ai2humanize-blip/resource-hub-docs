@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cplemaire.us.org/the-font-world/">the font world</a> 
+<a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
 <a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://cplemaire.us.org/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://cplemaire.us.org/understanding-digital-literacy/">understanding digital literacy</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-basics-of-staying-safe-while.html">the basics of staying safe while</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-difference-between-skimming-and.html">the difference between skimming and</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-difference-between-skimming-and_01798733407.html">the difference between skimming and 01798733407</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-difference-between-skimming-and_0436952170.html">the difference between skimming and 0436952170</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-value-of-slow-careful-reading.html">the value of slow careful reading</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-value-of-slow-careful-reading_01949229993.html">the value of slow careful reading 01949229993</a> 
