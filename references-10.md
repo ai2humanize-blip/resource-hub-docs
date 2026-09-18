@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online-2/">a closer look at recognizing credible experts online 2</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://cplemaire.us.org/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
+<a href="https://cplemaire.us.org/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 
+<a href="https://cplemaire.us.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cplemaire.us.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://cplemaire.us.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://cplemaire.us.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://cplemaire.us.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
@@ -235,6 +253,7 @@
 <a href="https://crediblenews24.com/mastering-digital-literacy-essential-tools-resources-for-the-86-7/">mastering digital literacy essential tools resources for the</a> 
 <a href="https://crediblenews24.com/mastering-digital-privacy-how-to-secure-your-personal-data-i/">mastering digital privacy how to secure your personal data i</a> 
 <a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-2/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-3/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://crediblenews24.com/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
 <a href="https://crediblenews24.com/mastering-marketing-seo-growth-a-comprehensive-guide-86-10/">mastering marketing seo growth a comprehensive guide 86 10</a> 
@@ -783,22 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-how-to-avoid_01843298951.html">a closer look at how to avoid 01843298951</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-how-to-build-personal.html">a closer look at how to build personal</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-how-to-build-personal_0689758223.html">a closer look at how to build personal 0689758223</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-how-to-find-balanced.html">a closer look at how to find balanced</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-how-to-find-reliable.html">a closer look at how to find reliable</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-how-to-tell-if-website.html">a closer look at how to tell if website</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-making-sense-of.html">a closer look at making sense of</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-simple-framework-for.html">a closer look at simple framework for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-why-context-matters.html">a closer look at why context matters</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/a-closer-look-at-why-context-matters_01355245113.html">a closer look at why context matters 01355245113</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/building-healthy-daily-reading-habit.html">building healthy daily reading habit</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/building-healthy-daily-reading-habit_0165346681.html">building healthy daily reading habit 0165346681</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/building-healthy-daily-reading-habit_0974937240.html">building healthy daily reading habit 0974937240</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-basics-of-staying-safe-while.html">getting basics of staying safe while</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-basics-of-staying-safe-while_0402342801.html">getting basics of staying safe while 0402342801</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-building-healthy-daily-reading.html">getting building healthy daily reading</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-building-healthy-daily-reading_0394171880.html">getting building healthy daily reading 0394171880</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-how-to-avoid-misinformation-and.html">getting how to avoid misinformation and</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-how-to-read-news-without.html">getting how to read news without</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-how-to-spot-low-quality-content.html">getting how to spot low quality content</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-understanding-digital-literacy.html">getting understanding digital literacy</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-what-makes-explainer-article.html">getting what makes explainer article</a> 

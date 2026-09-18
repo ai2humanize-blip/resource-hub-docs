@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing-2/">a closer look at the basics of staying safe while browsing 2</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://autumnfallsinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://autumnfallsinterview.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://autumnfallsinterview.com/a-closer-look-at-why-niche-blogs-still-matter-2/">a closer look at why niche blogs still matter 2</a> 
@@ -172,6 +182,7 @@
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-80-1-4/">mastering marketing seo growth a comprehensive guide 80 1 4</a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-80-1-5/">mastering marketing seo growth a comprehensive guide 80 1 5</a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-80-1-6/">mastering marketing seo growth a comprehensive guide 80 1 6</a> 
+<a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-80-1-7/">mastering marketing seo growth a comprehensive guide 80 1 7</a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-80-1/">mastering marketing seo growth a comprehensive guide 80 1</a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-80-6-2/">mastering marketing seo growth a comprehensive guide 80 6 2</a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-80-6-3/">mastering marketing seo growth a comprehensive guide 80 6 3</a> 
@@ -201,6 +212,7 @@
 <a href="https://autumnfallsinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-80-10-4/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-80-10-5/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-80-10-6/">mastering online information guides reviews how tos for savv</a> 
+<a href="https://autumnfallsinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-80-10-7/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-80-10/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-80-5/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-80-10-2/">mastering online information guides reviews how tos for smar</a> 
@@ -214,6 +226,7 @@
 <a href="https://autumnfallsinterview.com/mastering-online-learning-guides-reviews-and-how-tos-for-suc-80-10/">mastering online learning guides reviews and how tos for suc</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-80-10/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-reading-research-and-digital-literacy-a-com-80-10/">mastering online reading research and digital literacy a com</a> 
+<a href="https://autumnfallsinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-80-10-2/">mastering online research guides reviews and how tos for sav</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-80-10/">mastering online research guides reviews and how tos for sav</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-the-80-10-2/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://autumnfallsinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-the-80-10/">mastering online research guides reviews and how tos for the</a> 
@@ -549,6 +562,7 @@
 <a href="https://bandemusic.com/mastering-cryptocurrency-bitcoin-and-blockchain-guides-revie-81-4/">mastering cryptocurrency bitcoin and blockchain guides revie</a> 
 <a href="https://bandemusic.com/mastering-digital-literacy-essential-tools-online-resources-81-2/">mastering digital literacy essential tools online resources </a> 
 <a href="https://bandemusic.com/mastering-digital-literacy-essential-tools-resources-for-the-81-7/">mastering digital literacy essential tools resources for the</a> 
+<a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-7-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-7/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://bandemusic.com/mastering-marketing-seo-and-growth-strategies-for-business-s-81-5/">mastering marketing seo and growth strategies for business s</a> 
@@ -788,17 +802,3 @@
 <a href="https://bitslots.de.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
 <a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
 <a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
-<a href="https://bitslots.de.com/open-a-nigerian-bank-account-online/">open a nigerian bank account online</a> 
-<a href="https://bitslots.de.com/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste/">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
-<a href="https://bitslots.de.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://bitslots.de.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
-<a href="https://bitslots.de.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://bitslots.de.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://bitslots.de.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://bitslots.de.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://bitslots.de.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
-<a href="https://bitslots.de.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
-<a href="https://bitslots.de.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://bitslots.de.com/the-truth-about-circulating-aavot-apk-files-2/">the truth about circulating aavot apk files 2</a> 
-<a href="https://bitslots.de.com/the-truth-about-circulating-aavot-apk-files/">the truth about circulating aavot apk files</a> 
-<a href="https://bitslots.de.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 

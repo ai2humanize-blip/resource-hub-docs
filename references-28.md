@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://madeleine-dore.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://madeleine-dore.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://madeleine-dore.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://madeleine-dore.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://madeleine-dore.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://madwirebuild.com/gindex.html">gindex</a> 
+<a href="https://madwirebuild.com/picks.html">picks</a> 
+<a href="https://magenta-arithmetic-409861.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-and-.html">understanding the impact of ai on modern news reporting and</a> 
+<a href="https://magenta-melba-e4a69c.netlify.app/professional-construction-network.html">professional construction network</a> 
+<a href="https://magenta-sprite-849eb9.netlify.app/making-sense-of-complex-topics-online-explained-simply.html">making sense of complex topics online explained simply</a> 
+<a href="https://magical-donut-ca7937.netlify.app/discovering-the-vibrant-world-of-asianpinay-a-deep-dive-into.html">discovering the vibrant world of asianpinay a deep dive into</a> 
 <a href="https://magicly.bio/1mother/A-curated-list-of-independent-websites">A curated list of independent websites</a> 
 <a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
 <a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
@@ -779,26 +802,3 @@
 <a href="https://modernwritingdesk.com/discover-the-ultimate-guide-to-health-wellness-and-organic-l/">discover the ultimate guide to health wellness and organic l</a> 
 <a href="https://modernwritingdesk.com/discover-unique-event-ideas-and-expert-planning-tips-for-eve/">discover unique event ideas and expert planning tips for eve</a> 
 <a href="https://modernwritingdesk.com/discover-unique-event-ideas-and-expert-planning-tips-for-mem-110-10/">discover unique event ideas and expert planning tips for mem</a> 
-<a href="https://modernwritingdesk.com/discovering-the-vibrant-world-of-independent-music-culture/">discovering the vibrant world of independent music culture</a> 
-<a href="https://modernwritingdesk.com/embracing-timeless-fashion-how-to-incorporate-classic-styles/">embracing timeless fashion how to incorporate classic styles</a> 
-<a href="https://modernwritingdesk.com/essential-digital-tools-online-resources-for-modern-needs-110-3/">essential digital tools online resources for modern needs 11</a> 
-<a href="https://modernwritingdesk.com/essential-guides-reviews-how-tos-for-a-better-life-110-10/">essential guides reviews how tos for a better life 110 10</a> 
-<a href="https://modernwritingdesk.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://modernwritingdesk.com/evidence-checked-home-remedies-india/">evidence checked home remedies india</a> 
-<a href="https://modernwritingdesk.com/exploring-diverse-topics-guides-reviews-and-how-tos-for-a-be-110-10/">exploring diverse topics guides reviews and how tos for a be</a> 
-<a href="https://modernwritingdesk.com/exploring-independent-music-and-ai-apps-a-comprehensive-guid-110-10/">exploring independent music and ai apps a comprehensive guid</a> 
-<a href="https://modernwritingdesk.com/exploring-the-cutting-edge-web-tech-and-content-innovations-110-4/">exploring the cutting edge web tech and content innovations </a> 
-<a href="https://modernwritingdesk.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://modernwritingdesk.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://modernwritingdesk.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://modernwritingdesk.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://modernwritingdesk.com/getting-how-to-fact-check-something-in-five-minutes-right-2/">getting how to fact check something in five minutes right 2</a> 
-<a href="https://modernwritingdesk.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://modernwritingdesk.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://modernwritingdesk.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://modernwritingdesk.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://modernwritingdesk.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
-<a href="https://modernwritingdesk.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://modernwritingdesk.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://modernwritingdesk.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://modernwritingdesk.com/how-ai-and-machine-learning-are-transforming-everyday-mobile/">how ai and machine learning are transforming everyday mobile</a> 
