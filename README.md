@@ -123,6 +123,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://janibd.com/">janibd.com</a> 
 <a href="https://tashbazzi.com/">tashbazzi.com</a> 
 <a href="https://todaykeralalotteryresult.net/">todaykeralalotteryresult.net</a> 
+<a href="https://teckjb.org/">teckjb.org</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -167,4 +168,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 40](references-40.md)
 - [Reference set 41](references-41.md)
 
-_32,016 curated references across 41 sets._
+_32,046 curated references across 41 sets._

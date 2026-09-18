@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-2/">guides reviews how tos 50 resources worth bookmarking 92 8 2</a> 
+<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-3/">guides reviews how tos 50 resources worth bookmarking 92 8 3</a> 
+<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8/">guides reviews how tos 50 resources worth bookmarking 92 8</a> 
+<a href="https://emiamedical.com/guides-reviews-how-tos-navigating-the-information-age-92-3/">guides reviews how tos navigating the information age 92 3</a> 
+<a href="https://emiamedical.com/how-ai-and-machine-learning-are-revolutionizing-everyday-app/">how ai and machine learning are revolutionizing everyday app</a> 
+<a href="https://emiamedical.com/how-ai-and-machine-learning-are-transforming-daily-life-and/">how ai and machine learning are transforming daily life and</a> 
+<a href="https://emiamedical.com/how-ai-driven-news-platforms-are-revolutionizing-current-eve/">how ai driven news platforms are revolutionizing current eve</a> 
+<a href="https://emiamedical.com/how-ai-is-transforming-news-consumption-current-trends-and-f/">how ai is transforming news consumption current trends and f</a> 
+<a href="https://emiamedical.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
 <a href="https://emiamedical.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
 <a href="https://emiamedical.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
@@ -793,12 +802,3 @@
 <a href="https://ezoterizm.com/types-of-editing-explained/">types of editing explained</a> 
 <a href="https://ezoterizm.com/ultimate-guide-to-top-online-resources-blogs-and-how-tos-for-93-2/">ultimate guide to top online resources blogs and how tos for</a> 
 <a href="https://ezoterizm.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://ezoterizm.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

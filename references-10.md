@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://cplemaire.us.org/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://cplemaire.us.org/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://cplemaire.us.org/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-difference-between-skimming-and_0436952170.html">the difference between skimming and 0436952170</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-value-of-slow-careful-reading.html">the value of slow careful reading</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-value-of-slow-careful-reading_01949229993.html">the value of slow careful reading 01949229993</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/understanding-how-indias-public.html">understanding how indias public</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/understanding-how-search-engines-rank.html">understanding how search engines rank</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-makes-explainer-article-genuinely.html">what makes explainer article genuinely</a> 
