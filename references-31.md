@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://newslikeyou.com.se/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
+<a href="https://newslikeyou.com.se/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://newslikeyou.com.se/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 
 <a href="https://newslikeyou.com.se/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
 <a href="https://newslikeyou.com.se/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
 <a href="https://newslikeyou.com.se/the-difference-between-skimming-and-deep-reading-online-a-practical-guide/">the difference between skimming and deep reading online a pr</a> 
@@ -799,6 +802,3 @@
 <a href="https://oceaniccleaningservice.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://oceaniccleaningservice.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://oceaniccleaningservice.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://oceaniccleaningservice.com/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
-<a href="https://oceaniccleaningservice.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://oceaniccleaningservice.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 

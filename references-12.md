@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cybinxo.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
 <a href="https://cybinxo.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
 <a href="https://cybinxo.com/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
 <a href="https://cymbaltareviews.com/a-closer-look-at-building-a-healthy-daily-reading-habit-2/">a closer look at building a healthy daily reading habit 2</a> 
@@ -801,4 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/getting-a-simple-framework-for-researching-any-topic-online-right-1c8">getting a simple framework for researching any topic online </a> 
 <a href="https://dev.to/ai2humanizeblip/getting-how-to-bookmark-and-revisit-useful-resources-right-176h">getting how to bookmark and revisit useful resources right 1</a> 
 <a href="https://dev.to/ai2humanizeblip/getting-how-to-spot-low-quality-content-online-right-3fik">getting how to spot low quality content online right 3fik</a> 
-<a href="https://dev.to/ai2humanizeblip/getting-how-to-tell-if-a-website-is-trustworthy-right-271c">getting how to tell if a website is trustworthy right 271c</a> 

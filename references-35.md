@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://rommedicalabbreviation.com/getting-what-makes-an-explainer-article-genuinely-useful-right/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://rommedicalabbreviation.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://rommedicalabbreviation.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://rommedicalabbreviation.com/how-ai-driven-apps-are-transforming-our-daily-lives-and-work/">how ai driven apps are transforming our daily lives and work</a> 
 <a href="https://rommedicalabbreviation.com/how-ai-is-transforming-news-reporting-and-consumption/">how ai is transforming news reporting and consumption</a> 
 <a href="https://rommedicalabbreviation.com/how-ai-powered-apps-are-transforming-our-daily-digital-lives/">how ai powered apps are transforming our daily digital lives</a> 
@@ -799,6 +802,3 @@
 <a href="https://sinknews.it.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://sinknews.it.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://sinknews.it.com/how-to-boost-your-productivity-with-the-best-apps-for-digita/">how to boost your productivity with the best apps for digita</a> 
-<a href="https://sinknews.it.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
-<a href="https://sinknews.it.com/how-to-choose-the-right-advanced-seo-agency-in-india/">how to choose the right advanced seo agency in india</a> 
-<a href="https://sinknews.it.com/how-to-compare-sources-on-the-same-story-and-why-it-matters-2/">how to compare sources on the same story and why it matters </a> 

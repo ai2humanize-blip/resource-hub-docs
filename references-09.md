@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cbdpuffbars.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://cbdpuffbars.com/the-future-of-apps-how-ai-and-personalization-are-transformi/">the future of apps how ai and personalization are transformi</a> 
 <a href="https://cbdpuffbars.com/the-future-of-news-ai-algorithms-and-the-role-of-human-journ/">the future of news ai algorithms and the role of human journ</a> 
 <a href="https://cbdpuffbars.com/the-future-of-news-how-ai-and-technology-are-transforming-jo/">the future of news how ai and technology are transforming jo</a> 
@@ -801,4 +802,3 @@
 <a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://cplemaire.us.org/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://cplemaire.us.org/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://cplemaire.us.org/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 

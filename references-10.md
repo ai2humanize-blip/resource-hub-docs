@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cplemaire.us.org/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
@@ -801,4 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/understanding-how-indias-public.html">understanding how indias public</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/understanding-how-search-engines-rank.html">understanding how search engines rank</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-makes-explainer-article-genuinely.html">what makes explainer article genuinely</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-how-to-evaluate.html">what to know about how to evaluate</a> 

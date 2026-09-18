@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-how-to-evaluate.html">what to know about how to evaluate</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-how-to-evaluate_0136437626.html">what to know about how to evaluate 0136437626</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-how-to-use-web-to.html">what to know about how to use web to</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/what-to-know-about-making-sense-of.html">what to know about making sense of</a> 
@@ -801,4 +802,3 @@
 <a href="https://cybinxo.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://cybinxo.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://cybinxo.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
-<a href="https://cybinxo.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 

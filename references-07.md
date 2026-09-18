@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/daily-news-briefing/">daily news briefing</a> 
 <a href="https://boostelearning.mataroa.blog/blog/demystifying-cryptocurrency-a-beginners-guide-to-bitcoin-and-blockchain/">demystifying cryptocurrency a beginners guide to bitcoin and</a> 
 <a href="https://boostelearning.mataroa.blog/blog/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners-b25f3aa2/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://boostelearning.mataroa.blog/blog/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
@@ -801,4 +802,3 @@
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
 <a href="https://captainjackinterview.com/web-tech-content-navigating-the-digital-landscape-for-succes-82-2/">web tech content navigating the digital landscape for succes</a> 
-<a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 

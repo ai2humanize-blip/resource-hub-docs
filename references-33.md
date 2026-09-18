@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://playboicartinetworth.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://playboicartinetworth.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://playboicartinetworth.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
 <a href="https://playboicartinetworth.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -799,6 +802,3 @@
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-16/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-17/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-18/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-19/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-20/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-21/">mastering business finance productivity a comprehensive guid</a> 

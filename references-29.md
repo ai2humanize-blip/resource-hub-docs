@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://modernwritingdesk.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://modernwritingdesk.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://modernwritingdesk.com/transforming-daily-life-ai-driven-apps-and-digital-organizat-110-10/">transforming daily life ai driven apps and digital organizat</a> 
 <a href="https://modernwritingdesk.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://modernwritingdesk.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
@@ -286,6 +288,7 @@
 <a href="https://moneynewsweb.co.in/mastering-digital-tools-online-resources-a-comprehensive-gui-21-2-36/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://moneynewsweb.co.in/mastering-digital-tools-online-resources-a-comprehensive-gui-21-2-37/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://moneynewsweb.co.in/mastering-digital-tools-online-resources-a-comprehensive-gui-21-2-38/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://moneynewsweb.co.in/mastering-digital-tools-online-resources-a-comprehensive-gui-21-2-39/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://moneynewsweb.co.in/mastering-digital-tools-online-resources-a-comprehensive-gui-21-2-4/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://moneynewsweb.co.in/mastering-digital-tools-online-resources-a-comprehensive-gui-21-2-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://moneynewsweb.co.in/mastering-digital-tools-online-resources-a-comprehensive-gui-21-2-6/">mastering digital tools online resources a comprehensive gui</a> 
@@ -799,6 +802,3 @@
 <a href="https://myclassnews.it.com/how-to-play-at-casinos-without-spelpaus-restrictions/">how to play at casinos without spelpaus restrictions</a> 
 <a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
 <a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
-<a href="https://myclassnews.it.com/how-to-safely-follow-an-app-that-s-still-in-development-2/">how to safely follow an app that s still in development 2</a> 

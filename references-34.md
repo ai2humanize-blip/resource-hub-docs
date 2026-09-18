@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-19/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-20/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-21/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-22/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-a-comprehensive-guid-35-2-23/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/09/mastering-business-finance-productivity-essential-skills-for-35-2-2/">mastering business finance productivity essential skills for</a> 
@@ -799,6 +802,3 @@
 <a href="https://rommedicalabbreviation.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://rommedicalabbreviation.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://rommedicalabbreviation.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://rommedicalabbreviation.com/getting-what-makes-an-explainer-article-genuinely-useful-right/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://rommedicalabbreviation.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://rommedicalabbreviation.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 

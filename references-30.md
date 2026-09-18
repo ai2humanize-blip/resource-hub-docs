@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://myclassnews.it.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
+<a href="https://myclassnews.it.com/how-to-safely-follow-an-app-that-s-still-in-development-2/">how to safely follow an app that s still in development 2</a> 
 <a href="https://myclassnews.it.com/how-to-safely-follow-an-app-that-s-still-in-development/">how to safely follow an app that s still in development</a> 
 <a href="https://myclassnews.it.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
 <a href="https://myclassnews.it.com/how-to-stay-ahead-with-the-latest-sports-news-and-analysis/">how to stay ahead with the latest sports news and analysis</a> 
@@ -799,6 +802,3 @@
 <a href="https://newslikeyou.com.se/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://newslikeyou.com.se/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://newslikeyou.com.se/simple-habits-of-a-smart-internet-reader-a-practical-guide-2/">simple habits of a smart internet reader a practical guide 2</a> 
-<a href="https://newslikeyou.com.se/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://newslikeyou.com.se/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://newslikeyou.com.se/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 

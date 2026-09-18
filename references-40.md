@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://thriftyevents.jp.net/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
+<a href="https://thriftyevents.jp.net/how-to-organize-the-information-you-find-online-the-basics-2/">how to organize the information you find online the basics 2</a> 
+<a href="https://thriftyevents.jp.net/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
 <a href="https://thriftyevents.jp.net/how-to-plan-a-beautiful-wedding-on-a-realistic-budget/">how to plan a beautiful wedding on a realistic budget</a> 
 <a href="https://thriftyevents.jp.net/how-to-read-the-news-without-getting-overwhelmed-the-basics-2/">how to read the news without getting overwhelmed the basics </a> 
 <a href="https://thriftyevents.jp.net/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://www.tumblr.com/linkstack/824850504896135168/discover-unique-event-ideas-and-expert-planning-tips-for-mem">discover unique event ideas and expert planning tips for mem</a> 
 <a href="https://www.tumblr.com/linkstack/824857133635026944/navigating-the-complex-world-of-modern-news-consumption">navigating the complex world of modern news consumption</a> 
 <a href="https://www.tumblr.com/linkstack/824858842101940224/understanding-the-latest-trends-in-news-consumption-and-anal">understanding the latest trends in news consumption and anal</a> 
-<a href="https://www.tumblr.com/linkstack/824866454416539648/embracing-timeless-style-how-classic-fashion-pieces-elevate-">embracing timeless style how classic fashion pieces elevate</a> 
-<a href="https://www.tumblr.com/linkstack/824870309216845824/staying-informed-the-best-news-sources-for-real-time-updates">staying informed the best news sources for real time updates</a> 
-<a href="https://www.tumblr.com/linkstack/824871399738032128/decoding-today-s-news-expert-analysis-and-insights-for-the-s">decoding today s news expert analysis and insights for the s</a> 

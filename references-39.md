@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://techvestllc.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://techvestllc.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
+<a href="https://techvestllc.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
 <a href="https://techvestllc.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
 <a href="https://techvestllc.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
 <a href="https://techvestllc.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
@@ -799,6 +802,3 @@
 <a href="https://thriftyevents.jp.net/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://thriftyevents.jp.net/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
 <a href="https://thriftyevents.jp.net/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://thriftyevents.jp.net/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
-<a href="https://thriftyevents.jp.net/how-to-organize-the-information-you-find-online-the-basics-2/">how to organize the information you find online the basics 2</a> 
-<a href="https://thriftyevents.jp.net/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 

@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://ls-mastering-perso-msrvy4ix.firebaseapp.com/">ls-mastering-perso-msrvy4ix.firebaseapp.com</a> 
+<a href="https://ls-mastering-perso-msrvy4ix.web.app/">ls-mastering-perso-msrvy4ix.web.app</a> 
 <a href="https://ls-mastering-perso-mss3skjd.firebaseapp.com/">ls-mastering-perso-mss3skjd.firebaseapp.com</a> 
 <a href="https://ls-mastering-perso-mss3skjd.web.app/">ls-mastering-perso-mss3skjd.web.app</a> 
 <a href="https://ls-mastering-personal-finance-a-business-msspbfrt.wasmer.app/">ls-mastering-personal-finance-a-business-msspbfrt.wasmer.app</a> 
@@ -800,5 +802,3 @@
 <a href="https://marketingslave.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
 <a href="https://marketingslave.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
 <a href="https://marketingslave.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
-<a href="https://marketingslave.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://marketingslave.com/how-to-spot-low-quality-content-online-and-why-it-matters-2/">how to spot low quality content online and why it matters 2</a> 

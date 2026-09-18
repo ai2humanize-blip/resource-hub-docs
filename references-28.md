@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://marketingslave.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://marketingslave.com/how-to-spot-low-quality-content-online-and-why-it-matters-2/">how to spot low quality content online and why it matters 2</a> 
 <a href="https://marketingslave.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
 <a href="https://marketingslave.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
 <a href="https://marketingslave.com/how-to-tell-if-a-website-is-trustworthy-2/">how to tell if a website is trustworthy 2</a> 
@@ -800,5 +802,3 @@
 <a href="https://modernwritingdesk.com/the-ultimate-guide-to-choosing-the-perfect-watch-reviews-gui-110-10/">the ultimate guide to choosing the perfect watch reviews gui</a> 
 <a href="https://modernwritingdesk.com/the-ultimate-guide-to-starting-a-profitable-home-garden/">the ultimate guide to starting a profitable home garden</a> 
 <a href="https://modernwritingdesk.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://modernwritingdesk.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://modernwritingdesk.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 

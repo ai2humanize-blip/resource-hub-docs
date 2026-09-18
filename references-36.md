@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://sinknews.it.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://sinknews.it.com/how-to-choose-the-right-advanced-seo-agency-in-india/">how to choose the right advanced seo agency in india</a> 
+<a href="https://sinknews.it.com/how-to-compare-sources-on-the-same-story-and-why-it-matters-2/">how to compare sources on the same story and why it matters </a> 
 <a href="https://sinknews.it.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
 <a href="https://sinknews.it.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
 <a href="https://sinknews.it.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
@@ -799,6 +802,3 @@
 <a href="https://sogutmacimarketi.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
 <a href="https://sogutmacimarketi.com/understanding-the-impact-of-ai-on-modern-news-reporting-a-co/">understanding the impact of ai on modern news reporting a co</a> 
 <a href="https://sogutmacimarketi.com/understanding-the-impact-of-recent-economic-trends-on-global/">understanding the impact of recent economic trends on global</a> 
-<a href="https://sogutmacimarketi.com/understanding-the-latest-developments-in-ai-regulation-and-t/">understanding the latest developments in ai regulation and t</a> 
-<a href="https://sogutmacimarketi.com/unlock-the-power-of-social-media-for-local-business-growth/">unlock the power of social media for local business growth</a> 
-<a href="https://sogutmacimarketi.com/unlocking-the-power-of-intermittent-fasting-a-comprehensive/">unlocking the power of intermittent fasting a comprehensive</a> 
