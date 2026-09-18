@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://heatherburrisphotography.com/unlocking-the-secrets-of-successful-personal-budgeting-a-com/">unlocking the secrets of successful personal budgeting a com</a> 
+<a href="https://heatherburrisphotography.com/unpacking-the-latest-trends-in-news-consumption-and-analysis/">unpacking the latest trends in news consumption and analysis</a> 
+<a href="https://heatherburrisphotography.com/unpacking-today-s-news-in-depth-analysis-and-expert-insights/">unpacking today s news in depth analysis and expert insights</a> 
+<a href="https://heatherburrisphotography.com/web-tech-content-50-resources-worth-bookmarking-99-5-2/">web tech content 50 resources worth bookmarking 99 5 2</a> 
+<a href="https://heatherburrisphotography.com/web-tech-content-50-resources-worth-bookmarking-99-5-3/">web tech content 50 resources worth bookmarking 99 5 3</a> 
+<a href="https://heatherburrisphotography.com/web-tech-content-50-resources-worth-bookmarking-99-5/">web tech content 50 resources worth bookmarking 99 5</a> 
+<a href="https://heatherburrisphotography.com/web-tech-content-your-ultimate-guide-to-digital-productivity-99-10/">web tech content your ultimate guide to digital productivity</a> 
+<a href="https://heatherburrisphotography.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
+<a href="https://heatherburrisphotography.com/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://heatherburrisphotography.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://heatherburrisphotography.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://heatherburrisphotography.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-organize-the-information-you-find-online/">what to know about how to organize the information you find </a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://heatherburrisphotography.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://heatherburrisphotography.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
 <a href="https://heatherburrisphotography.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
@@ -781,24 +802,3 @@
 <a href="https://illicitlabel.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
 <a href="https://illicitlabel.com/what-to-know-about-how-to-avoid-misinformation-and-hype-2/">what to know about how to avoid misinformation and hype 2</a> 
 <a href="https://illicitlabel.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://illicitlabel.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://illicitlabel.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://illicitlabel.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://illicitlabel.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://illicitlabel.com/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
-<a href="https://illicitlabel.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://illicitlabel.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://illicitlabel.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
-<a href="https://illicitlabel.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://illicitlabel.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://illicitlabel.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://illicitlabel.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://illicitlabel.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://imaginative-cuchufli-3ae12e.netlify.app/how-manuscript-revision-works.html">how manuscript revision works</a> 
-<a href="https://influencersgonewild.eu.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://influencersgonewild.eu.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
-<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 

@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
+<a href="https://cplemaire.us.org/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
+<a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
+<a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
 <a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://cplemaire.us.org/the-font-world/">the font world</a> 
 <a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
@@ -793,12 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-spot-low-quality-content-online_0492816379.html">how to spot low quality content online 0492816379</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-tell-if-website-is-trustworthy.html">how to tell if website is trustworthy</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-use-web-to-learn-new-skill.html">how to use web to learn new skill</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/making-sense-of-complex-topics-online.html">making sense of complex topics online</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/making-sense-of-complex-topics-online_0836820940.html">making sense of complex topics online 0836820940</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online.html">recognizing credible experts online</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online_01891563208.html">recognizing credible experts online 01891563208</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online_0536542947.html">recognizing credible experts online 0536542947</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/recognizing-credible-experts-online_0684205506.html">recognizing credible experts online 0684205506</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-basics-of-staying-safe-while.html">the basics of staying safe while</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-difference-between-skimming-and.html">the difference between skimming and</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/the-difference-between-skimming-and_01798733407.html">the difference between skimming and 01798733407</a> 

@@ -2,6 +2,37 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://thecommercecasino.com/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
+<a href="https://thecuratedreader1m.blogspot.com/">thecuratedreader1m.blogspot.com</a> 
+<a href="https://thecuratedreader1m.blogspot.com/2026/09/ten-reads-worth-your-time-this-week.html">ten reads worth your time this week</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://thedigitalweekly.co/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://thedigitalweekly.co/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://thedigitalweekly.co/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://thedigitalweekly.co/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
+<a href="https://thedigitalweekly.co/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
+<a href="https://thedigitalweekly.co/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
+<a href="https://thedigitalweekly.co/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://thedigitalweekly.co/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://thedigitalweekly.co/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://thedigitalweekly.co/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://thedigitalweekly.co/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://thedigitalweekly.co/how-to-be-a-smarter-news-reader-in-2026/">how to be a smarter news reader in 2026</a> 
+<a href="https://thedigitalweekly.co/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://thedigitalweekly.co/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://thedigitalweekly.co/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://thedigitalweekly.co/how-to-compare-sources-on-the-same-story-a-practical-guide-2/">how to compare sources on the same story a practical guide 2</a> 
+<a href="https://thedigitalweekly.co/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://thedigitalweekly.co/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://thedigitalweekly.co/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://thedigitalweekly.co/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
 <a href="https://thedigitalweekly.co/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
 <a href="https://thedigitalweekly.co/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
 <a href="https://thedigitalweekly.co/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
@@ -771,34 +802,3 @@
 <a href="https://www.diigo.com/rss/user/amother?page_num=4">amother</a> 
 <a href="https://www.diigo.com/rss/user/amother?page_num=5">amother</a> 
 <a href="https://www.diigo.com/rss/user/amother?page_num=6">amother</a> 
-<a href="https://www.google.com/maps/d/view?mid=1gMgxW-dnuRIIbLNnuQ52AKvS7lMd8NE">view</a> 
-<a href="https://www.instapaper.com/p/curatedreads1m">curatedreads1m</a> 
-<a href="https://www.statshow.com/www/2forksevents.com">2forksevents.com</a> 
-<a href="https://www.statshow.com/www/360sportnews.com">360sportnews.com</a> 
-<a href="https://www.statshow.com/www/analyzingmarket.com">analyzingmarket.com</a> 
-<a href="https://www.statshow.com/www/areyoufashion.com">areyoufashion.com</a> 
-<a href="https://www.statshow.com/www/artpromptsgenerator.org">artpromptsgenerator.org</a> 
-<a href="https://www.statshow.com/www/baginda168.gb.net">baginda168.gb.net</a> 
-<a href="https://www.statshow.com/www/bitadvent.com">bitadvent.com</a> 
-<a href="https://www.statshow.com/www/bitcoincasinosnews.com">bitcoincasinosnews.com</a> 
-<a href="https://www.statshow.com/www/bitcoindigital.info">bitcoindigital.info</a> 
-<a href="https://www.statshow.com/www/bitcoinlogical.com">bitcoinlogical.com</a> 
-<a href="https://www.statshow.com/www/bitcoinprime.info">bitcoinprime.info</a> 
-<a href="https://www.statshow.com/www/bitjackpot.de.com">bitjackpot.de.com</a> 
-<a href="https://www.statshow.com/www/blackpearlbitcoin.com">blackpearlbitcoin.com</a> 
-<a href="https://www.statshow.com/www/blocklist.co.kr">blocklist.co.kr</a> 
-<a href="https://www.statshow.com/www/boostelearning.com">boostelearning.com</a> 
-<a href="https://www.statshow.com/www/brightstartnews.com">brightstartnews.com</a> 
-<a href="https://www.statshow.com/www/btccasinonews.com">btccasinonews.com</a> 
-<a href="https://www.statshow.com/www/coinculb.com">coinculb.com</a> 
-<a href="https://www.statshow.com/www/coinnews.de.com">coinnews.de.com</a> 
-<a href="https://www.statshow.com/www/coinpric.com">coinpric.com</a> 
-<a href="https://www.statshow.com/www/conisec.com">conisec.com</a> 
-<a href="https://www.statshow.com/www/cplemaire.co">cplemaire.co</a> 
-<a href="https://www.statshow.com/www/crunchbanglinux.org">crunchbanglinux.org</a> 
-<a href="https://www.statshow.com/www/crypto-house.net">crypto house.net</a> 
-<a href="https://www.statshow.com/www/cryptocirclex.com">cryptocirclex.com</a> 
-<a href="https://www.statshow.com/www/cryptonewsus.com">cryptonewsus.com</a> 
-<a href="https://www.statshow.com/www/cryptopronetworkcom.org">cryptopronetworkcom.org</a> 
-<a href="https://www.statshow.com/www/cryptorublecoins.com">cryptorublecoins.com</a> 
-<a href="https://www.statshow.com/www/cubednews.com">cubednews.com</a> 
