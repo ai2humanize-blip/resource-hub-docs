@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://getolive.org/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opinion/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy-2/">a closer look at how to tell if a website is trustworthy 2</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://getolive.org/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://getolive.org/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://getolive.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://getolive.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://getolive.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine-2/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://getolive.org/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
 <a href="https://getolive.org/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
 <a href="https://getolive.org/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
 <a href="https://getolive.org/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -518,6 +533,7 @@
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-52/">mastering marketing seo growth a comprehensive guide 29 7 52</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-53/">mastering marketing seo growth a comprehensive guide 29 7 53</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-54/">mastering marketing seo growth a comprehensive guide 29 7 54</a> 
+<a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-55/">mastering marketing seo growth a comprehensive guide 29 7 55</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-6/">mastering marketing seo growth a comprehensive guide 29 7 6</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-7/">mastering marketing seo growth a comprehensive guide 29 7 7</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-8/">mastering marketing seo growth a comprehensive guide 29 7 8</a> 
@@ -783,22 +799,6 @@
 <a href="https://gptseoservices.gb.net/casino-utan-spelpaus-vad-du-b-r-veta-innan-du-spelar-utan-li/">casino utan spelpaus vad du b r veta innan du spelar utan li</a> 
 <a href="https://gptseoservices.gb.net/choosing-the-perfect-timepiece-a-comprehensive-watch-buying/">choosing the perfect timepiece a comprehensive watch buying</a> 
 <a href="https://gptseoservices.gb.net/choosing-the-right-advanced-seo-agency-for-your-business-in/">choosing the right advanced seo agency for your business in</a> 
+<a href="https://gptseoservices.gb.net/choosing-the-right-smartwatch-for-your-lifestyle-a-comprehen-30-8/">choosing the right smartwatch for your lifestyle a comprehen</a> 
 <a href="https://gptseoservices.gb.net/comprehensive-guides-reviews-how-tos-stay-informed-and-empow-30-5/">comprehensive guides reviews how tos stay informed and empow</a> 
 <a href="https://gptseoservices.gb.net/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-30-7/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
-<a href="https://gptseoservices.gb.net/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-30-7/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://gptseoservices.gb.net/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://gptseoservices.gb.net/digital-tools-online-resources-10-resources-worth-bookmarkin-30-8/">digital tools online resources 10 resources worth bookmarkin</a> 
-<a href="https://gptseoservices.gb.net/discover-essential-digital-tools-online-resources-for-every-30-8/">discover essential digital tools online resources for every </a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-coffee-shops-for-remote-work-a-comprehensi/">discover the best coffee shops for remote work a comprehensi</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-for-finding-cheap-flights-an-30-8/">discover the best digital tools for finding cheap flights an</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-every-n-30-8-2/">discover the best digital tools online resources for every n</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-every-n-30-8-3/">discover the best digital tools online resources for every n</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-every-n-30-8-4/">discover the best digital tools online resources for every n</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-every-n-30-8-5/">discover the best digital tools online resources for every n</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-every-n-30-8-6/">discover the best digital tools online resources for every n</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-every-n-30-8/">discover the best digital tools online resources for every n</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-everyda-30-8/">discover the best digital tools online resources for everyda</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-indepen-30-8-2/">discover the best digital tools online resources for indepen</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-indepen-30-8-3/">discover the best digital tools online resources for indepen</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-indepen-30-8/">discover the best digital tools online resources for indepen</a> 
-<a href="https://gptseoservices.gb.net/discover-the-best-digital-tools-online-resources-for-product-30-8-2/">discover the best digital tools online resources for product</a> 

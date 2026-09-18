@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://casacours.uk.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://casacours.uk.com/why-context-matters-when-reading-online-the-basics-2/">why context matters when reading online the basics 2</a> 
+<a href="https://casacours.uk.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://casacours.uk.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://casacours.uk.com/why-niche-blogs-still-matter-2/">why niche blogs still matter 2</a> 
+<a href="https://casacours.uk.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://casacours.uk.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://casinoeinnlakewales.com/gindex.html">gindex</a> 
 <a href="https://casinoeinnlakewales.com/picks.html">picks</a> 
@@ -226,6 +235,7 @@
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-deep-dive-into-ind-83-4/">mastering business finance productivity a deep dive into ind</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-essential-online-str-83-4/">mastering business finance productivity essential online str</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-essential-web-skills-83-9/">mastering business finance productivity essential web skills</a> 
+<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-83-9/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-with-ai-art-prompt-g-83-4/">mastering business finance productivity with ai art prompt g</a> 
 <a href="https://cbd-stone.com/mastering-crypto-essential-terms-news-interpretation-and-wal-83-8/">mastering crypto essential terms news interpretation and wal</a> 
 <a href="https://cbd-stone.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-83-7/">mastering digital literacy guides reviews and how tos for th</a> 
@@ -560,6 +570,7 @@
 <a href="https://cbdpuffbars.com/mastering-the-digital-landscape-how-technology-and-apps-shap/">mastering the digital landscape how technology and apps shap</a> 
 <a href="https://cbdpuffbars.com/mastering-the-intersection-of-business-personal-finance-and/">mastering the intersection of business personal finance and</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10-2/">mastering web tech content a comprehensive guide for smart r</a> 
+<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10-3/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-84-10/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-84-5/">mastering web tech content a comprehensive guide for the mod</a> 
@@ -791,14 +802,3 @@
 <a href="https://cbdstent.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
 <a href="https://cbdstent.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
 <a href="https://cbdstent.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://cbdstent.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
-<a href="https://cbdstent.com/how-ai-is-transforming-the-news-industry-current-trends-and/">how ai is transforming the news industry current trends and</a> 
-<a href="https://cbdstent.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://cbdstent.com/how-ai-powered-apps-are-transforming-everyday-life-in-the-di/">how ai powered apps are transforming everyday life in the di</a> 
-<a href="https://cbdstent.com/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
-<a href="https://cbdstent.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cbdstent.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
-<a href="https://cbdstent.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://cbdstent.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://cbdstent.com/how-to-boost-your-home-s-curb-appeal-on-a-budget/">how to boost your home s curb appeal on a budget</a> 
-<a href="https://cbdstent.com/how-to-build-a-personal-reading-list-and-why-it-matters-2/">how to build a personal reading list and why it matters 2</a> 
