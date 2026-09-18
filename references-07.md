@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bitslots.de.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://bitslots.de.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://bitslots.de.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
+<a href="https://bitslots.de.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
+<a href="https://bitslots.de.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
+<a href="https://bitslots.de.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
+<a href="https://bitslots.de.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://bitslots.de.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://bitslots.de.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://bitslots.de.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://bitslots.de.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://bitslots.de.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://bitslots.de.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
 <a href="https://bitslots.de.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
 <a href="https://bitslots.de.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
 <a href="https://bitslots.de.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
@@ -789,16 +802,3 @@
 <a href="https://captainjackinterview.com/transforming-daily-life-the-impact-of-ai-powered-apps-on-bus-82-5/">transforming daily life the impact of ai powered apps on bus</a> 
 <a href="https://captainjackinterview.com/transforming-your-digital-life-top-apps-for-productivity-lea-82-5/">transforming your digital life top apps for productivity lea</a> 
 <a href="https://captainjackinterview.com/ultimate-guides-reviews-how-tos-your-go-to-resource-for-mast-82-3/">ultimate guides reviews how tos your go to resource for mast</a> 
-<a href="https://captainjackinterview.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

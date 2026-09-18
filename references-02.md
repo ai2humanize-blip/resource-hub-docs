@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://agenciainmobiliaria.xyz/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://agenciainmobiliaria.xyz/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
 <a href="https://agenciainmobiliaria.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
 <a href="https://agenciainmobiliaria.xyz/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
 <a href="https://agenciainmobiliaria.xyz/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
@@ -274,6 +276,7 @@
 <a href="https://agriculture-lawyer.com/mastering-online-learning-reading-and-research-comprehensive-75-5/">mastering online learning reading and research comprehensive</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-guides-reviews-and-how-tos-for-effe-75-5/">mastering online reading guides reviews and how tos for effe</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-guides-reviews-and-how-tos-for-savv-75-5/">mastering online reading guides reviews and how tos for savv</a> 
+<a href="https://agriculture-lawyer.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-75-5-2/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-75-5/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-research-and-digital-literacy-a-com-75-10/">mastering online reading research and digital literacy a com</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-reading-research-and-safety-a-comprehensive-75-5/">mastering online reading research and safety a comprehensive</a> 
@@ -285,6 +288,7 @@
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-75-5-2/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-75-5-3/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-75-5-4/">mastering online research guides reviews how tos for savvy r</a> 
+<a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-75-5-5/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-75-5/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-75-5/">mastering online research guides reviews how tos for smart i</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-75-5/">mastering online research guides reviews how tos for smart r</a> 
@@ -798,7 +802,3 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-modern-news-landscape-marketing-seo-and-growt-42-4.html">navigating the modern news landscape marketing seo and growt</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-modern-news-landscape-tools-trends-and-ai-ins-43-5.html">navigating the modern news landscape tools trends and ai ins</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-new-era-of-ai-driven-news-analysis-and-insigh.html">navigating the new era of ai driven news analysis and insigh</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-shifting-landscape-of-2023-news-consumption.html">navigating the shifting landscape of 2023 news consumption</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-shifting-landscape-of-modern-journalism-a-com.html">navigating the shifting landscape of modern journalism a com</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-shifting-landscape-of-news-consumption-a-comp-42-4.html">navigating the shifting landscape of news consumption a comp</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-web-a-comprehensive-guide-to-web-tech-content-43-1.html">navigating the web a comprehensive guide to web tech content</a> 

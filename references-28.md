@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://magicly.bio/1mother/A-curated-list-of-independent-websites">A curated list of independent websites</a> 
+<a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
+<a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
+<a href="https://magicly.bio/1mother/Independent-websites-worth-bookmarking-a-reading-list">Independent websites worth bookmarking a reading list</a> 
+<a href="https://magicly.bio/1mother/More-independent-publications-to-explore">More independent publications to explore</a> 
+<a href="https://magnificent-zabaione-cf1f35.netlify.app/a-simple-framework-for-researching-any-topic-online.html">a simple framework for researching any topic online</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://marketingslave.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://marketingslave.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://marketingslave.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://marketingslave.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://marketingslave.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://marketingslave.com/a-closer-look-at-why-niche-blogs-still-matter-2/">a closer look at why niche blogs still matter 2</a> 
+<a href="https://marketingslave.com/a-closer-look-at-why-niche-blogs-still-matter-3/">a closer look at why niche blogs still matter 3</a> 
+<a href="https://marketingslave.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
 <a href="https://marketingslave.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://marketingslave.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://marketingslave.com/a-exploring-the-future-how-ai-and-apps-are-transforming-our/">a exploring the future how ai and apps are transforming our</a> 
@@ -781,24 +802,3 @@
 <a href="https://modernwritingdesk.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
 <a href="https://modernwritingdesk.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
 <a href="https://modernwritingdesk.com/how-ai-and-machine-learning-are-transforming-everyday-mobile/">how ai and machine learning are transforming everyday mobile</a> 
-<a href="https://modernwritingdesk.com/how-ai-and-machine-learning-are-transforming-mobile-apps-in/">how ai and machine learning are transforming mobile apps in</a> 
-<a href="https://modernwritingdesk.com/how-ai-driven-apps-are-revolutionizing-creativity-in-the-dig/">how ai driven apps are revolutionizing creativity in the dig</a> 
-<a href="https://modernwritingdesk.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
-<a href="https://modernwritingdesk.com/how-ai-powered-apps-are-transforming-our-daily-lives/">how ai powered apps are transforming our daily lives</a> 
-<a href="https://modernwritingdesk.com/how-current-news-analysis-shapes-our-understanding-of-the-wo/">how current news analysis shapes our understanding of the wo</a> 
-<a href="https://modernwritingdesk.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://modernwritingdesk.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://modernwritingdesk.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://modernwritingdesk.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://modernwritingdesk.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://modernwritingdesk.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
-<a href="https://modernwritingdesk.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
-<a href="https://modernwritingdesk.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://modernwritingdesk.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://modernwritingdesk.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
-<a href="https://modernwritingdesk.com/how-to-find-balanced-coverage-of-a-topic-2/">how to find balanced coverage of a topic 2</a> 
-<a href="https://modernwritingdesk.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
-<a href="https://modernwritingdesk.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://modernwritingdesk.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 

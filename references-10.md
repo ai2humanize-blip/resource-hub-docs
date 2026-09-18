@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://cplemaire.us.org/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://cplemaire.us.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://cplemaire.us.org/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
 <a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
 <a href="https://cplemaire.us.org/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
 <a href="https://cplemaire.us.org/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
@@ -789,16 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-how-to-spot-low-quality-content.html">getting how to spot low quality content</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-understanding-digital-literacy.html">getting understanding digital literacy</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-what-makes-explainer-article.html">getting what makes explainer article</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/getting-why-context-matters-when.html">getting why context matters when</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-bookmark-and-revisit-useful.html">how to bookmark and revisit useful</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-build-personal-reading-list.html">how to build personal reading list</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-build-real-digital-skills-with.html">how to build real digital skills with</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-compare-sources-on-same-story.html">how to compare sources on same story</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-compare-sources-on-same-story_01121760282.html">how to compare sources on same story 01121760282</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-compare-sources-on-same-story_02122511072.html">how to compare sources on same story 02122511072</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-evaluate-online-reviews-and.html">how to evaluate online reviews and</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-evaluate-online-reviews-and_01144977291.html">how to evaluate online reviews and 01144977291</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-evaluate-online-reviews-and_01978585153.html">how to evaluate online reviews and 01978585153</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-evaluate-online-reviews-and_0454010418.html">how to evaluate online reviews and 0454010418</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-evaluate-online-reviews-and_0472109273.html">how to evaluate online reviews and 0472109273</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/09/how-to-fact-check-something-in-five.html">how to fact check something in five</a> 

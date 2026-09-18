@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-why-niche-blogs-still-matter-2/">a closer look at why niche blogs still matter 2</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://autumnfallsinterview.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://autumnfallsinterview.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://autumnfallsinterview.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://autumnfallsinterview.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-2/">a simple framework for researching any topic online 2</a> 
+<a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
+<a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
 <a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
 <a href="https://autumnfallsinterview.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://autumnfallsinterview.com/boost-your-business-and-personal-finances-with-strategic-mar/">boost your business and personal finances with strategic mar</a> 
@@ -118,6 +129,7 @@
 <a href="https://autumnfallsinterview.com/marketing-seo-growth-50-resources-worth-bookmarking-80-6/">marketing seo growth 50 resources worth bookmarking 80 6</a> 
 <a href="https://autumnfallsinterview.com/marketing-seo-growth-essential-strategies-for-business-succe-80-1/">marketing seo growth essential strategies for business succe</a> 
 <a href="https://autumnfallsinterview.com/master-crypto-basics-guides-reviews-safety-tips-for-beginner-80-5/">master crypto basics guides reviews safety tips for beginner</a> 
+<a href="https://autumnfallsinterview.com/master-online-learning-guides-reviews-and-how-tos-for-succes-80-10/">master online learning guides reviews and how tos for succes</a> 
 <a href="https://autumnfallsinterview.com/master-online-research-guides-reviews-how-tos-for-smart-sear-80-10/">master online research guides reviews how tos for smart sear</a> 
 <a href="https://autumnfallsinterview.com/master-the-art-of-online-reading-guides-reviews-how-tos-80-10/">master the art of online reading guides reviews how tos 80 1</a> 
 <a href="https://autumnfallsinterview.com/master-the-art-of-personal-finance-for-small-business-succes/">master the art of personal finance for small business succes</a> 
@@ -152,6 +164,7 @@
 <a href="https://autumnfallsinterview.com/mastering-guides-reviews-how-tos-navigating-the-web-for-know-80-10/">mastering guides reviews how tos navigating the web for know</a> 
 <a href="https://autumnfallsinterview.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-80-10/">mastering guides reviews how tos your ultimate round up for </a> 
 <a href="https://autumnfallsinterview.com/mastering-information-guides-reviews-and-how-tos-for-smarter-80-10/">mastering information guides reviews and how tos for smarter</a> 
+<a href="https://autumnfallsinterview.com/mastering-information-guides-reviews-how-tos-for-the-modern-80-10/">mastering information guides reviews how tos for the modern </a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-80-1/">mastering marketing seo and growth a comprehensive guide 80 </a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-80-6/">mastering marketing seo and growth a comprehensive guide 80 </a> 
 <a href="https://autumnfallsinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-80-1-2/">mastering marketing seo growth a comprehensive guide 80 1 2</a> 
@@ -789,16 +802,3 @@
 <a href="https://bitslots.de.com/the-truth-about-circulating-aavot-apk-files-2/">the truth about circulating aavot apk files 2</a> 
 <a href="https://bitslots.de.com/the-truth-about-circulating-aavot-apk-files/">the truth about circulating aavot apk files</a> 
 <a href="https://bitslots.de.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
-<a href="https://bitslots.de.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://bitslots.de.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://bitslots.de.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
-<a href="https://bitslots.de.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://bitslots.de.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
-<a href="https://bitslots.de.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
-<a href="https://bitslots.de.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://bitslots.de.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://bitslots.de.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://bitslots.de.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://bitslots.de.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
-<a href="https://bitslots.de.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://bitslots.de.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
