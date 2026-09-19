@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmbXoMvni9RjQXJ2DARU2TDw5cHtWD5VpaAEMiFR4YTYKi">QmbXoMvni9RjQXJ2DARU2TDw5cHtWD5VpaAEMiFR4YTYKi</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbiB4mrCbSCL4RCfgQbrCctBJi93GP4hpNKVCxwB5GA8X">QmbiB4mrCbSCL4RCfgQbrCctBJi93GP4hpNKVCxwB5GA8X</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf">QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6">QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496">Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW">Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcBf4ZBsovyRtUMq153bJT97aPmc1dN1cBPZeyGExJ3Bk">QmcBf4ZBsovyRtUMq153bJT97aPmc1dN1cBPZeyGExJ3Bk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk">QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT">QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki">QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F">QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H">QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE">QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ">QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc">QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY">Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB">QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7">QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6">Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH">Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY">Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn">QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE">QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt">QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX">QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G">QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G</a> 
@@ -779,26 +802,3 @@
 <a href="https://labmagickite.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://labmagickite.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://labmagickite.com/what-to-know-about-how-to-organize-the-information-you-find-online/">what to know about how to organize the information you find </a> 
-<a href="https://labmagickite.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://labmagickite.com/what-to-know-about-simple-habits-of-a-smart-internet-reader-2/">what to know about simple habits of a smart internet reader </a> 
-<a href="https://labmagickite.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
-<a href="https://labmagickite.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
-<a href="https://labmagickite.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://labmagickite.com/what-to-know-about-why-context-matters-when-reading-online-3/">what to know about why context matters when reading online 3</a> 
-<a href="https://labmagickite.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://labmagickite.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://labmagickite.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
-<a href="https://labmagickite.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://labmagickite.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://labmagickite.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
-<a href="https://labmagickite.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://labmagickite.com/why-general-interest-blogs-matter-in-a-niche-world-a-deep-di-104-3/">why general interest blogs matter in a niche world a deep di</a> 
-<a href="https://labmagickite.com/why-niche-blogs-still-matter-the-basics-2/">why niche blogs still matter the basics 2</a> 
-<a href="https://labmagickite.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
