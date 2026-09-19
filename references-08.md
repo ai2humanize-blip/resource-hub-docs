@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters-2/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
+<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
+<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl-2/">the difference between skimming and deep reading online expl</a> 
+<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl-3/">the difference between skimming and deep reading online expl</a> 
+<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://captainjackinterview.com/the-future-of-ai-in-journalism-opportunities-and-challenges-2/">the future of ai in journalism opportunities and challenges </a> 
 <a href="https://captainjackinterview.com/the-future-of-ai-in-journalism-opportunities-and-challenges/">the future of ai in journalism opportunities and challenges</a> 
 <a href="https://captainjackinterview.com/the-future-of-news-emerging-trends-and-the-role-of-independe/">the future of news emerging trends and the role of independe</a> 
 <a href="https://captainjackinterview.com/the-future-of-sports-news-ai-analytics-and-real-time-reporti/">the future of sports news ai analytics and real time reporti</a> 
@@ -448,6 +458,7 @@
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-4/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-9-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-9-3/">mastering business finance productivity a comprehensive guid</a> 
@@ -791,14 +802,3 @@
 <a href="https://cbdpuffbars.com/mastering-marketing-seo-growth-a-comprehensive-guide-84-2/">mastering marketing seo growth a comprehensive guide 84 2</a> 
 <a href="https://cbdpuffbars.com/mastering-marketing-seo-growth-a-comprehensive-guide-for-suc-84-7/">mastering marketing seo growth a comprehensive guide for suc</a> 
 <a href="https://cbdpuffbars.com/mastering-marketing-seo-growth-strategies-for-success-84-7/">mastering marketing seo growth strategies for success 84 7</a> 
-<a href="https://cbdpuffbars.com/mastering-online-information-guides-reviews-how-tos-for-savv-84-6/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://cbdpuffbars.com/mastering-online-research-guides-reviews-how-tos-for-smarter-84-6/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://cbdpuffbars.com/mastering-personal-finance-and-marketing-for-business-growth/">mastering personal finance and marketing for business growth</a> 
-<a href="https://cbdpuffbars.com/mastering-the-art-of-business-finance-and-marketing-integrat/">mastering the art of business finance and marketing integrat</a> 
-<a href="https://cbdpuffbars.com/mastering-the-art-of-business-growth-personal-finance-and-ma/">mastering the art of business growth personal finance and ma</a> 
-<a href="https://cbdpuffbars.com/mastering-the-art-of-home-coffee-brewing-a-comprehensive-gui/">mastering the art of home coffee brewing a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-the-digital-landscape-how-technology-and-apps-shap/">mastering the digital landscape how technology and apps shap</a> 
-<a href="https://cbdpuffbars.com/mastering-the-intersection-of-business-personal-finance-and/">mastering the intersection of business personal finance and</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10-2/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10-3/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10/">mastering web tech content a comprehensive guide for smart r</a> 

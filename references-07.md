@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-3/">making sense of complex topics online 3</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://bitslots.de.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
+<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
 <a href="https://bitslots.de.com/open-a-nigerian-bank-account-online/">open a nigerian bank account online</a> 
 <a href="https://bitslots.de.com/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste/">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
 <a href="https://bitslots.de.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
@@ -728,6 +737,7 @@
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3/">mastering online information guides reviews how tos for the </a> 
 <a href="https://captainjackinterview.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-82-8/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://captainjackinterview.com/mastering-online-reading-research-and-digital-literacy-a-com-82-8/">mastering online reading research and digital literacy a com</a> 
+<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-82-3/">mastering online research guides reviews and how tos for sav</a> 
 <a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-82-8/">mastering online research guides reviews how tos for smart l</a> 
 <a href="https://captainjackinterview.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-82-3/">mastering online resources guides reviews how tos for smarte</a> 
 <a href="https://captainjackinterview.com/mastering-personal-finance-marketing-and-business-growth-a-s-82-4/">mastering personal finance marketing and business growth a s</a> 
@@ -792,13 +802,3 @@
 <a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters-2/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl-2/">the difference between skimming and deep reading online expl</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl-3/">the difference between skimming and deep reading online expl</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://captainjackinterview.com/the-future-of-ai-in-journalism-opportunities-and-challenges-2/">the future of ai in journalism opportunities and challenges </a> 
