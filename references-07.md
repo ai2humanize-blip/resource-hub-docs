@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bitslots.de.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy-2/">a closer look at how to tell if a website is trustworthy 2</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://bitslots.de.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://bitslots.de.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
 <a href="https://bitslots.de.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
@@ -754,6 +760,7 @@
 <a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-5-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://captainjackinterview.com/mastering-business-personal-finance-and-marketing-a-comprehe/">mastering business personal finance and marketing a comprehe</a> 
+<a href="https://captainjackinterview.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-82-3/">mastering digital literacy guides reviews and how tos for th</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-guides-reviews-and-how-tos-a-comprehensive-guide-t-82-3/">mastering guides reviews and how tos a comprehensive guide t</a> 
 <a href="https://captainjackinterview.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-82-3/">mastering guides reviews and how tos a comprehensive roundup</a> 
@@ -786,6 +793,7 @@
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-3/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-8/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3-2/">mastering online information guides reviews how tos for the </a> 
+<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3-3/">mastering online information guides reviews how tos for the </a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3/">mastering online information guides reviews how tos for the </a> 
 <a href="https://captainjackinterview.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-82-8/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://captainjackinterview.com/mastering-online-reading-research-and-digital-literacy-a-com-82-8/">mastering online reading research and digital literacy a com</a> 
@@ -794,11 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-digital-82-3/">mastering online research guides reviews how tos for digital</a> 
 <a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-82-3/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-82-3/">mastering online research guides reviews how tos for smart i</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-82-8/">mastering online research guides reviews how tos for smart l</a> 
-<a href="https://captainjackinterview.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-82-3/">mastering online resources guides reviews how tos for smarte</a> 
-<a href="https://captainjackinterview.com/mastering-personal-finance-marketing-and-business-growth-a-s-82-4/">mastering personal finance marketing and business growth a s</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-app-management-boost-productivity-with/">mastering the art of app management boost productivity with</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-and-personal-finance-a-marketi/">mastering the art of business and personal finance a marketi</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-and-personal-finance-in-the-di/">mastering the art of business and personal finance in the di</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-finance-personal-wealth-and-ma-82-2/">mastering the art of business finance personal wealth and ma</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-personal-finance-and-marketing-82-4/">mastering the art of business personal finance and marketing</a> 
