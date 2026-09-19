@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
+<a href="https://bitslots.de.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
+<a href="https://bitslots.de.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
+<a href="https://bitslots.de.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
+<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
 <a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online-3/">making sense of complex topics online 3</a> 
@@ -705,6 +711,7 @@
 <a href="https://captainjackinterview.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://captainjackinterview.com/master-marketing-seo-growth-your-guide-to-online-success-82-4/">master marketing seo growth your guide to online success 82 </a> 
 <a href="https://captainjackinterview.com/master-the-art-of-cheap-flight-booking-tips-tools-and-timing-82-4/">master the art of cheap flight booking tips tools and timing</a> 
+<a href="https://captainjackinterview.com/master-the-art-of-online-reading-guides-reviews-how-tos-82-3/">master the art of online reading guides reviews how tos 82 3</a> 
 <a href="https://captainjackinterview.com/mastering-app-organization-boost-productivity-with-smart-dig/">mastering app organization boost productivity with smart dig</a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-a-marketing-strategy-for-financia/">mastering business finance a marketing strategy for financia</a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-5-2/">mastering business finance productivity a comprehensive guid</a> 
@@ -729,11 +736,13 @@
 <a href="https://captainjackinterview.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-82-4-2/">mastering marketing seo growth strategies for success in a c</a> 
 <a href="https://captainjackinterview.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-82-4/">mastering marketing seo growth strategies for success in a c</a> 
 <a href="https://captainjackinterview.com/mastering-modern-topics-guides-reviews-and-how-tos-for-today-82-3/">mastering modern topics guides reviews and how tos for today</a> 
+<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-and-how-tos-for-82-3-2/">mastering online information guides reviews and how tos for </a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-and-how-tos-for-82-3/">mastering online information guides reviews and how tos for </a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-3/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-8/">mastering online information guides reviews how tos for smar</a> 
+<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3-2/">mastering online information guides reviews how tos for the </a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3/">mastering online information guides reviews how tos for the </a> 
 <a href="https://captainjackinterview.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-82-8/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://captainjackinterview.com/mastering-online-reading-research-and-digital-literacy-a-com-82-8/">mastering online reading research and digital literacy a com</a> 
@@ -793,12 +802,3 @@
 <a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters-2/">simple habits of a smart internet reader and why it matters </a> 
 <a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
 <a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
-<a href="https://captainjackinterview.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://captainjackinterview.com/staying-safe-and-informed-a-guide-to-online-casino-news-and-82-3/">staying safe and informed a guide to online casino news and </a> 
-<a href="https://captainjackinterview.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-in-online-casino-and/">staying safe and responsible the latest in online casino and</a> 
-<a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 

@@ -2,6 +2,36 @@
 
 [index](README.md) · [‹ prev](references-40.md)
 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://venusskin.net/why-primary-sources-matter-and-how-to-find-them-a-practical-guide/">why primary sources matter and how to find them a practical </a> 
+<a href="https://venusskin.net/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://venusskin.net/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://verdant-sopapillas-6c7223.netlify.app/simple-habits-of-a-smart-internet-reader-explained-simply.html">simple habits of a smart internet reader explained simply</a> 
+<a href="https://visionary-douhua-23676e.netlify.app/the-montserrat-and-merriweather-pairing.html">the montserrat and merriweather pairing</a> 
+<a href="https://vocal-maamoul-7f2b87.netlify.app/staying-safe-and-informed-the-latest-in-online-casino-and-ga.html">staying safe and informed the latest in online casino and ga</a> 
+<a href="https://voluble-cucurucho-78c424.netlify.app/a-closer-look-at-how-to-fact-check-something-in-five-minutes.html">a closer look at how to fact check something in five minutes</a> 
+<a href="https://voluble-phoenix-ea17d0.netlify.app/a-closer-look-at-why-primary-sources-matter-and-how-to-find-.html">a closer look at why primary sources matter and how to find</a> 
+<a href="https://voslot777.xyz/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://voslot777.xyz/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://voslot777.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://voslot777.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://voslot777.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://voslot777.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://voslot777.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://voslot777.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://voslot777.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://voslot777.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://voslot777.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://voslot777.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://voslot777.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://voslot777.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://voslot777.xyz/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://voslot777.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://voslot777.xyz/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://voslot777.xyz/how-to-evaluate-online-reviews-and-recommendations-a-practical-guide/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://voslot777.xyz/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
 <a href="https://voslot777.xyz/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://voslot777.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
 <a href="https://voslot777.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
