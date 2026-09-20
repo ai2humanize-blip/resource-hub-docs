@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://beautiful-manatee-47cb7d.netlify.app/a-simple-framework-for-researching-any-topic-online-the-basi.html">a simple framework for researching any topic online the basi</a> 
+<a href="https://bit.ly/46V4ZK5">46V4ZK5</a> 
+<a href="https://bit.ly/46fjGaS">46fjGaS</a> 
+<a href="https://bit.ly/4r0Wo1I">4r0Wo1I</a> 
 <a href="https://bit.ly/4r5n55E">4r5n55E</a> 
 <a href="https://bit.ly/4xH22bW">4xH22bW</a> 
 <a href="https://bit.ly/m/curatedreads1m">curatedreads1m</a> 
@@ -797,8 +801,4 @@
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3-3/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3-4/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-3-2/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-3/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-8/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3-2/">mastering online information guides reviews how tos for the </a> 
+<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3-5/">mastering online information guides reviews how tos for savv</a> 
