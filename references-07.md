@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bandemusic.com/what-makes-an-explainer-article-genuinely-useful-the-basics-2/">what makes an explainer article genuinely useful the basics </a> 
+<a href="https://bandemusic.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://bandemusic.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
 <a href="https://bandemusic.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://bandemusic.com/what-to-know-about-making-sense-of-complex-topics-online-2/">what to know about making sense of complex topics online 2</a> 
 <a href="https://bandemusic.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-82-3/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://captainjackinterview.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-82-3/">mastering guides reviews how tos a comprehensive roundup 82 </a> 
 <a href="https://captainjackinterview.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-on-82-3/">mastering guides reviews how tos a comprehensive roundup on </a> 
-<a href="https://captainjackinterview.com/mastering-guides-reviews-how-tos-your-2026-resource-roundup-82-3/">mastering guides reviews how tos your 2026 resource roundup </a> 
-<a href="https://captainjackinterview.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-82-8/">mastering guides reviews how tos your ultimate round up for </a> 
-<a href="https://captainjackinterview.com/mastering-indian-legal-news-guides-reviews-and-how-tos-for-e-82-3/">mastering indian legal news guides reviews and how tos for e</a> 

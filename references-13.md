@@ -2,6 +2,30 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://dellywoodfilms.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://dellywoodfilms.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://dellywoodfilms.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://dellywoodfilms.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://dellywoodfilms.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://dellywoodfilms.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://dellywoodfilms.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
+<a href="https://dellywoodfilms.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://dellywoodfilms.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
+<a href="https://dellywoodfilms.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://dellywoodfilms.com/boost-your-business-and-personal-finances-with-strategic-mar-3/">boost your business and personal finances with strategic mar</a> 
+<a href="https://dellywoodfilms.com/breaking-down-the-latest-sports-news-trends-analysis-and-ins/">breaking down the latest sports news trends analysis and ins</a> 
+<a href="https://dellywoodfilms.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
+<a href="https://dellywoodfilms.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
+<a href="https://dellywoodfilms.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://dellywoodfilms.com/business-finance-productivity-navigating-news-trends-and-res-89-8/">business finance productivity navigating news trends and res</a> 
+<a href="https://dellywoodfilms.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
+<a href="https://dellywoodfilms.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
+<a href="https://dellywoodfilms.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-89-1/">comprehensive guides in depth reviews and practical how tos </a> 
+<a href="https://dellywoodfilms.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-89-1/">comprehensive guides reviews and how tos for every interest </a> 
 <a href="https://dellywoodfilms.com/comprehensive-guides-reviews-and-how-tos-for-tech-crypto-and-89-1/">comprehensive guides reviews and how tos for tech crypto and</a> 
 <a href="https://dellywoodfilms.com/comprehensive-guides-reviews-how-tos-for-mastering-turf-and-89-1/">comprehensive guides reviews how tos for mastering turf and </a> 
 <a href="https://dellywoodfilms.com/comprehensive-guides-reviews-how-tos-your-ultimate-resource-89-1-2/">comprehensive guides reviews how tos your ultimate resource </a> 
@@ -22,6 +46,7 @@
 <a href="https://dellywoodfilms.com/essential-digital-tools-online-resources-for-business-growth-89-9/">essential digital tools online resources for business growth</a> 
 <a href="https://dellywoodfilms.com/essential-digital-tools-online-resources-for-career-and-lega-89-9/">essential digital tools online resources for career and lega</a> 
 <a href="https://dellywoodfilms.com/essential-digital-tools-online-resources-for-informed-resear-89-9/">essential digital tools online resources for informed resear</a> 
+<a href="https://dellywoodfilms.com/essential-digital-tools-online-resources-for-lifelong-learni-89-9/">essential digital tools online resources for lifelong learni</a> 
 <a href="https://dellywoodfilms.com/essential-digital-tools-online-resources-for-modern-learning-89-9/">essential digital tools online resources for modern learning</a> 
 <a href="https://dellywoodfilms.com/essential-digital-tools-online-resources-for-modern-life-89-9/">essential digital tools online resources for modern life 89 </a> 
 <a href="https://dellywoodfilms.com/essential-digital-tools-online-resources-for-modern-living-89-9-2/">essential digital tools online resources for modern living 8</a> 
@@ -119,6 +144,7 @@
 <a href="https://dellywoodfilms.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
 <a href="https://dellywoodfilms.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://dellywoodfilms.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://dellywoodfilms.com/master-the-web-essential-digital-tools-online-resources-for-89-9/">master the web essential digital tools online resources for </a> 
 <a href="https://dellywoodfilms.com/mastering-business-and-personal-finance-a-marketing-perspect/">mastering business and personal finance a marketing perspect</a> 
 <a href="https://dellywoodfilms.com/mastering-business-and-personal-finance-the-marketing-edge-y/">mastering business and personal finance the marketing edge y</a> 
 <a href="https://dellywoodfilms.com/mastering-business-finance-productivity-a-comprehensive-guid-89-3/">mastering business finance productivity a comprehensive guid</a> 
@@ -134,6 +160,7 @@
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9-7/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9-8/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9-9/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://dellywoodfilms.com/mastering-marketing-seo-growth-strategies-for-business-succe-89-2/">mastering marketing seo growth strategies for business succe</a> 
 <a href="https://dellywoodfilms.com/mastering-marketing-seo-growth-strategies-for-success-89-2-2/">mastering marketing seo growth strategies for success 89 2 2</a> 
@@ -775,30 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/what-makes-a-great-mobile-casino-experience-a-comprehensive-guide-208g">what makes a great mobile casino experience a comprehensive </a> 
 <a href="https://dev.to/ai2humanizeblip/what-makes-an-explainer-article-genuinely-useful-3733">what makes an explainer article genuinely useful 3733</a> 
 <a href="https://dev.to/ai2humanizeblip/what-makes-an-explainer-article-genuinely-useful-and-why-it-matters-26d">what makes an explainer article genuinely useful and why it </a> 
-<a href="https://dev.to/ai2humanizeblip/what-makes-an-explainer-article-genuinely-useful-the-basics-4197">what makes an explainer article genuinely useful the basics </a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-a-simple-framework-for-researching-any-topic-online-4fgd">what to know about a simple framework for researching any to</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-building-a-healthy-daily-reading-habit-kp3">what to know about building a healthy daily reading habit kp</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-how-to-build-a-personal-reading-list-2g7o">what to know about how to build a personal reading list 2g7o</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-how-to-find-balanced-coverage-of-a-topic-3406">what to know about how to find balanced coverage of a topic </a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-recognizing-credible-experts-online-28mp">what to know about recognizing credible experts online 28mp</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-recognizing-credible-experts-online-5ld">what to know about recognizing credible experts online 5ld</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-difference-between-skimming-and-deep-reading-online-mc">what to know about the difference between skimming and deep </a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-value-of-slow-careful-reading-3im1">what to know about the value of slow careful reading 3im1</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-value-of-slow-careful-reading-dhn">what to know about the value of slow careful reading dhn</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-understanding-digital-literacy-3hgp">what to know about understanding digital literacy 3hgp</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-what-makes-an-explainer-article-genuinely-useful-4n87">what to know about what makes an explainer article genuinely</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-why-context-matters-when-reading-online-32h3">what to know about why context matters when reading online 3</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-know-about-why-context-matters-when-reading-online-3ca3">what to know about why context matters when reading online 3</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-look-for-in-a-good-news-website-a-practical-guide-3a35">what to look for in a good news website a practical guide 3a</a> 
-<a href="https://dev.to/ai2humanizeblip/what-to-look-for-in-a-good-news-website-a-quick-guide-1jcp">what to look for in a good news website a quick guide 1jcp</a> 
-<a href="https://dev.to/ai2humanizeblip/why-browser-games-are-perfect-for-a-quick-break-2jd8">why browser games are perfect for a quick break 2jd8</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-2ajp">why niche blogs still matter 2ajp</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-3p8o">why niche blogs still matter 3p8o</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-content-276k">why niche blogs still matter a deep dive into web tech conte</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-a-practical-guide-fbb">why niche blogs still matter a practical guide fbb</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-explained-simply-b4d">why niche blogs still matter explained simply b4d</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-in-the-web-tech-content-landscape-4ecm">why niche blogs still matter in the web tech content landsca</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-digital-publications-are-winning-the-modern-newsroom-538j">why niche digital publications are winning the modern newsro</a> 
-<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-3op8">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-52g2">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://docs.google.com/document/d/e/2PACX-1vSDSa_NYUlW-I8JNaAh_Ty7JpB-3xWuCxpd4BeJ9_rLoa-P4SRwpxfNVR_zGlDaqnJUm1f5p6dDfBF9/pub">pub</a> 
