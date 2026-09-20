@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bit.ly/4r5n55E">4r5n55E</a> 
+<a href="https://bit.ly/4xH22bW">4xH22bW</a> 
+<a href="https://bit.ly/m/curatedreads1m">curatedreads1m</a> 
+<a href="https://bit.ly/m/webfinds1m">webfinds1m</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-a-simple-framework-for-researching-any-topi-2/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-a-simple-framework-for-researching-any-topi-3/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://bitslots.de.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://bitslots.de.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy-2/">a closer look at how to tell if a website is trustworthy 2</a> 
 <a href="https://bitslots.de.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
@@ -793,12 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-3/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-8/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3-2/">mastering online information guides reviews how tos for the </a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3-3/">mastering online information guides reviews how tos for the </a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3/">mastering online information guides reviews how tos for the </a> 
-<a href="https://captainjackinterview.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-82-8/">mastering online reading guides reviews how tos for smart in</a> 
-<a href="https://captainjackinterview.com/mastering-online-reading-research-and-digital-literacy-a-com-82-8/">mastering online reading research and digital literacy a com</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-82-3/">mastering online research guides reviews and how tos for sav</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-the-82-3/">mastering online research guides reviews and how tos for the</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-digital-82-3/">mastering online research guides reviews how tos for digital</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-82-3/">mastering online research guides reviews how tos for savvy r</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-82-3/">mastering online research guides reviews how tos for smart i</a> 
