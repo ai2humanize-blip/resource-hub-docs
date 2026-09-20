@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://dreamy-chebakia-1e7156.netlify.app/understanding-how-search-engines-rank-pages-explained-simply.html">understanding how search engines rank pages explained simply</a> 
+<a href="https://dreamy-heliotrope-1da96b.netlify.app/how-to-find-balanced-coverage-of-a-topic-a-practical-guide.html">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://dynamic-froyo-08fd41.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn.html">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://earnest-concha-dbc02a.netlify.app/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic.html">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
+<a href="https://earnmoneyplayinggames.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
+<a href="https://earnmoneyplayinggames.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://earnmoneyplayinggames.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://earnmoneyplayinggames.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://earnmoneyplayinggames.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://earnmoneyplayinggames.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://earnmoneyplayinggames.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://earnmoneyplayinggames.xyz/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://earnmoneyplayinggames.xyz/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -226,6 +244,7 @@
 <a href="https://ecomhuntreviews.com/mastering-online-reading-research-and-digital-literacy-a-com-90-10/">mastering online reading research and digital literacy a com</a> 
 <a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-90-10/">mastering online research guides reviews how tos for smart l</a> 
 <a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smarter-90-10/">mastering online research guides reviews how tos for smarter</a> 
+<a href="https://ecomhuntreviews.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-90-10/">mastering online resources guides reviews how tos for smarte</a> 
 <a href="https://ecomhuntreviews.com/mastering-personal-finance-a-business-owner-s-guide-to-finan/">mastering personal finance a business owner s guide to finan</a> 
 <a href="https://ecomhuntreviews.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
 <a href="https://ecomhuntreviews.com/mastering-personal-finance-a-strategic-approach-to-business-4/">mastering personal finance a strategic approach to business </a> 
@@ -783,22 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@7806268/how-to-avoid-misinformation-and-hype-a-practical-guide.html">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@796c551/breaking-news-updates.html">breaking news updates</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@7aff75c/why-context-matters-when-reading-online-explained-simply.html">why context matters when reading online explained simply</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@7c50a88/staying-safe-and-responsible-the-latest-online-casino-and-ga.html">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@7cebe14/unlocking-the-power-of-organic-gardening-a-beginner-s-guide.html">unlocking the power of organic gardening a beginner s guide</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@7e1b9a9/navigating-the-crypto-landscape-understanding-bitcoin-blockc.html">navigating the crypto landscape understanding bitcoin blockc</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8034696/how-to-evaluate-online-reviews-and-recommendations-explained.html">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@81892a4/le-quint-comprendre-le-pari-hippique-le-plus-suivi.html">le quint comprendre le pari hippique le plus suivi</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@81baf2c/how-to-read-the-news-without-getting-overwhelmed-explained-s.html">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8312f07/navigating-the-future-of-finance-understanding-bitcoin-block.html">navigating the future of finance understanding bitcoin block</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8481a54/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi.html">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@86453af/understanding-digital-literacy.html">understanding digital literacy</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@86bf5ec/getting-making-sense-of-complex-topics-online-right.html">getting making sense of complex topics online right</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@873a351/how-to-evaluate-online-reviews-and-recommendations-a-practic.html">how to evaluate online reviews and recommendations a practic</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@895c503/what-to-know-about-what-to-look-for-in-a-good-news-website.html">what to know about what to look for in a good news website</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8b123bc/navigating-the-digital-world-top-apps-for-boosting-productiv.html">navigating the digital world top apps for boosting productiv</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8eeea8a/leveraging-the-latest-apps-for-a-more-productive-digital-lif.html">leveraging the latest apps for a more productive digital lif</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@9100dfa/getting-how-to-tell-if-a-website-is-trustworthy-right.html">getting how to tell if a website is trustworthy right</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@94215a2/thedigitalweekly-overview-and-latest-updates.html">thedigitalweekly overview and latest updates</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@94bd834/recognizing-credible-experts-online-a-practical-guide.html">recognizing credible experts online a practical guide</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@95b7727/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@99d2b71/how-to-find-reliable-how-to-guides-a-practical-guide.html">how to find reliable how to guides a practical guide</a> 

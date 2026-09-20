@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cbdpuffbars.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cbdpuffbars.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
+<a href="https://cbdpuffbars.com/avoid-online-loan-and-text-scams/">avoid online loan and text scams</a> 
+<a href="https://cbdpuffbars.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cbdpuffbars.com/boosting-your-business-and-personal-finances-a-marketing-per/">boosting your business and personal finances a marketing per</a> 
+<a href="https://cbdpuffbars.com/breaking-down-today-s-top-news-expert-analysis-and-key-insig/">breaking down today s top news expert analysis and key insig</a> 
+<a href="https://cbdpuffbars.com/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
+<a href="https://cbdpuffbars.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://cbdpuffbars.com/choosing-the-perfect-watch-a-comprehensive-buying-guide/">choosing the perfect watch a comprehensive buying guide</a> 
 <a href="https://cbdpuffbars.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
 <a href="https://cbdpuffbars.com/comprehensive-guides-reviews-and-how-tos-for-tech-crypto-and-84-6/">comprehensive guides reviews and how tos for tech crypto and</a> 
@@ -146,6 +156,7 @@
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-3/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-4/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-9/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-for-smarter-reading-84-4/">mastering digital tools online resources for smarter reading</a> 
@@ -554,6 +565,7 @@
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-the-85-5/">mastering online information guides reviews how tos for the </a> 
 <a href="https://cbdstent.com/mastering-online-learning-guides-reviews-and-how-tos-for-suc-85-5/">mastering online learning guides reviews and how tos for suc</a> 
 <a href="https://cbdstent.com/mastering-online-reading-research-and-digital-literacy-a-com-85-10/">mastering online reading research and digital literacy a com</a> 
+<a href="https://cbdstent.com/mastering-online-reading-research-and-safety-a-comprehensive-85-5/">mastering online reading research and safety a comprehensive</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-the-85-5/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-85-5/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-85-5/">mastering online research guides reviews how tos for smart r</a> 
@@ -790,15 +802,3 @@
 <a href="https://cnlawblog.jpn.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-organize-the-information-you-find-online-right/">getting how to organize the information you find online righ</a> 
-<a href="https://cnlawblog.jpn.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://cnlawblog.jpn.com/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://cnlawblog.jpn.com/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
-<a href="https://cnlawblog.jpn.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://cnlawblog.jpn.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://cnlawblog.jpn.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://cnlawblog.jpn.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://cnlawblog.jpn.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://cnlawblog.jpn.com/how-courts-and-the-justice-system-work/">how courts and the justice system work</a> 
-<a href="https://cnlawblog.jpn.com/how-laws-are-made-a-plain-language-guide/">how laws are made a plain language guide</a> 
-<a href="https://cnlawblog.jpn.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 
