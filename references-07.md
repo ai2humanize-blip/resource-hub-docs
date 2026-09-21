@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bandemusic.com/understanding-how-search-engines-rank-pages-2/">understanding how search engines rank pages 2</a> 
+<a href="https://bandemusic.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
+<a href="https://bandemusic.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
 <a href="https://bandemusic.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
 <a href="https://bandemusic.com/understanding-today-s-news-landscape-in-depth-analysis-and-r/">understanding today s news landscape in depth analysis and r</a> 
 <a href="https://bandemusic.com/understanding-web-tech-content-a-comprehensive-guide-to-cryp-81-3/">understanding web tech content a comprehensive guide to cryp</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-the-basics-2/">making sense of complex topics online the basics 2</a> 
-<a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://captainjackinterview.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://captainjackinterview.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 

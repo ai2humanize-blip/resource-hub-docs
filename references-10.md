@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cheerful-puppy-82ee92.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://chic-lebkuchen-987391.netlify.app/navigating-the-complex-world-of-today-s-news-explainer-analy.html">navigating the complex world of today s news explainer analy</a> 
+<a href="https://chic-rugelach-51d637.netlify.app/how-to-evaluate-online-reviews-and-recommendations-and-why-i.html">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://chic-treacle-53b6d3.netlify.app/getting-building-a-healthy-daily-reading-habit-right.html">getting building a healthy daily reading habit right</a> 
+<a href="https://classy-empanada-6ccd15.netlify.app/how-to-read-the-news-without-getting-overwhelmed-explained-s.html">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://clinquant-moonbeam-2b26e4.netlify.app/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon.html">navigating the crypto landscape bitcoin blockchain and beyon</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-makes-an-explainer-article-genuinely-useful/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://cmdslot.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://cmdslot.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cmdslot.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -547,6 +562,7 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-15/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-16/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-17/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-18/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-4/">mastering business finance productivity a comprehensive guid</a> 
@@ -607,9 +623,11 @@
 <a href="https://crediblenews24.com/mastering-web-tech-content-a-comprehensive-roundup-86-8/">mastering web tech content a comprehensive roundup 86 8</a> 
 <a href="https://crediblenews24.com/mastering-your-digital-life-top-apps-for-productivity-and-we/">mastering your digital life top apps for productivity and we</a> 
 <a href="https://crediblenews24.com/maximize-your-potential-seo-content-marketing-and-more-guide-86-9/">maximize your potential seo content marketing and more guide</a> 
+<a href="https://crediblenews24.com/maximizing-productivity-a-deep-dive-into-business-finance-an-86-6/">maximizing productivity a deep dive into business finance an</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-and-productivity-a-comprehensive-86-6/">navigating business finance and productivity a comprehensive</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-and-productivity-a-deep-dive-int-86-6/">navigating business finance and productivity a deep dive int</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-and-productivity-in-the-age-of-c-86-6/">navigating business finance and productivity in the age of c</a> 
+<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-comprehensive-gui-86-6/">navigating business finance productivity a comprehensive gui</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-in-the-digital-age-86-6/">navigating business finance productivity in the digital age </a> 
 <a href="https://crediblenews24.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://crediblenews24.com/navigating-online-casino-news-cryptocurrency-and-productivit-86-6/">navigating online casino news cryptocurrency and productivit</a> 
@@ -784,21 +802,3 @@
 <a href="https://croginalcats.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
 <a href="https://croginalcats.xyz/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
 <a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://croginalcats.xyz/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
-<a href="https://croginalcats.xyz/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://croginalcats.xyz/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
-<a href="https://croginalcats.xyz/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://croginalcats.xyz/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://croginalcats.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://croginalcats.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://croginalcats.xyz/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://croginalcats.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://croginalcats.xyz/techvantor/">techvantor</a> 
-<a href="https://croginalcats.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://croginalcats.xyz/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
-<a href="https://croginalcats.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://croginalcats.xyz/what-makes-an-explainer-article-genuinely-useful-a-practical-guide/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://croginalcats.xyz/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
-<a href="https://croginalcats.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
-<a href="https://croginalcats.xyz/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
-<a href="https://croginalcats.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 

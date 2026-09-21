@@ -619,6 +619,8 @@
 <a href="https://bandemusic.com/master-the-web-essential-digital-tools-online-resources-for-81-2/">master the web essential digital tools online resources for </a> 
 <a href="https://bandemusic.com/mastering-app-organization-boost-productivity-with-smart-dig-81-9/">mastering app organization boost productivity with smart dig</a> 
 <a href="https://bandemusic.com/mastering-app-overload-streamline-your-digital-life-for-bett/">mastering app overload streamline your digital life for bett</a> 
+<a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-2/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-deep-dive-into-81-1/">mastering business finance and productivity a deep dive into</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-1-10/">mastering business finance productivity a comprehensive guid</a> 
@@ -643,6 +645,7 @@
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-multi-topic-blog-g-81-6/">mastering business finance productivity a multi topic blog g</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-online-rea-81-1/">mastering business finance productivity essential online rea</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-online-ski-81-1/">mastering business finance productivity essential online ski</a> 
+<a href="https://bandemusic.com/mastering-business-finance-productivity-essential-online-str-81-1/">mastering business finance productivity essential online str</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-reading-an-81-1/">mastering business finance productivity essential reading an</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-skills-for-81-1-2/">mastering business finance productivity essential skills for</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-skills-for-81-1/">mastering business finance productivity essential skills for</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://bandemusic.com/understanding-general-legal-information-and-news-a-comprehen/">understanding general legal information and news a comprehen</a> 
 <a href="https://bandemusic.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://bandemusic.com/understanding-how-search-engines-rank-pages-2/">understanding how search engines rank pages 2</a> 
-<a href="https://bandemusic.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://bandemusic.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 

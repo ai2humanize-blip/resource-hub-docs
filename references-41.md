@@ -1,7 +1,38 @@
 # Reference set 41
 
-[index](README.md) · [‹ prev](references-40.md)
+[index](README.md) · [next ›](references-42.md) · [‹ prev](references-40.md)
 
+<a href="https://thriftyevents.jp.net/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://thriftyevents.jp.net/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
+<a href="https://thriftyevents.jp.net/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://thriftyevents.jp.net/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://thriftyevents.jp.net/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://thriftyevents.jp.net/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://thriftyevents.jp.net/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://thriftyevents.jp.net/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 
+<a href="https://thriftyevents.jp.net/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://thriftyevents.jp.net/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://thriftyevents.jp.net/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://thriftyevents.jp.net/throwing-a-memorable-party-without-overspending/">throwing a memorable party without overspending</a> 
+<a href="https://thriftyevents.jp.net/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://thriftyevents.jp.net/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://thriftyevents.jp.net/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://thriftyevents.jp.net/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://thriftyevents.jp.net/what-makes-an-explainer-article-genuinely-useful-and-why-it-matters/">what makes an explainer article genuinely useful and why it </a> 
+<a href="https://thriftyevents.jp.net/what-makes-an-explainer-article-genuinely-useful-explained-simply/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://thriftyevents.jp.net/what-to-know-about-how-to-compare-sources-on-the-same-story-2/">what to know about how to compare sources on the same story </a> 
+<a href="https://thriftyevents.jp.net/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
+<a href="https://thriftyevents.jp.net/what-to-know-about-how-to-fact-check-something-in-five-minutes/">what to know about how to fact check something in five minut</a> 
+<a href="https://thriftyevents.jp.net/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://thriftyevents.jp.net/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://thriftyevents.jp.net/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://thriftyevents.jp.net/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://thriftyevents.jp.net/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://thriftyevents.jp.net/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://thriftyevents.jp.net/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://thriftyevents.jp.net/why-primary-sources-matter-and-how-to-find-them-a-practical-guide/">why primary sources matter and how to find them a practical </a> 
+<a href="https://thriftyevents.jp.net/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://thriftyevents.jp.net/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
 <a href="https://thriving-centaur-d79b42.netlify.app/getting-how-to-evaluate-online-reviews-and-recommendations-r.html">getting how to evaluate online reviews and recommendations r</a> 
 <a href="https://thriving-sprite-b01050.netlify.app/how-to-organize-the-information-you-find-online-the-basics.html">how to organize the information you find online the basics</a> 
 <a href="https://thriving-tiramisu-af2ea3.netlify.app/making-sense-of-complex-topics-online-the-basics.html">making sense of complex topics online the basics</a> 
@@ -771,9 +802,3 @@
 <a href="https://www.tumblr.com/linkstack/825563774329192448/le-quint-comprendre-le-pari-hippique-le-plus-suivi">le quint comprendre le pari hippique le plus suivi</a> 
 <a href="https://www.tumblr.com/linkstack/826214253984874496/is-there-a-tn-aavot-or-regional-version">is there a tn aavot or regional version</a> 
 <a href="https://x6turfturf.com.co/gindex.html">gindex</a> 
-<a href="https://x6turfturf.com.co/picks.html">picks</a> 
-<a href="https://zentrack.net/gindex.html">gindex</a> 
-<a href="https://zentrack.net/picks.html">picks</a> 
-<a href="https://zesty-sfogliatella-12e1ee.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://zingy-gingersnap-e705ce.netlify.app/staying-safe-and-responsible-the-latest-trends-in-online-cas.html">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://zippy-kheer-d0f597.netlify.app/understanding-the-impact-of-ai-on-modern-news-consumption-an.html">understanding the impact of ai on modern news consumption an</a> 
