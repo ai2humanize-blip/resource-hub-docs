@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-2/">why primary sources matter and how to find them 2</a> 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
 <a href="https://cbdpuffbars.com/a-closer-look-at-how-to-find-reliable-how-to-guides-2/">a closer look at how to find reliable how to guides 2</a> 
 <a href="https://cbdpuffbars.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
 <a href="https://cbdpuffbars.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
@@ -168,6 +178,7 @@
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-3/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-4/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-5/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-9/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-for-smarter-reading-84-4/">mastering digital tools online resources for smarter reading</a> 
@@ -579,6 +590,7 @@
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-the-85-5/">mastering online information guides reviews how tos for the </a> 
 <a href="https://cbdstent.com/mastering-online-learning-guides-reviews-and-how-tos-for-suc-85-5/">mastering online learning guides reviews and how tos for suc</a> 
+<a href="https://cbdstent.com/mastering-online-reading-guides-reviews-how-tos-for-smarter-85-5/">mastering online reading guides reviews how tos for smarter </a> 
 <a href="https://cbdstent.com/mastering-online-reading-research-and-digital-literacy-a-com-85-10/">mastering online reading research and digital literacy a com</a> 
 <a href="https://cbdstent.com/mastering-online-reading-research-and-safety-a-comprehensive-85-5/">mastering online reading research and safety a comprehensive</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-the-85-5/">mastering online research guides reviews and how tos for the</a> 
@@ -790,15 +802,3 @@
 <a href="https://cmdslot.xyz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
 <a href="https://cmdslot.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://cmdslot.xyz/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://cmdslot.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://cmdslot.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://cmdslot.xyz/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://cmdslot.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://cmdslot.xyz/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
