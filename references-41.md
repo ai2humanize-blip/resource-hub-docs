@@ -2,6 +2,36 @@
 
 [index](README.md) · [‹ prev](references-40.md)
 
+<a href="https://thriving-centaur-d79b42.netlify.app/getting-how-to-evaluate-online-reviews-and-recommendations-r.html">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://thriving-sprite-b01050.netlify.app/how-to-organize-the-information-you-find-online-the-basics.html">how to organize the information you find online the basics</a> 
+<a href="https://thriving-tiramisu-af2ea3.netlify.app/making-sense-of-complex-topics-online-the-basics.html">making sense of complex topics online the basics</a> 
+<a href="https://tiny-flan-a65c7b.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn.html">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://tiny-salamander-fa342a.netlify.app/why-niche-blogs-still-matter-the-basics.html">why niche blogs still matter the basics</a> 
+<a href="https://tiny-tarsier-093bdf.netlify.app/understanding-today-s-top-news-stories-in-depth-analysis-and.html">understanding today s top news stories in depth analysis and</a> 
+<a href="https://tnifc-ecom.com/picks.html">picks</a> 
+<a href="https://top-startup-398222.framer.app/">top-startup-398222.framer.app</a> 
+<a href="https://topwebresources.page.gd/">topwebresources.page.gd</a> 
+<a href="https://transcendent-melomakarona-bd12f3.netlify.app/how-to-tell-explainer-journalism-from-opinion-explained-simp.html">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://tubehalote.ae.org/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://tubehalote.ae.org/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://tubehalote.ae.org/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://tubehalote.ae.org/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://tubehalote.ae.org/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://tubehalote.ae.org/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://tubehalote.ae.org/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://tubehalote.ae.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://tubehalote.ae.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://tubehalote.ae.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://tubehalote.ae.org/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://tubehalote.ae.org/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
+<a href="https://tubehalote.ae.org/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
+<a href="https://tubehalote.ae.org/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://tubehalote.ae.org/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://tubehalote.ae.org/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
+<a href="https://tubehalote.ae.org/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://tubehalote.ae.org/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://tubehalote.ae.org/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://tubehalote.ae.org/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://tubehalote.ae.org/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://tubehalote.ae.org/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://tubehalote.ae.org/finding-your-next-great-show-movie-or-match/">finding your next great show movie or match</a> 

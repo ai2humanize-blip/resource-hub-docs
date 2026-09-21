@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cmdslot.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cmdslot.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cmdslot.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cmdslot.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cmdslot.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cmdslot.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cmdslot.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cmdslot.xyz/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://cmdslot.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://cmdslot.xyz/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cmdslot.xyz/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://cmdslot.xyz/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cmdslot.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cmdslot.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://cmdslot.xyz/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
 <a href="https://cmdslot.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
 <a href="https://cmdslot.xyz/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
@@ -530,6 +545,8 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-13/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-14/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-15/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-16/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-17/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-4/">mastering business finance productivity a comprehensive guid</a> 
@@ -541,6 +558,7 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-roun-86-6/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-2/">mastering business finance productivity essential skills for</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-3/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-2/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-3/">mastering business finance productivity in the digital age 8</a> 
@@ -784,21 +802,3 @@
 <a href="https://croginalcats.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
 <a href="https://croginalcats.xyz/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
 <a href="https://croginalcats.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-write-for-fashion-blogs-guest-posting-guide.html">how to write for fashion blogs guest posting guide</a> 
-<a href="https://curated-resource-hub-3.jimdosite.com/">curated-resource-hub-3.jimdosite.com</a> 
-<a href="https://curated-resource-hub-na0i.bolt.host/">curated-resource-hub-na0i.bolt.host</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/curated-independent-resources">curated independent resources</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-asianpinay-3">resource asianpinay 3</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-baginda168-13">resource baginda168 13</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-beauty-tips-well-health-organic-8">resource beauty tips well health organic 8</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-chandlerweekly-com-4">resource chandlerweekly com 4</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-dailywatchreports-com-5">resource dailywatchreports com 5</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-getjobsnews-com-11">resource getjobsnews com 11</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-illicitlabel-com-underground-music-authority-14">resource illicitlabel com underground music authority 14</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-litigationlawyer-12">resource litigationlawyer 12</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-peopleonthenews-com-6">resource peopleonthenews com 6</a> 
