@@ -2,6 +2,36 @@
 
 [index](README.md) · [‹ prev](references-40.md)
 
+<a href="https://tubehalote.ae.org/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://tubehalote.ae.org/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://tubehalote.ae.org/finding-your-next-great-show-movie-or-match/">finding your next great show movie or match</a> 
+<a href="https://tubehalote.ae.org/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
+<a href="https://tubehalote.ae.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://tubehalote.ae.org/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://tubehalote.ae.org/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://tubehalote.ae.org/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://tubehalote.ae.org/getting-the-most-out-of-your-streaming-subscriptions/">getting the most out of your streaming subscriptions</a> 
+<a href="https://tubehalote.ae.org/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://tubehalote.ae.org/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://tubehalote.ae.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://tubehalote.ae.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://tubehalote.ae.org/how-to-build-a-personal-reading-list-and-why-it-matters-2/">how to build a personal reading list and why it matters 2</a> 
+<a href="https://tubehalote.ae.org/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://tubehalote.ae.org/how-to-build-a-streaming-setup-without-paying-for-everything/">how to build a streaming setup without paying for everything</a> 
+<a href="https://tubehalote.ae.org/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://tubehalote.ae.org/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://tubehalote.ae.org/how-to-evaluate-online-reviews-and-recommendations-explained-simply/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://tubehalote.ae.org/how-to-fact-check-something-in-five-minutes-and-why-it-matters/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://tubehalote.ae.org/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://tubehalote.ae.org/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://tubehalote.ae.org/how-to-get-the-most-out-of-online-guides-and-why-it-matters-2/">how to get the most out of online guides and why it matters </a> 
+<a href="https://tubehalote.ae.org/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://tubehalote.ae.org/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
+<a href="https://tubehalote.ae.org/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://tubehalote.ae.org/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://tubehalote.ae.org/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://tubehalote.ae.org/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://tubehalote.ae.org/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
 <a href="https://tubehalote.ae.org/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
 <a href="https://tubehalote.ae.org/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
 <a href="https://tubehalote.ae.org/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 

@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://cbd-stone.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://cbd-stone.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://cbd-stone.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cbd-stone.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cbd-stone.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
+<a href="https://cbd-stone.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://cbd-stone.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://cbd-stone.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-2/">why primary sources matter and how to find them 2</a> 
 <a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
@@ -58,6 +67,7 @@
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-modern-readers-84-4/">essential digital tools online resources for modern readers </a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-navigating-the-84-4/">essential digital tools online resources for navigating the </a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-interne-84-4/">essential digital tools online resources for smarter interne</a> 
+<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-learnin-84-4/">essential digital tools online resources for smarter learnin</a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-living-84-4/">essential digital tools online resources for smarter living </a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-understanding-c-84-4/">essential digital tools online resources for understanding c</a> 
 <a href="https://cbdpuffbars.com/essential-guides-reviews-and-how-tos-for-independent-news-fi-84-6/">essential guides reviews and how tos for independent news fi</a> 
@@ -179,6 +189,7 @@
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-4/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-6/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-7/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-9/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-for-smarter-reading-84-4/">mastering digital tools online resources for smarter reading</a> 
@@ -221,6 +232,7 @@
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-smarter-84-10/">mastering web tech content a comprehensive guide to smarter </a> 
 <a href="https://cbdpuffbars.com/maximizing-business-finance-and-productivity-with-curated-re-84-3/">maximizing business finance and productivity with curated re</a> 
 <a href="https://cbdpuffbars.com/maximizing-your-business-growth-a-deep-dive-into-marketing-s-84-7/">maximizing your business growth a deep dive into marketing s</a> 
+<a href="https://cbdpuffbars.com/maximizing-your-online-experience-a-deep-dive-into-digital-t-84-4/">maximizing your online experience a deep dive into digital t</a> 
 <a href="https://cbdpuffbars.com/maximizing-your-productivity-the-science-backed-power-of-dai/">maximizing your productivity the science backed power of dai</a> 
 <a href="https://cbdpuffbars.com/navigating-modern-careers-strategies-for-growth-success-and-84-7/">navigating modern careers strategies for growth success and </a> 
 <a href="https://cbdpuffbars.com/navigating-modern-careers-strategies-for-job-satisfaction-an/">navigating modern careers strategies for job satisfaction an</a> 
@@ -542,6 +554,7 @@
 <a href="https://cbdstent.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-85-5/">mastering digital literacy guides reviews and how tos for th</a> 
 <a href="https://cbdstent.com/mastering-digital-organization-top-apps-for-a-clutter-free-l/">mastering digital organization top apps for a clutter free l</a> 
 <a href="https://cbdstent.com/mastering-guides-reviews-and-how-tos-a-comprehensive-guide-t-85-5/">mastering guides reviews and how tos a comprehensive guide t</a> 
+<a href="https://cbdstent.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-85-5/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://cbdstent.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-85-5-2/">mastering guides reviews how tos a comprehensive roundup 85 </a> 
 <a href="https://cbdstent.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-85-5/">mastering guides reviews how tos a comprehensive roundup 85 </a> 
 <a href="https://cbdstent.com/mastering-information-guides-reviews-and-how-tos-for-smarter-85-10/">mastering information guides reviews and how tos for smarter</a> 
@@ -593,7 +606,9 @@
 <a href="https://cbdstent.com/mastering-online-reading-guides-reviews-how-tos-for-smarter-85-5/">mastering online reading guides reviews how tos for smarter </a> 
 <a href="https://cbdstent.com/mastering-online-reading-research-and-digital-literacy-a-com-85-10/">mastering online reading research and digital literacy a com</a> 
 <a href="https://cbdstent.com/mastering-online-reading-research-and-safety-a-comprehensive-85-5/">mastering online reading research and safety a comprehensive</a> 
+<a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-the-85-5-2/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-the-85-5/">mastering online research guides reviews and how tos for the</a> 
+<a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-effecti-85-5/">mastering online research guides reviews how tos for effecti</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-85-5/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-85-5/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://cbdstent.com/mastering-personal-finance-a-business-and-marketing-perspect/">mastering personal finance a business and marketing perspect</a> 
@@ -787,18 +802,3 @@
 <a href="https://cmdslot.xyz/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://cmdslot.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://cmdslot.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://cmdslot.xyz/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
-<a href="https://cmdslot.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://cmdslot.xyz/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
-<a href="https://cmdslot.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://cmdslot.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://cmdslot.xyz/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
-<a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
-<a href="https://cmdslot.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cmdslot.xyz/spot-sars-and-banking-phishing-scams-2/">spot sars and banking phishing scams 2</a> 
-<a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://cmdslot.xyz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://cmdslot.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://cmdslot.xyz/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 

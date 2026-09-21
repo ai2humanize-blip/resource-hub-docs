@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://cmdslot.xyz/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
+<a href="https://cmdslot.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://cmdslot.xyz/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
+<a href="https://cmdslot.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://cmdslot.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://cmdslot.xyz/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
+<a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://cmdslot.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://cmdslot.xyz/spot-sars-and-banking-phishing-scams-2/">spot sars and banking phishing scams 2</a> 
+<a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cmdslot.xyz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://cmdslot.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://cmdslot.xyz/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
 <a href="https://cmdslot.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://cmdslot.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
 <a href="https://cmdslot.xyz/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
@@ -513,6 +528,8 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-11/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-12/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-13/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-14/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-15/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-4/">mastering business finance productivity a comprehensive guid</a> 
@@ -526,6 +543,7 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-2/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-2/">mastering business finance productivity in the digital age 8</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-3/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-2/">mastering business finance productivity in the digital age a</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6/">mastering business finance productivity in the digital age a</a> 
@@ -784,21 +802,3 @@
 <a href="https://curated-resource-hub.webflow.io/posts/resource-illicitlabel-com-underground-music-authority-14">resource illicitlabel com underground music authority 14</a> 
 <a href="https://curated-resource-hub.webflow.io/posts/resource-litigationlawyer-12">resource litigationlawyer 12</a> 
 <a href="https://curated-resource-hub.webflow.io/posts/resource-peopleonthenews-com-6">resource peopleonthenews com 6</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-reportspedia-com-7">resource reportspedia com 7</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-serp-insight-link-insertion-2">resource serp insight link insertion 2</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-stealthgram-10">resource stealthgram 10</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-thedigitalweekly-1">resource thedigitalweekly 1</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-vaeyc-org-9">resource vaeyc org 9</a> 
-<a href="https://curated-web-director-q7x2.bolt.host/">curated-web-director-q7x2.bolt.host</a> 
-<a href="https://curated-web-resource-hub.surge.sh/">curated-web-resource-hub.surge.sh</a> 
-<a href="https://curated-web-resource-hub.tiiny.site/">curated-web-resource-hub.tiiny.site</a> 
-<a href="https://curatedreads.lovestoblog.com/">curatedreads.lovestoblog.com</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/2forks-events.html">2forks events</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/2forkseventscom-your-ultimate-online.html">2forkseventscom your ultimate online</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/360sportnewscom-comprehensive-sports.html">360sportnewscom comprehensive sports</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/abcyapi.html">abcyapi</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/advantagebizmarketingcom-your-trusted.html">advantagebizmarketingcom your trusted</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/ai-art-prompt-generator.html">ai art prompt generator</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/anchor-text-ratio-for-seo.html">anchor text ratio for seo</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/arcenturf-quoi-sert-un-site.html">arcenturf quoi sert un site</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/are-home-remedies-evidence-based.html">are home remedies evidence based</a> 
