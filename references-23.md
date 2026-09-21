@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmeozSeEjBEoN5HRqrvaHMT5iE9LpBSYEbdV1p5KGh8R4c">QmeozSeEjBEoN5HRqrvaHMT5iE9LpBSYEbdV1p5KGh8R4c</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmesEKnMXgZ98PiNmTxJqHnRrHvnv2akk8RVWxtdz22pQW">QmesEKnMXgZ98PiNmTxJqHnRrHvnv2akk8RVWxtdz22pQW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ">QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB">QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd">Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR">Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G">QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv">QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R">QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource-2/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
@@ -781,24 +802,3 @@
 <a href="https://landscape-paintings.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://landscape-paintings.net/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
 <a href="https://landscape-paintings.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://landscape-paintings.net/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://landscape-paintings.net/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://landscape-paintings.net/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-a-practical-guide-2/">a simple framework for researching any topic online a practi</a> 
-<a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
-<a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://landscape-paintings.net/best-free-android-apps/">best free android apps</a> 
-<a href="https://landscape-paintings.net/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://landscape-paintings.net/boosting-your-business-and-personal-finance-with-strategic-m/">boosting your business and personal finance with strategic m</a> 
-<a href="https://landscape-paintings.net/breaking-down-the-latest-cybersecurity-trends-expert-analysi/">breaking down the latest cybersecurity trends expert analysi</a> 
-<a href="https://landscape-paintings.net/breaking-down-the-latest-sports-trends-and-analytics-for-inf/">breaking down the latest sports trends and analytics for inf</a> 
-<a href="https://landscape-paintings.net/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://landscape-paintings.net/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://landscape-paintings.net/business-finance-productivity-a-comprehensive-guide-for-succ-105-7/">business finance productivity a comprehensive guide for succ</a> 
-<a href="https://landscape-paintings.net/business-finance-productivity-navigating-online-casinos-and-105-7/">business finance productivity navigating online casinos and </a> 
-<a href="https://landscape-paintings.net/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
-<a href="https://landscape-paintings.net/comprehensive-guides-reviews-and-how-tos-navigating-legal-an-105-10/">comprehensive guides reviews and how tos navigating legal an</a> 
-<a href="https://landscape-paintings.net/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 

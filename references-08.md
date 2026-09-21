@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-roundup-83-8/">mastering marketing seo growth a comprehensive roundup 83 8</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-habits-for-success-83-3/">mastering marketing seo growth essential habits for success </a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-and-reso-83-8/">mastering marketing seo growth essential strategies and reso</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-business-succe-83-3/">mastering marketing seo growth strategies for business succe</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-2/">mastering marketing seo growth strategies for success 83 3 2</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3/">mastering marketing seo growth strategies for success 83 3</a> 

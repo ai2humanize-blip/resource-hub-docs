@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://host.io/coingsty.com">coingsty.com</a> 
+<a href="https://host.io/coinpric.com">coinpric.com</a> 
+<a href="https://host.io/conisec.com">conisec.com</a> 
+<a href="https://host.io/cplemaire.co">cplemaire.co</a> 
+<a href="https://host.io/crunchbanglinux.org">crunchbanglinux.org</a> 
+<a href="https://host.io/crypto-house.net">crypto house.net</a> 
+<a href="https://host.io/cryptocirclex.com">cryptocirclex.com</a> 
+<a href="https://host.io/cryptocomman.com">cryptocomman.com</a> 
+<a href="https://host.io/cryptocurrencyminers.net">cryptocurrencyminers.net</a> 
+<a href="https://host.io/cryptonews.co.bz">cryptonews.co.bz</a> 
+<a href="https://host.io/cryptonewsus.com">cryptonewsus.com</a> 
+<a href="https://host.io/cryptopronetworkcom.org">cryptopronetworkcom.org</a> 
+<a href="https://host.io/cryptorublecoins.com">cryptorublecoins.com</a> 
+<a href="https://host.io/cubednews.com">cubednews.com</a> 
+<a href="https://host.io/currencynews.co">currencynews.co</a> 
+<a href="https://host.io/cyberkannadigs.org">cyberkannadigs.org</a> 
+<a href="https://host.io/dailywatchreports.com">dailywatchreports.com</a> 
+<a href="https://host.io/debtfore.com">debtfore.com</a> 
+<a href="https://host.io/dmcnews.org">dmcnews.org</a> 
+<a href="https://host.io/ecoinsupply.com">ecoinsupply.com</a> 
+<a href="https://host.io/ecoonomia.com">ecoonomia.com</a> 
 <a href="https://host.io/etherelysium.com">etherelysium.com</a> 
 <a href="https://host.io/foxperiodical.com">foxperiodical.com</a> 
 <a href="https://host.io/fullimedia.com.co">fullimedia.com.co</a> 
@@ -781,24 +802,3 @@
 <a href="https://ipfs.filebase.io/ipfs/QmebwZtdC1JhNASjFsfFhWzUpGmoS5uF6GwRfEwTemtzXV">QmebwZtdC1JhNASjFsfFhWzUpGmoS5uF6GwRfEwTemtzXV</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmecPBf5ENSm91H1ZpqvnjPYdMLT8rCs2u632DZj8vWyTZ">QmecPBf5ENSm91H1ZpqvnjPYdMLT8rCs2u632DZj8vWyTZ</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmeduHUVCBTqzhauVECfUPYGKFn9kFy9uQem9jyZ69AVsU">QmeduHUVCBTqzhauVECfUPYGKFn9kFy9uQem9jyZ69AVsU</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmeozSeEjBEoN5HRqrvaHMT5iE9LpBSYEbdV1p5KGh8R4c">QmeozSeEjBEoN5HRqrvaHMT5iE9LpBSYEbdV1p5KGh8R4c</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmesEKnMXgZ98PiNmTxJqHnRrHvnv2akk8RVWxtdz22pQW">QmesEKnMXgZ98PiNmTxJqHnRrHvnv2akk8RVWxtdz22pQW</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ">QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB">QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB</a> 
-<a href="https://ipfs.filebase.io/ipfs/Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd">Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd</a> 
-<a href="https://ipfs.filebase.io/ipfs/Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR">Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G">QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv">QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R">QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource-2/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 

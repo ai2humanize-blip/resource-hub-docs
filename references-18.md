@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://financieelveiligouderworden.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://financieelveiligouderworden.com/getting-the-basics-of-staying-safe-while-browsing-right-2/">getting the basics of staying safe while browsing right 2</a> 
+<a href="https://financieelveiligouderworden.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://financieelveiligouderworden.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://financieelveiligouderworden.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://financieelveiligouderworden.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-driven-apps-are-transforming-our-daily-lives-and-work/">how ai driven apps are transforming our daily lives and work</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-is-transforming-news-reporting-current-trends-and-fut/">how ai is transforming news reporting current trends and fut</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-revolutionizing-daily-life-in-the-di/">how ai powered apps are revolutionizing daily life in the di</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-transforming-daily-life-for-the-bett/">how ai powered apps are transforming daily life for the bett</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-transforming-our-digital-experience/">how ai powered apps are transforming our digital experience</a> 
+<a href="https://financieelveiligouderworden.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://financieelveiligouderworden.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://financieelveiligouderworden.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
 <a href="https://financieelveiligouderworden.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://financieelveiligouderworden.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://financieelveiligouderworden.com/how-to-boost-your-website-s-seo-with-user-experience-optimiz/">how to boost your website s seo with user experience optimiz</a> 
@@ -787,18 +802,3 @@
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-97-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://getolive.org/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://getolive.org/understanding-legal-information-and-staying-updated-with-leg/">understanding legal information and staying updated with leg</a> 
-<a href="https://getolive.org/understanding-the-impact-of-ai-on-modern-journalism-opportun/">understanding the impact of ai on modern journalism opportun</a> 
-<a href="https://getolive.org/understanding-the-impact-of-ai-on-modern-news-consumption/">understanding the impact of ai on modern news consumption</a> 

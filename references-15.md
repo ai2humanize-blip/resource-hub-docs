@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://emiamedical.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://emiamedical.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://emiamedical.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://emiamedical.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://emiamedical.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
+<a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://emiamedical.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
 <a href="https://emiamedical.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://emiamedical.com/breaking-down-today-s-top-news-expert-analysis-and-key-insig/">breaking down today s top news expert analysis and key insig</a> 
@@ -793,12 +802,3 @@
 <a href="https://ezoterizm.com/mastering-marketing-seo-growth-strategies-for-business-succe-93-3/">mastering marketing seo growth strategies for business succe</a> 
 <a href="https://ezoterizm.com/mastering-marketing-seo-growth-strategies-for-success-93-3-2/">mastering marketing seo growth strategies for success 93 3 2</a> 
 <a href="https://ezoterizm.com/mastering-marketing-seo-growth-strategies-for-success-93-3-3/">mastering marketing seo growth strategies for success 93 3 3</a> 
-<a href="https://ezoterizm.com/mastering-marketing-seo-growth-strategies-for-success-93-3/">mastering marketing seo growth strategies for success 93 3</a> 
-<a href="https://ezoterizm.com/mastering-marketing-seo-growth-strategies-for-success-in-202-93-3/">mastering marketing seo growth strategies for success in 202</a> 
-<a href="https://ezoterizm.com/mastering-marketing-seo-growth-strategies-for-virginia-child-93-3/">mastering marketing seo growth strategies for virginia child</a> 
-<a href="https://ezoterizm.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-93-8/">mastering marketing seo growth your guide to building a succ</a> 
-<a href="https://ezoterizm.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-93-6/">mastering modern communication a deep dive into web tech con</a> 
-<a href="https://ezoterizm.com/mastering-personal-finance-a-guide-to-financial-stability-an/">mastering personal finance a guide to financial stability an</a> 
-<a href="https://ezoterizm.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
-<a href="https://ezoterizm.com/mastering-personal-finance-for-business-growth-a-marketing-p/">mastering personal finance for business growth a marketing p</a> 
-<a href="https://ezoterizm.com/mastering-the-art-of-business-personal-finance-and-marketing-93-4/">mastering the art of business personal finance and marketing</a> 

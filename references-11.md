@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://crediblenews24.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://crediblenews24.com/the-future-of-ai-in-journalism-trends-and-challenges/">the future of ai in journalism trends and challenges</a> 
 <a href="https://crediblenews24.com/the-future-of-creativity-how-ai-powered-apps-are-transformin/">the future of creativity how ai powered apps are transformin</a> 
 <a href="https://crediblenews24.com/the-future-of-digital-interactions-how-ai-and-ar-are-transfo/">the future of digital interactions how ai and ar are transfo</a> 
@@ -593,6 +596,7 @@
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-for-tech-career-suc-26-4/">comprehensive guides reviews and how tos for tech career suc</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-navigating-key-reso-26-4/">comprehensive guides reviews and how tos navigating key reso</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-26-4-2/">comprehensive guides reviews and how tos your go to resource</a> 
+<a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-26-4-3/">comprehensive guides reviews and how tos your go to resource</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-26-4/">comprehensive guides reviews and how tos your go to resource</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-26-4-2/">comprehensive guides reviews and how tos your ultimate resou</a> 
 <a href="https://cyberkannadig.it.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-26-4/">comprehensive guides reviews and how tos your ultimate resou</a> 
@@ -778,6 +782,7 @@
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-3/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-4/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-5/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
+<a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4-6/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-curated-web-directory-rou-26-4/">mastering guides reviews how tos a curated web directory rou</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-26-4/">mastering guides reviews how tos your ultimate resource 26 4</a> 
@@ -797,8 +802,3 @@
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-12/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-3/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-4/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-5/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-6/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-7/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-8/">mastering online information guides reviews how tos for savv</a> 

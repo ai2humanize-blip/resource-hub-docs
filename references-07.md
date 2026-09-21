@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bandemusic.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://bandemusic.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://bandemusic.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
 <a href="https://bandemusic.com/understanding-digital-literacy-a-practical-guide-2/">understanding digital literacy a practical guide 2</a> 
 <a href="https://bandemusic.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
 <a href="https://bandemusic.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwhelmed/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
