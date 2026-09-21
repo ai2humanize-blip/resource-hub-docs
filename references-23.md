@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://ipfs.filebase.io/ipfs/Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY">Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB">QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7">QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6">Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH">Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY">Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn">QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE">QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt">QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX">QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G">QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdemBTMw2MWN9cMav8gz9a6o5sVqS6P12RwVAdHXyq39m">QmdemBTMw2MWN9cMav8gz9a6o5sVqS6P12RwVAdHXyq39m</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdhQWwvPNznD6ozEu2L6MS7NZLhX6st3UCWo12LgCE6J1">QmdhQWwvPNznD6ozEu2L6MS7NZLhX6st3UCWo12LgCE6J1</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdoH5KswDD2CcfeRKtBqionAr95xBSRe4zy6sxd6d6ykS">QmdoH5KswDD2CcfeRKtBqionAr95xBSRe4zy6sxd6d6ykS</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qme54TEw9878RjcFYzyD5WSE2RwGQn4457S3g5dbipQhaM">Qme54TEw9878RjcFYzyD5WSE2RwGQn4457S3g5dbipQhaM</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qme5NECJQmFbpENisU8eX3FuibPDvDFLgRqp4BvH71J1Aq">Qme5NECJQmFbpENisU8eX3FuibPDvDFLgRqp4BvH71J1Aq</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeCaG1rnePAwmvZ4rkBnE9sXRfNAm7oeKTfJT76D69USa">QmeCaG1rnePAwmvZ4rkBnE9sXRfNAm7oeKTfJT76D69USa</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeGjMYESFYdXk1QtebYnPNMW1yZ69KaceVKusNpvY89kp">QmeGjMYESFYdXk1QtebYnPNMW1yZ69KaceVKusNpvY89kp</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmebwZtdC1JhNASjFsfFhWzUpGmoS5uF6GwRfEwTemtzXV">QmebwZtdC1JhNASjFsfFhWzUpGmoS5uF6GwRfEwTemtzXV</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmecPBf5ENSm91H1ZpqvnjPYdMLT8rCs2u632DZj8vWyTZ">QmecPBf5ENSm91H1ZpqvnjPYdMLT8rCs2u632DZj8vWyTZ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeduHUVCBTqzhauVECfUPYGKFn9kFy9uQem9jyZ69AVsU">QmeduHUVCBTqzhauVECfUPYGKFn9kFy9uQem9jyZ69AVsU</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmeozSeEjBEoN5HRqrvaHMT5iE9LpBSYEbdV1p5KGh8R4c">QmeozSeEjBEoN5HRqrvaHMT5iE9LpBSYEbdV1p5KGh8R4c</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmesEKnMXgZ98PiNmTxJqHnRrHvnv2akk8RVWxtdz22pQW">QmesEKnMXgZ98PiNmTxJqHnRrHvnv2akk8RVWxtdz22pQW</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ">QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ</a> 
@@ -781,24 +802,3 @@
 <a href="https://labmagickite.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://labmagickite.com/why-general-interest-blogs-matter-in-a-niche-world-a-deep-di-104-3/">why general interest blogs matter in a niche world a deep di</a> 
 <a href="https://labmagickite.com/why-niche-blogs-still-matter-the-basics-2/">why niche blogs still matter the basics 2</a> 
-<a href="https://labmagickite.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re-2/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re-3/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://landscape-paintings.net/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://landscape-paintings.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 

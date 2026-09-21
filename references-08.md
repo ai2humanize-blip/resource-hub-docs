@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwhelmed/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-8/">mastering marketing seo growth a comprehensive guide 83 8</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-for-202-83-8/">mastering marketing seo growth a comprehensive guide for 202</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-to-thri-83-3/">mastering marketing seo growth a comprehensive guide to thri</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-roundup-83-8/">mastering marketing seo growth a comprehensive roundup 83 8</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-habits-for-success-83-3/">mastering marketing seo growth essential habits for success </a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-and-reso-83-8/">mastering marketing seo growth essential strategies and reso</a> 
