@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bandemusic.com/understanding-digital-literacy-a-practical-guide-2/">understanding digital literacy a practical guide 2</a> 
+<a href="https://bandemusic.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://bandemusic.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://bandemusic.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://bandemusic.com/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://bandemusic.com/understanding-general-legal-information-and-news-a-comprehen/">understanding general legal information and news a comprehen</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
