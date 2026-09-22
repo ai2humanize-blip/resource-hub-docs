@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://casacours.uk.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
+<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://casacours.uk.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://casacours.uk.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://casacours.uk.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://casacours.uk.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
 <a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://casacours.uk.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
@@ -792,13 +802,3 @@
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-84-5/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-84-5-2/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-84-5/">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-84-5-2/">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-84-5/">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-84-5/">mastering web tech content a comprehensive guide to online l</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-84-5-2/">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-84-5-3/">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-84-5/">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-84-5-2/">mastering web tech content a comprehensive guide to reliable</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-84-5/">mastering web tech content a comprehensive guide to reliable</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-84-5/">mastering web tech content a comprehensive guide to smart on</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-to-smarter-84-10/">mastering web tech content a comprehensive guide to smarter </a> 

@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cybinxo.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://cybinxo.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://cybinxo.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://cybinxo.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://cybinxo.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://cybinxo.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cybinxo.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://cybinxo.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cybinxo.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cybinxo.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cybinxo.com/a-simple-framework-for-researching-any-topic-online-and-why-it-matters/">a simple framework for researching any topic online and why </a> 
+<a href="https://cybinxo.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://cybinxo.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://cybinxo.com/boost-your-business-and-personal-finances-with-smart-marketi/">boost your business and personal finances with smart marketi</a> 
 <a href="https://cybinxo.com/boosting-your-digital-life-innovative-apps-and-tech-trends-f/">boosting your digital life innovative apps and tech trends f</a> 
 <a href="https://cybinxo.com/breaking-down-the-latest-news-trends-what-you-need-to-know/">breaking down the latest news trends what you need to know</a> 
@@ -789,16 +802,3 @@
 <a href="https://dellywoodfilms.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resources/">a closer look at how to bookmark and revisit useful resource</a> 
 <a href="https://dellywoodfilms.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://dellywoodfilms.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://dellywoodfilms.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://dellywoodfilms.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://dellywoodfilms.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://dellywoodfilms.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
