@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/the-curated-resource-directory-independent-publications/">the curated resource directory independent publications</a> 
+<a href="https://boostelearning.mataroa.blog/blog/the-difference-between-skimming-and-deep-reading-online-explained-simply/">the difference between skimming and deep reading online expl</a> 
+<a href="https://boostelearning.mataroa.blog/blog/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-evolution-of-news-consumption-how-blocklists-are-changing-the-media-landscape/">the evolution of news consumption how blocklists are changin</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-future-of-ai-in-news-media-trends-challenges-and-opportunities/">the future of ai in news media trends challenges and opportu</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-future-of-sports-news-how-ai-and-analytics-are-transforming-analysis/">the future of sports news how ai and analytics are transform</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
 <a href="https://casacours.uk.com/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
 <a href="https://casacours.uk.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
-<a href="https://casacours.uk.com/get-a-digital-tin-id/">get a digital tin id</a> 
-<a href="https://casacours.uk.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://casacours.uk.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 

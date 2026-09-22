@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmRYm8ubsn9RNr3XQpXqpbmQcJHQAdsLqkV6xbKmMnAcfP">QmRYm8ubsn9RNr3XQpXqpbmQcJHQAdsLqkV6xbKmMnAcfP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRavaF6wv3PURMCJ7AYXh67Jesah2N6iw1nCcM4gJSXGj">QmRavaF6wv3PURMCJ7AYXh67Jesah2N6iw1nCcM4gJSXGj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRbTAfyQN5axnnCWN3KBqA22Aqd4AGY2kbr7YxNSJD5Qg">QmRbTAfyQN5axnnCWN3KBqA22Aqd4AGY2kbr7YxNSJD5Qg</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRcKfQy2ZxAZitBSvXD3DViSeiE9XSscPCFNRTZro3FJn">QmRcKfQy2ZxAZitBSvXD3DViSeiE9XSscPCFNRTZro3FJn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRiTnwttz3tfxjfbx1NcHPmeTxKf5ioRcnQEnYznt16uA">QmRiTnwttz3tfxjfbx1NcHPmeTxKf5ioRcnQEnYznt16uA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRkjpyPoqicaa3C18UpAKdoLpbGjiFPF7VTniZSun2gmz">QmRkjpyPoqicaa3C18UpAKdoLpbGjiFPF7VTniZSun2gmz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRnaVrX7KFAzUpgH7ob8B3sqyEhcCehk4vkZrGmj9Dx7S">QmRnaVrX7KFAzUpgH7ob8B3sqyEhcCehk4vkZrGmj9Dx7S</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRvnygAjp6ZBDYa8oPp6Vhfnu4sbepZhr6U8V3wB3oApY">QmRvnygAjp6ZBDYa8oPp6Vhfnu4sbepZhr6U8V3wB3oApY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRyMABoYnhFgxkECFXT2eKTemfyxHypKnEezi1qprqePf">QmRyMABoYnhFgxkECFXT2eKTemfyxHypKnEezi1qprqePf</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS33rHiCNQbsDUsfhcHrk54eQCtVzHh2SWW4bjZsJxDmX">QmS33rHiCNQbsDUsfhcHrk54eQCtVzHh2SWW4bjZsJxDmX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS42wJKsqMr85MHvwGoJeYKksPmQd8ajHXNayoERZKJWR">QmS42wJKsqMr85MHvwGoJeYKksPmQd8ajHXNayoERZKJWR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS6MRCZEZmqmVaxQ832ywKMhJhWZntHkBv1tZQmB7N8t1">QmS6MRCZEZmqmVaxQ832ywKMhJhWZntHkBv1tZQmB7N8t1</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmSBSKQEmT89VBXpxj2eHChF9c9hLHh79PYJqVeWBPaVCF">QmSBSKQEmT89VBXpxj2eHChF9c9hLHh79PYJqVeWBPaVCF</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmSCxtJ3xB6NC332YgtDY1wVRhiUtsZGfy5kL3eQJWfa1c">QmSCxtJ3xB6NC332YgtDY1wVRhiUtsZGfy5kL3eQJWfa1c</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmSZcGqrWKrQr69kT3vFcVGLKRUfjNy7jgdy7GskuYY1M6">QmSZcGqrWKrQr69kT3vFcVGLKRUfjNy7jgdy7GskuYY1M6</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmSjym8XXSF86tjbrwvp9uUrunF8TVHTWz27LMEt3dAnDe">QmSjym8XXSF86tjbrwvp9uUrunF8TVHTWz27LMEt3dAnDe</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmSneWUTVKic4fVUKRXWg91ouMdLcUC8R6annP79rcF8KW">QmSneWUTVKic4fVUKRXWg91ouMdLcUC8R6annP79rcF8KW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmSzpqxUoy8sgo1iUGFQnqx7rT82jkPLmAeMafNUfVYFPV">QmSzpqxUoy8sgo1iUGFQnqx7rT82jkPLmAeMafNUfVYFPV</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmT6CsqTSfDk4pxx31k17DizFw5vGdGmCUF6sKpzCKwFBP">QmT6CsqTSfDk4pxx31k17DizFw5vGdGmCUF6sKpzCKwFBP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTLpaibgmffGnQsNrAPKNqtazW7LP7DAMzoHEQKS8cggu">QmTLpaibgmffGnQsNrAPKNqtazW7LP7DAMzoHEQKS8cggu</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTUowsjBnjsLtv1ZprJcfDUrGhSz5LUoNGZwnDruyAwyZ">QmTUowsjBnjsLtv1ZprJcfDUrGhSz5LUoNGZwnDruyAwyZ</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmTeHmrk93ouUNZjVirbQwZpKy43TFd6e3AH5HupWKYQyY">QmTeHmrk93ouUNZjVirbQwZpKy43TFd6e3AH5HupWKYQyY</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmTfvcmZ5JPKzJDCJw3o1JXY83CuRVco6tysnR1rhhBgHb">QmTfvcmZ5JPKzJDCJw3o1JXY83CuRVco6tysnR1rhhBgHb</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmTonP5SxYfgjvDRjWKFkedV1fznSiKhnWt1Kukm3ZPECA">QmTonP5SxYfgjvDRjWKFkedV1fznSiKhnWt1Kukm3ZPECA</a> 
@@ -781,24 +802,3 @@
 <a href="https://labmagickite.com/hogatoga/">hogatoga</a> 
 <a href="https://labmagickite.com/how-ai-and-machine-learning-are-revolutionizing-everyday-app/">how ai and machine learning are revolutionizing everyday app</a> 
 <a href="https://labmagickite.com/how-ai-driven-apps-are-transforming-our-daily-digital-intera/">how ai driven apps are transforming our daily digital intera</a> 
-<a href="https://labmagickite.com/how-ai-driven-news-aggregators-are-transforming-the-media-la/">how ai driven news aggregators are transforming the media la</a> 
-<a href="https://labmagickite.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://labmagickite.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://labmagickite.com/how-to-be-a-smarter-news-reader-in-2026/">how to be a smarter news reader in 2026</a> 
-<a href="https://labmagickite.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://labmagickite.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://labmagickite.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://labmagickite.com/how-to-choose-the-best-coffee-beans-for-your-perfect-brew/">how to choose the best coffee beans for your perfect brew</a> 
-<a href="https://labmagickite.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
-<a href="https://labmagickite.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
-<a href="https://labmagickite.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
-<a href="https://labmagickite.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://labmagickite.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
-<a href="https://labmagickite.com/how-to-evaluate-online-reviews-and-recommendations-and-why-it-matters/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://labmagickite.com/how-to-evaluate-online-reviews-and-recommendations-explained-2/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://labmagickite.com/how-to-evaluate-online-reviews-and-recommendations-explained-3/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://labmagickite.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://labmagickite.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://labmagickite.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://labmagickite.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://labmagickite.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 

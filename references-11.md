@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://competitorscreenshots.com/crypto-taxes-explained-records-events-and-reporting-basics/">crypto taxes explained records events and reporting basics</a> 
+<a href="https://competitorscreenshots.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://competitorscreenshots.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://competitorscreenshots.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
 <a href="https://competitorscreenshots.com/getting-how-to-find-reliable-how-to-guides-right-2/">getting how to find reliable how to guides right 2</a> 
 <a href="https://competitorscreenshots.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/event-budgeting-guide.html">event budgeting guide</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/event-planning-guide.html">event planning guide</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/evidence-checked-home-remedies-india.html">evidence checked home remedies india</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/exploring-areyoufashion-com.html">exploring areyoufashion com</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/exploring-artpromptgeneratororg-hub-for.html">exploring artpromptgeneratororg hub for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/exploring-bitcoindigital-your-go-to.html">exploring bitcoindigital your go to</a> 

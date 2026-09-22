@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bandemusic.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://bandemusic.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://bandemusic.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
 <a href="https://bandemusic.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://bandemusic.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://bandemusic.com/boosting-business-mastering-finance-and-amplifying-productiv-81-1/">boosting business mastering finance and amplifying productiv</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-e88ec798/">the basics of staying safe while browsing e88ec798</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-curated-resource-directory-independent-publications/">the curated resource directory independent publications</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-difference-between-skimming-and-deep-reading-online-explained-simply/">the difference between skimming and deep reading online expl</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
