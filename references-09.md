@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://casacours.uk.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://casacours.uk.com/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://casacours.uk.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
 <a href="https://casacours.uk.com/get-a-digital-tin-id/">get a digital tin id</a> 
 <a href="https://casacours.uk.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
 <a href="https://casacours.uk.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10-2/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10-3/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-10/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-5-2/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-84-5/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://cbdpuffbars.com/mastering-web-tech-content-a-comprehensive-guide-for-the-dig-84-5/">mastering web tech content a comprehensive guide for the dig</a> 

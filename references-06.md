@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://arcadefloristbedford.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
+<a href="https://arcadefloristbedford.com/understanding-the-impact-of-ai-on-modern-news-reporting-curr/">understanding the impact of ai on modern news reporting curr</a> 
+<a href="https://arcadefloristbedford.com/understanding-the-impact-of-recent-global-news-trends-an-in/">understanding the impact of recent global news trends an in</a> 
 <a href="https://arcadefloristbedford.com/unlocking-the-future-how-ai-and-machine-learning-are-transfo/">unlocking the future how ai and machine learning are transfo</a> 
 <a href="https://arcadefloristbedford.com/unlocking-the-future-transforming-your-digital-life-with-ai-79-9/">unlocking the future transforming your digital life with ai </a> 
 <a href="https://arcadefloristbedford.com/unlocking-the-power-of-content-marketing-a-strategic-guide-f/">unlocking the power of content marketing a strategic guide f</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://bandemusic.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
-<a href="https://bandemusic.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bandemusic.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
+<a href="https://bandemusic.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://bandemusic.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://bandemusic.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://bandemusic.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-online-casino-and-gambling-news-e4836bf8/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-online-casino-and-gambling-news/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-archivo-and-libre-franklin-pairing/">the archivo and libre franklin pairing</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-e88ec798/">the basics of staying safe while browsing e88ec798</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 

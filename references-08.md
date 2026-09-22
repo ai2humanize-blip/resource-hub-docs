@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-e88ec798/">the basics of staying safe while browsing e88ec798</a> 
+<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
+<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-curated-resource-directory-independent-publications/">the curated resource directory independent publications</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-difference-between-skimming-and-deep-reading-online-explained-simply/">the difference between skimming and deep reading online expl</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
-<a href="https://casacours.uk.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://casacours.uk.com/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://casacours.uk.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 

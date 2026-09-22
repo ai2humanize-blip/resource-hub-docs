@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://financieelveiligouderworden.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://financieelveiligouderworden.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-driven-apps-are-transforming-our-daily-lives-and-work/">how ai driven apps are transforming our daily lives and work</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-is-transforming-news-reporting-current-trends-and-fut/">how ai is transforming news reporting current trends and fut</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-revolutionizing-daily-life-in-the-di/">how ai powered apps are revolutionizing daily life in the di</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-transforming-daily-life-for-the-bett/">how ai powered apps are transforming daily life for the bett</a> 
+<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-transforming-our-digital-experience/">how ai powered apps are transforming our digital experience</a> 
+<a href="https://financieelveiligouderworden.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://financieelveiligouderworden.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://financieelveiligouderworden.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://financieelveiligouderworden.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://financieelveiligouderworden.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://financieelveiligouderworden.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://financieelveiligouderworden.com/how-to-boost-your-website-s-seo-with-user-experience-optimiz/">how to boost your website s seo with user experience optimiz</a> 
 <a href="https://financieelveiligouderworden.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
 <a href="https://financieelveiligouderworden.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
@@ -787,18 +802,3 @@
 <a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
 <a href="https://getolive.org/the-best-free-browser-games-to-play-instantly/">the best free browser games to play instantly</a> 
 <a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://getolive.org/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-97-7/">the practical guide to ai art prompt generators web tech con</a> 
-<a href="https://getolive.org/the-rise-of-ai-in-news-reporting-opportunities-and-challenge/">the rise of ai in news reporting opportunities and challenge</a> 
-<a href="https://getolive.org/the-rise-of-super-apps-transforming-the-digital-experience/">the rise of super apps transforming the digital experience</a> 
-<a href="https://getolive.org/the-rise-of-sustainable-fashion-how-eco-friendly-choices-are/">the rise of sustainable fashion how eco friendly choices are</a> 
-<a href="https://getolive.org/the-ultimate-guide-to-independent-guides-reviews-and-how-to-97-3/">the ultimate guide to independent guides reviews and how to </a> 
-<a href="https://getolive.org/the-ultimate-watch-buying-guide-how-to-choose-the-perfect-ti/">the ultimate watch buying guide how to choose the perfect ti</a> 
-<a href="https://getolive.org/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
-<a href="https://getolive.org/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://getolive.org/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://getolive.org/transform-your-life-expert-health-wellness-and-organic-livin-97-9/">transform your life expert health wellness and organic livin</a> 
-<a href="https://getolive.org/transform-your-life-with-insights-into-web-tech-and-content-97-7/">transform your life with insights into web tech and content </a> 
