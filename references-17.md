@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://ezoterizm.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://ezoterizm.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
+<a href="https://ezoterizm.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://ezoterizm.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://ezoterizm.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://ezoterizm.com/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
+<a href="https://ezoterizm.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://ezoterizm.com/why-explainer-journalism-matters-more-than-ever/">why explainer journalism matters more than ever</a> 
+<a href="https://ezoterizm.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
 <a href="https://ezoterizm.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://ezoterizm.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
 <a href="https://ezoterizm.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
@@ -690,6 +699,7 @@
 <a href="https://fabulouspoetry.it.com/navigating-business-finance-productivity-a-comprehensive-gui-27-5-2/">navigating business finance productivity a comprehensive gui</a> 
 <a href="https://fabulouspoetry.it.com/navigating-business-finance-productivity-a-comprehensive-gui-27-5/">navigating business finance productivity a comprehensive gui</a> 
 <a href="https://fabulouspoetry.it.com/navigating-business-finance-productivity-a-comprehensive-onl-27-5/">navigating business finance productivity a comprehensive onl</a> 
+<a href="https://fabulouspoetry.it.com/navigating-business-finance-productivity-a-curated-guide-to-27-5-2/">navigating business finance productivity a curated guide to </a> 
 <a href="https://fabulouspoetry.it.com/navigating-business-finance-productivity-a-curated-guide-to-27-5/">navigating business finance productivity a curated guide to </a> 
 <a href="https://fabulouspoetry.it.com/navigating-business-finance-productivity-a-guide-to-effectiv-27-5/">navigating business finance productivity a guide to effectiv</a> 
 <a href="https://fabulouspoetry.it.com/navigating-business-finance-productivity-essential-guides-an-27-5/">navigating business finance productivity essential guides an</a> 
@@ -722,6 +732,8 @@
 <a href="https://fabulouspoetry.it.com/navigating-the-modern-news-landscape-marketing-seo-and-growt-27-4/">navigating the modern news landscape marketing seo and growt</a> 
 <a href="https://fabulouspoetry.it.com/navigating-the-shifting-landscape-of-news-consumption-a-comp-27-4/">navigating the shifting landscape of news consumption a comp</a> 
 <a href="https://fabulouspoetry.it.com/navigating-the-shifting-tides-of-today-s-news-landscape-anal/">navigating the shifting tides of today s news landscape anal</a> 
+<a href="https://fabulouspoetry.it.com/navigating-the-web-for-business-finance-productivity-a-curat-27-5-2/">navigating the web for business finance productivity a curat</a> 
+<a href="https://fabulouspoetry.it.com/navigating-the-web-for-business-finance-productivity-a-curat-27-5/">navigating the web for business finance productivity a curat</a> 
 <a href="https://fabulouspoetry.it.com/navigating-the-world-of-cryptocurrency-bitcoin-and-blockchai/">navigating the world of cryptocurrency bitcoin and blockchai</a> 
 <a href="https://fabulouspoetry.it.com/navigating-today-s-news-landscape-a-guide-to-staying-informe/">navigating today s news landscape a guide to staying informe</a> 
 <a href="https://fabulouspoetry.it.com/optimizing-your-online-experience-a-practical-guide-to-enhan-27-5/">optimizing your online experience a practical guide to enhan</a> 
@@ -790,15 +802,3 @@
 <a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://fabulouspoetry.it.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://fabulouspoetry.it.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://fabulouspoetry.it.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://fabulouspoetry.it.com/understanding-legal-news-a-guide-to-staying-informed-and-mak/">understanding legal news a guide to staying informed and mak</a> 
-<a href="https://fabulouspoetry.it.com/understanding-marketing-seo-growth-a-comprehensive-guide-for-27-4/">understanding marketing seo growth a comprehensive guide for</a> 
-<a href="https://fabulouspoetry.it.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-the-impact-of-ai-on-modern-journalism-a-deep-d/">understanding the impact of ai on modern journalism a deep d</a> 
-<a href="https://fabulouspoetry.it.com/understanding-the-impact-of-ai-on-modern-news-reporting-a-de/">understanding the impact of ai on modern news reporting a de</a> 
