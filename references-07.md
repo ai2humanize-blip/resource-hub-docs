@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bandemusic.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://bandemusic.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://bandemusic.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://bandemusic.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/stable-diffusion-prompts/">stable diffusion prompts</a> 
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-informed-the-latest-in-online-casino-and-gambling-news/">staying safe and informed the latest in online casino and ga</a> 
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-informed-the-latest-online-casino-and-gambling-news/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-in-online-casino-and-gambling-news-04be7072/">staying safe and responsible the latest in online casino and</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-in-online-casino-and-gambling-news/">staying safe and responsible the latest in online casino and</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-online-casino-and-gambling-news-40d6c682/">staying safe and responsible the latest online casino and ga</a> 

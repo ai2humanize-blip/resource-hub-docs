@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://emiamedical.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://emiamedical.com/hybrid-publishing-vs-vanity-press/">hybrid publishing vs vanity press</a> 
+<a href="https://emiamedical.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
+<a href="https://emiamedical.com/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 
+<a href="https://emiamedical.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://emiamedical.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://emiamedical.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://emiamedical.com/mastering-business-finance-productivity-a-comprehensive-guid-92-5/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://emiamedical.com/mastering-business-finance-strategies-for-growth-and-stabili/">mastering business finance strategies for growth and stabili</a> 
 <a href="https://emiamedical.com/mastering-crypto-blockchain-guides-reviews-and-how-tos-for-s-92-3/">mastering crypto blockchain guides reviews and how tos for s</a> 
 <a href="https://emiamedical.com/mastering-digital-skills-guides-reviews-how-tos-for-online-l-92-3/">mastering digital skills guides reviews how tos for online l</a> 
 <a href="https://emiamedical.com/mastering-local-seo-a-step-by-step-guide-for-small-business/">mastering local seo a step by step guide for small business</a> 
@@ -793,12 +802,3 @@
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-93-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-3/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://ezoterizm.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://ezoterizm.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://ezoterizm.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://ezoterizm.com/understanding-how-search-engines-rank-pages-and-why-it-matte-2/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://ezoterizm.com/understanding-how-search-engines-rank-pages-and-why-it-matte-3/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://ezoterizm.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://ezoterizm.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 

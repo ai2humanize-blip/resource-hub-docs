@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://debra--cd8d19d697ca11f1ad111607ee4eb77e.web.val.run">debra--cd8d19d697ca11f1ad111607ee4eb77e.web.val.run</a> 
+<a href="https://debra--d386f77697c511f196bf1607ee4eb77e.web.val.run">debra--d386f77697c511f196bf1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run">debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--ed851c8897d511f183d11607ee4eb77e.web.val.run">debra--ed851c8897d511f183d11607ee4eb77e.web.val.run</a> 
+<a href="https://decentralwatch.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://decentralwatch.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://decentralwatch.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://decentralwatch.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://decentralwatch.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -721,8 +727,11 @@
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-curated-guide-to-tech-content-and-useful-online-resources-42ep">navigating the web a curated guide to tech content and usefu</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-practical-guide-to-essential-online-resources-1nf3">navigating the web a practical guide to essential online res</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-practical-guide-to-essential-online-resources-3a4e">navigating the web a practical guide to essential online res</a> 
+<a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-practical-guide-to-essential-online-resources-and-tools-1ji8">navigating the web a practical guide to essential online res</a> 
+<a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-practical-guide-to-essential-online-resources-and-tools-3k23">navigating the web a practical guide to essential online res</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-practical-guide-to-reliable-tech-content-resources-26d9">navigating the web a practical guide to reliable tech conten</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-practical-guide-to-trustworthy-tech-content-resources-51j0">navigating the web a practical guide to trustworthy tech con</a> 
+<a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-practical-guide-to-valuable-online-resources-798">navigating the web a practical guide to valuable online reso</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-habits-and-skills-for-smart-internet-readers-2na8">navigating the web habits and skills for smart internet read</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-mastering-tech-content-and-digital-literacy-3cd6">navigating the web mastering tech content and digital litera</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-tech-and-content-a-comprehensive-guide-4ehh">navigating the web tech and content a comprehensive guide 4e</a> 
@@ -793,12 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/staying-safe-online-in-india-2026-guide-to-avoiding-scams-and-securing-upi-transactions-4km2">staying safe online in india 2026 guide to avoiding scams an</a> 
 <a href="https://dev.to/ai2humanizeblip/the-basics-of-staying-safe-while-browsing-a-practical-guide-4mdb">the basics of staying safe while browsing a practical guide </a> 
 <a href="https://dev.to/ai2humanizeblip/the-basics-of-staying-safe-while-browsing-a-quick-guide-44i8">the basics of staying safe while browsing a quick guide 44i8</a> 
-<a href="https://dev.to/ai2humanizeblip/the-crypto-terms-every-beginner-should-learn-first-5egb">the crypto terms every beginner should learn first 5egb</a> 
-<a href="https://dev.to/ai2humanizeblip/the-difference-between-skimming-and-deep-reading-online-a-quick-guide-2ojh">the difference between skimming and deep reading online a qu</a> 
-<a href="https://dev.to/ai2humanizeblip/the-difference-between-skimming-and-deep-reading-online-and-why-it-matters-2d4c">the difference between skimming and deep reading online and </a> 
-<a href="https://dev.to/ai2humanizeblip/the-difference-between-skimming-and-deep-reading-online-explained-simply-9a0">the difference between skimming and deep reading online expl</a> 
-<a href="https://dev.to/ai2humanizeblip/the-future-of-app-development-navigating-the-digital-transformation-landscape-djk">the future of app development navigating the digital transfo</a> 
-<a href="https://dev.to/ai2humanizeblip/the-practical-guide-to-ai-art-prompt-generators-web-tech-content-insights-2k36">the practical guide to ai art prompt generators web tech con</a> 
-<a href="https://dev.to/ai2humanizeblip/the-practical-guide-to-breaking-news-updates-in-web-tech-content-5b0m">the practical guide to breaking news updates in web tech con</a> 
-<a href="https://dev.to/ai2humanizeblip/the-practical-guide-to-web-tech-content-navigating-reports-pedia-28bb">the practical guide to web tech content navigating reports p</a> 
-<a href="https://dev.to/ai2humanizeblip/the-rise-of-ai-in-journalism-transforming-newsrooms-and-reporting-5h15">the rise of ai in journalism transforming newsrooms and repo</a> 

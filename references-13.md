@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cyberkannadig.it.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely-3/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://cyberkannadig.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
 <a href="https://cyberkannadig.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
@@ -796,9 +802,3 @@
 <a href="https://debra--784b567a97d111f191cc1607ee4eb77e.web.val.run">debra--784b567a97d111f191cc1607ee4eb77e.web.val.run</a> 
 <a href="https://debra--8b5b763c97b811f1abb41607ee4eb77e.web.val.run">debra--8b5b763c97b811f1abb41607ee4eb77e.web.val.run</a> 
 <a href="https://debra--9702130497d311f19aaf1607ee4eb77e.web.val.run">debra--9702130497d311f19aaf1607ee4eb77e.web.val.run</a> 
-<a href="https://debra--cd8d19d697ca11f1ad111607ee4eb77e.web.val.run">debra--cd8d19d697ca11f1ad111607ee4eb77e.web.val.run</a> 
-<a href="https://debra--d386f77697c511f196bf1607ee4eb77e.web.val.run">debra--d386f77697c511f196bf1607ee4eb77e.web.val.run</a> 
-<a href="https://debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run">debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run</a> 
-<a href="https://debra--ed851c8897d511f183d11607ee4eb77e.web.val.run">debra--ed851c8897d511f183d11607ee4eb77e.web.val.run</a> 
-<a href="https://decentralwatch.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://decentralwatch.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 

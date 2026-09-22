@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://arcadefloristbedford.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://arcadefloristbedford.com/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://arcadefloristbedford.com/understanding-how-search-engines-rank-pages-a-practical-guid-2/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://arcadefloristbedford.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://arcadefloristbedford.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://arcadefloristbedford.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-3/">a closer look at how to organize the information you find on</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://bandemusic.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
-<a href="https://bandemusic.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://bandemusic.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
