@@ -124,6 +124,13 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://tashbazzi.com/">tashbazzi.com</a> 
 <a href="https://todaykeralalotteryresult.net/">todaykeralalotteryresult.net</a> 
 <a href="https://teckjb.org/">teckjb.org</a> 
+<a href="https://sattapedia.com/">sattapedia.com</a> 
+<a href="https://panchangdaily.com/">panchangdaily.com</a> 
+<a href="https://banneradsites.cc/">banneradsites.cc</a> 
+<a href="https://kexartcom.in/">kexartcom.in</a> 
+<a href="https://bettingagescom.net/">bettingagescom.net</a> 
+<a href="https://robthecoins.xyz/">robthecoins.xyz</a> 
+<a href="https://phonespeakerclean.com/">phonespeakerclean.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -168,5 +175,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 40](references-40.md)
 - [Reference set 41](references-41.md)
 - [Reference set 42](references-42.md)
+- [Reference set 43](references-43.md)
+- [Reference set 44](references-44.md)
 
-_33,561 curated references across 42 sets._
+_34,852 curated references across 44 sets._
