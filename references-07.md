@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://bandemusic.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
+<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://bandemusic.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
 <a href="https://bandemusic.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-in-online-casino-and-gambling-news-04be7072/">staying safe and responsible the latest in online casino and</a> 
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-in-online-casino-and-gambling-news/">staying safe and responsible the latest in online casino and</a> 
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-online-casino-and-gambling-news-40d6c682/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-online-casino-and-gambling-news-e4836bf8/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-online-casino-and-gambling-news/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-archivo-and-libre-franklin-pairing/">the archivo and libre franklin pairing</a> 

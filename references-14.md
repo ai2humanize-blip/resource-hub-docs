@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://decentralwatch.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://decentralwatch.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://decentralwatch.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://decentralwatch.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://decentralwatch.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://decentralwatch.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://decentralwatch.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://decentralwatch.xyz/hello-world/">hello world</a> 
 <a href="https://decentralwatch.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -404,6 +410,7 @@
 <a href="https://dev.to/ai2humanizeblip/arcenturf-a-quoi-sert-un-site-dinformation-sur-le-turf-5e92">arcenturf a quoi sert un site dinformation sur le turf 5e92</a> 
 <a href="https://dev.to/ai2humanizeblip/boosting-your-business-and-personal-finance-with-strategic-marketing-28a9">boosting your business and personal finance with strategic m</a> 
 <a href="https://dev.to/ai2humanizeblip/breaking-down-the-latest-trends-in-sports-news-and-analysis-1jb2">breaking down the latest trends in sports news and analysis </a> 
+<a href="https://dev.to/ai2humanizeblip/building-your-personal-web-tech-content-toolkit-a-curated-guide-108a">building your personal web tech content toolkit a curated gu</a> 
 <a href="https://dev.to/ai2humanizeblip/casino-utan-spelpaus-a-detailed-guide-to-non-swedish-gambling-sites-49hg">casino utan spelpaus a detailed guide to non swedish gamblin</a> 
 <a href="https://dev.to/ai2humanizeblip/casino-utan-spelpaus-en-guide-till-alternativ-utanfor-spelinspektionen-4hl8">casino utan spelpaus en guide till alternativ utanfor spelin</a> 
 <a href="https://dev.to/ai2humanizeblip/choosing-the-right-elearning-platform-for-effective-online-learning-5c80">choosing the right elearning platform for effective online l</a> 
@@ -708,6 +715,7 @@
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-comprehensive-guide-to-web-tech-content-mastery-50d0">navigating the web a comprehensive guide to web tech content</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-curated-guide-to-essential-online-resources-5ba4">navigating the web a curated guide to essential online resou</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-curated-guide-to-essential-online-resources-and-tools-1d57">navigating the web a curated guide to essential online resou</a> 
+<a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-curated-guide-to-essential-tech-content-and-online-resources-56a5">navigating the web a curated guide to essential tech content</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-curated-guide-to-essential-tech-content-tools-41nn">navigating the web a curated guide to essential tech content</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-curated-guide-to-tech-content-and-reliable-online-resources-41op">navigating the web a curated guide to tech content and relia</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-the-web-a-curated-guide-to-tech-content-and-useful-online-resources-42ep">navigating the web a curated guide to tech content and usefu</a> 
@@ -794,11 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/the-practical-guide-to-breaking-news-updates-in-web-tech-content-5b0m">the practical guide to breaking news updates in web tech con</a> 
 <a href="https://dev.to/ai2humanizeblip/the-practical-guide-to-web-tech-content-navigating-reports-pedia-28bb">the practical guide to web tech content navigating reports p</a> 
 <a href="https://dev.to/ai2humanizeblip/the-rise-of-ai-in-journalism-transforming-newsrooms-and-reporting-5h15">the rise of ai in journalism transforming newsrooms and repo</a> 
-<a href="https://dev.to/ai2humanizeblip/the-rise-of-ai-in-news-how-artificial-intelligence-is-transforming-journalism-2pjg">the rise of ai in news how artificial intelligence is transf</a> 
-<a href="https://dev.to/ai2humanizeblip/the-rise-of-independent-digital-publishers-and-elearning-trends-in-2025-lok">the rise of independent digital publishers and elearning tre</a> 
-<a href="https://dev.to/ai2humanizeblip/the-rise-of-remote-work-in-india-opportunities-and-challenges-218e">the rise of remote work in india opportunities and challenge</a> 
-<a href="https://dev.to/ai2humanizeblip/the-rise-of-sustainable-fashion-how-eco-friendly-trends-are-shaping-modern-style-g72">the rise of sustainable fashion how eco friendly trends are </a> 
-<a href="https://dev.to/ai2humanizeblip/the-ultimate-2026-guide-to-event-planning-web-tech-content-strategies-50de">the ultimate 2026 guide to event planning web tech content s</a> 
-<a href="https://dev.to/ai2humanizeblip/the-ultimate-guide-to-starting-a-home-based-online-business-web-tech-content-51cb">the ultimate guide to starting a home based online business </a> 
-<a href="https://dev.to/ai2humanizeblip/the-ultimate-guide-to-starting-a-home-garden-tips-for-success-2g1f">the ultimate guide to starting a home garden tips for succes</a> 
-<a href="https://dev.to/ai2humanizeblip/the-ultimate-guide-to-sustainable-home-gardening-tips-and-tricks-for-eco-friendly-growth-4en9">the ultimate guide to sustainable home gardening tips and tr</a> 

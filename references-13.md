@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cyberkannadig.it.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://cyberkannadig.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://cyberkannadig.it.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
 <a href="https://cyberkannadig.it.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
@@ -796,9 +802,3 @@
 <a href="https://debra--ed851c8897d511f183d11607ee4eb77e.web.val.run">debra--ed851c8897d511f183d11607ee4eb77e.web.val.run</a> 
 <a href="https://decentralwatch.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://decentralwatch.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://decentralwatch.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://decentralwatch.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://decentralwatch.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://decentralwatch.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://decentralwatch.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://decentralwatch.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 

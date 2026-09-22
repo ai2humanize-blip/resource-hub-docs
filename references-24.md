@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://insurance-thai.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
+<a href="https://insurance-thai.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNLn1QVvwMxd3NV31WRgJL2DR95sWDXsZ11qW4U7uLjyb">QmNLn1QVvwMxd3NV31WRgJL2DR95sWDXsZ11qW4U7uLjyb</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNN96T6dNZC3iMCy6r4UJqHL1rNhWYs1uUgzWGmSjSqPN">QmNN96T6dNZC3iMCy6r4UJqHL1rNhWYs1uUgzWGmSjSqPN</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNNVt3BjMXVwZZxNqBXeZGD2MnRsm6XMgMC74SiqB99vv">QmNNVt3BjMXVwZZxNqBXeZGD2MnRsm6XMgMC74SiqB99vv</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNNYW4Kn9JSixKffxhDjx2rtfSTuBXPwT4zvWShEQofkz">QmNNYW4Kn9JSixKffxhDjx2rtfSTuBXPwT4zvWShEQofkz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNYH16Yhe8ALtykbbKpQ4tTNi5GRNjUSjmDMzvVnRHVsG">QmNYH16Yhe8ALtykbbKpQ4tTNi5GRNjUSjmDMzvVnRHVsG</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNZd4ypVfLZzdfDbqEc2TyytQUSC9Fwxa5kNdT5K56M2a">QmNZd4ypVfLZzdfDbqEc2TyytQUSC9Fwxa5kNdT5K56M2a</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNashaZCJpUjMhu8AJyYEFvzQ454RK5s7KsUiT2H1J6wR">QmNashaZCJpUjMhu8AJyYEFvzQ454RK5s7KsUiT2H1J6wR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNeQCA5A2YHrcHDbQ9aZEVidhgohFTHFSuNCtEsQKPpBt">QmNeQCA5A2YHrcHDbQ9aZEVidhgohFTHFSuNCtEsQKPpBt</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNi4JNHkU2t52r7Mxv6bA7xEmitzPby8NzonWvueuJvE4">QmNi4JNHkU2t52r7Mxv6bA7xEmitzPby8NzonWvueuJvE4</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT">QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE">QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3">QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP">QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP">QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V">QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY">QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B">QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX">QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmPU34QrHYAvu3LugT9ERWah6DrEtMYvhnLwq78BistxFb">QmPU34QrHYAvu3LugT9ERWah6DrEtMYvhnLwq78BistxFb</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmPWBnXTubcpkb6HNJ7PHwrMkwUqAxLadtFCGCycgS3DNz">QmPWBnXTubcpkb6HNJ7PHwrMkwUqAxLadtFCGCycgS3DNz</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmPhe8jRmXbxFZn1WD8Kk22EdJxkM7k8rMkVQMZjQxYgzm">QmPhe8jRmXbxFZn1WD8Kk22EdJxkM7k8rMkVQMZjQxYgzm</a> 
@@ -782,23 +802,3 @@
 <a href="https://labmagickite.com/digital-tools-online-resources-a-comprehensive-guide-to-cryp-104-4/">digital tools online resources a comprehensive guide to cryp</a> 
 <a href="https://labmagickite.com/discover-the-art-of-event-planning-unique-ideas-and-expert-t/">discover the art of event planning unique ideas and expert t</a> 
 <a href="https://labmagickite.com/discover-the-hidden-benefits-of-urban-gardening-in-small-spa/">discover the hidden benefits of urban gardening in small spa</a> 
-<a href="https://labmagickite.com/discover-the-secrets-of-effective-time-management-for-a-bala/">discover the secrets of effective time management for a bala</a> 
-<a href="https://labmagickite.com/discover-unique-event-ideas-and-expert-planning-tips-for-mem-104-6/">discover unique event ideas and expert planning tips for mem</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-a-comprehensive-gui-104-4/">essential digital tools online resources a comprehensive gui</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-legal-and-casin-104-9/">essential digital tools online resources for legal and casin</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-modern-living-104-4/">essential digital tools online resources for modern living 1</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-modern-success-104-4/">essential digital tools online resources for modern success </a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-understanding-c-104-4-2/">essential digital tools online resources for understanding c</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-understanding-c-104-4-3/">essential digital tools online resources for understanding c</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-understanding-c-104-4/">essential digital tools online resources for understanding c</a> 
-<a href="https://labmagickite.com/essential-guides-reviews-how-tos-for-a-better-life-104-6/">essential guides reviews how tos for a better life 104 6</a> 
-<a href="https://labmagickite.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://labmagickite.com/exploring-digital-tools-online-resources-for-cryptocurrency-104-4/">exploring digital tools online resources for cryptocurrency </a> 
-<a href="https://labmagickite.com/exploring-essential-digital-tools-online-resources-for-crypt-104-4/">exploring essential digital tools online resources for crypt</a> 
-<a href="https://labmagickite.com/exploring-essential-digital-tools-online-resources-for-moder-104-4/">exploring essential digital tools online resources for moder</a> 
-<a href="https://labmagickite.com/exploring-independent-music-and-ai-apps-a-comprehensive-guid-104-6/">exploring independent music and ai apps a comprehensive guid</a> 
-<a href="https://labmagickite.com/exploring-the-future-how-ai-and-apps-are-transforming-our-di/">exploring the future how ai and apps are transforming our di</a> 
-<a href="https://labmagickite.com/exploring-the-intersection-of-business-finance-and-productiv-104-8/">exploring the intersection of business finance and productiv</a> 
-<a href="https://labmagickite.com/exploring-the-intersection-of-marketing-seo-and-growth-for-b-104-7/">exploring the intersection of marketing seo and growth for b</a> 
-<a href="https://labmagickite.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-104-5-2/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://labmagickite.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-104-5/">exploring the intersection of web tech and content a compreh</a> 

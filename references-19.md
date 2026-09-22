@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://financieelveiligouderworden.com/free-art-prompt-generator/">free art prompt generator</a> 
+<a href="https://financieelveiligouderworden.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://financieelveiligouderworden.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://financieelveiligouderworden.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://financieelveiligouderworden.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
+<a href="https://financieelveiligouderworden.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://financieelveiligouderworden.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://financieelveiligouderworden.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
+<a href="https://financieelveiligouderworden.com/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://financieelveiligouderworden.com/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
+<a href="https://financieelveiligouderworden.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://financieelveiligouderworden.com/getting-the-basics-of-staying-safe-while-browsing-right-2/">getting the basics of staying safe while browsing right 2</a> 
+<a href="https://financieelveiligouderworden.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://financieelveiligouderworden.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://financieelveiligouderworden.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://financieelveiligouderworden.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
 <a href="https://financieelveiligouderworden.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
@@ -788,17 +802,3 @@
 <a href="https://getolive.org/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://getolive.org/staying-informed-and-ahead-the-ultimate-guide-to-sports-news-97-8/">staying informed and ahead the ultimate guide to sports news</a> 
 <a href="https://getolive.org/staying-informed-comprehensive-guides-reviews-and-how-tos-fo-97-8/">staying informed comprehensive guides reviews and how tos fo</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-trends-in-online-casino-97-7/">staying safe and informed the latest trends in online casino</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-5/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-and-why-it-matters-2/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
-<a href="https://getolive.org/the-best-free-browser-games-to-play-instantly/">the best free browser games to play instantly</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
