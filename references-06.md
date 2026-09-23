@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://arcadefloristbedford.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://arcadefloristbedford.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://arcadefloristbedford.com/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://arcadefloristbedford.com/understanding-how-search-engines-rank-pages-a-practical-guid-2/">understanding how search engines rank pages a practical guid</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic-2/">a closer look at how to find balanced coverage of a topic 2</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-2/">a closer look at how to organize the information you find on</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-3/">a closer look at how to organize the information you find on</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 

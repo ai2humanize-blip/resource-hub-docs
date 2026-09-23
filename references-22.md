@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://haomvc.com/why-context-matters-when-reading-online-a-quick-guide-2/">why context matters when reading online a quick guide 2</a> 
+<a href="https://haomvc.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://haomvc.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://haomvc.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://haomvc.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://haomvc.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
+<a href="https://haomvc.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://haomvc.com/why-niche-blogs-still-matter-the-basics-2/">why niche blogs still matter the basics 2</a> 
+<a href="https://haomvc.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://haomvc.com/why-primary-sources-matter-and-how-to-find-them-2/">why primary sources matter and how to find them 2</a> 
+<a href="https://haomvc.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://haomvc.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://haomvc.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://haomvc.com/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
+<a href="https://harjuno.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://harjuno.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://harjuno.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://harjuno.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://harjuno.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://harjuno.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://harjuno.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://harjuno.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://harjuno.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://harjuno.xyz/hello-world/">hello world</a> 
@@ -781,24 +802,3 @@
 <a href="https://homaryreviews.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
 <a href="https://homaryreviews.com/how-to-safely-follow-an-app-that-s-still-in-development/">how to safely follow an app that s still in development</a> 
 <a href="https://homaryreviews.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://homaryreviews.com/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
-<a href="https://homaryreviews.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
-<a href="https://homaryreviews.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://homaryreviews.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://homaryreviews.com/leveraging-digital-tools-online-resources-for-career-advance-101-2/">leveraging digital tools online resources for career advance</a> 
-<a href="https://homaryreviews.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://homaryreviews.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://homaryreviews.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://homaryreviews.com/mastering-app-efficiency-how-to-optimize-your-digital-experi/">mastering app efficiency how to optimize your digital experi</a> 
-<a href="https://homaryreviews.com/mastering-app-organization-how-to-tame-your-digital-chaos/">mastering app organization how to tame your digital chaos</a> 
-<a href="https://homaryreviews.com/mastering-business-finance-a-strategic-guide-to-personal-and/">mastering business finance a strategic guide to personal and</a> 
-<a href="https://homaryreviews.com/mastering-business-finance-and-productivity-a-comprehensive-101-1-2/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://homaryreviews.com/mastering-business-finance-and-productivity-a-comprehensive-101-1/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://homaryreviews.com/mastering-business-finance-productivity-a-comprehensive-guid-101-1/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://homaryreviews.com/mastering-business-finance-productivity-a-comprehensive-roun-101-1/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://homaryreviews.com/mastering-business-finance-productivity-essential-skills-for-101-1/">mastering business finance productivity essential skills for</a> 
-<a href="https://homaryreviews.com/mastering-business-finance-productivity-your-ultimate-guide-101-1/">mastering business finance productivity your ultimate guide </a> 
-<a href="https://homaryreviews.com/mastering-business-growth-personal-finance-marketing-and-str/">mastering business growth personal finance marketing and str</a> 
-<a href="https://homaryreviews.com/mastering-business-personal-finance-and-marketing-a-comprehe-101-1/">mastering business personal finance and marketing a comprehe</a> 
-<a href="https://homaryreviews.com/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
-<a href="https://homaryreviews.com/mastering-local-seo-a-step-by-step-guide-for-small-business/">mastering local seo a step by step guide for small business</a> 

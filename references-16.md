@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://emiamedical.com/how-to-stay-ahead-of-the-digital-curve-tech-trends-and-must/">how to stay ahead of the digital curve tech trends and must</a> 
+<a href="https://emiamedical.com/how-to-stay-informed-navigating-current-news-explainers-and/">how to stay informed navigating current news explainers and</a> 
+<a href="https://emiamedical.com/how-to-stay-informed-top-news-aggregators-and-analysis-platf/">how to stay informed top news aggregators and analysis platf</a> 
+<a href="https://emiamedical.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://emiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
+<a href="https://emiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-3/">how to use the web to learn a new skill a practical guide 3</a> 
+<a href="https://emiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-4/">how to use the web to learn a new skill a practical guide 4</a> 
+<a href="https://emiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://emiamedical.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
 <a href="https://emiamedical.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
 <a href="https://emiamedical.com/hybrid-publishing-vs-vanity-press/">hybrid publishing vs vanity press</a> 
 <a href="https://emiamedical.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
@@ -793,12 +802,3 @@
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-93-3-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-93-3-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-93-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://ezoterizm.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
