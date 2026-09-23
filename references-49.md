@@ -2,6 +2,36 @@
 
 [index](README.md) · [‹ prev](references-48.md)
 
+<a href="https://venusskin.net/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
+<a href="https://venusskin.net/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://venusskin.net/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://venusskin.net/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://venusskin.net/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
+<a href="https://venusskin.net/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://venusskin.net/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://venusskin.net/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://venusskin.net/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://venusskin.net/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://venusskin.net/why-primary-sources-matter-and-how-to-find-them-a-practical-guide/">why primary sources matter and how to find them a practical </a> 
+<a href="https://venusskin.net/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://venusskin.net/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://verdant-sopapillas-6c7223.netlify.app/simple-habits-of-a-smart-internet-reader-explained-simply.html">simple habits of a smart internet reader explained simply</a> 
+<a href="https://vipjili.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://vipjili.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://vipjili.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://vipjili.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://vipjili.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://vipjili.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://vipjili.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://vipjili.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://vipjili.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://vipjili.xyz/hello-world/">hello world</a> 
+<a href="https://vipjili.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://vipjili.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://vipjili.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://vipjili.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://vipjili.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://vipjili.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 

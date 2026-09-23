@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://insurance-thai.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://insurance-thai.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://insurance-thai.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://insurance-thai.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://insurance-thai.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://insurance-thai.com/how-to-be-a-smarter-news-reader-in-2026/">how to be a smarter news reader in 2026</a> 
+<a href="https://insurance-thai.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://insurance-thai.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://insurance-thai.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://insurance-thai.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://insurance-thai.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
+<a href="https://insurance-thai.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://insurance-thai.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://insurance-thai.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://insurance-thai.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://insurance-thai.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://insurance-thai.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
+<a href="https://insurance-thai.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://insurance-thai.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
+<a href="https://insurance-thai.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
+<a href="https://insurance-thai.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
 <a href="https://insurance-thai.com/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
 <a href="https://insurance-thai.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
 <a href="https://insurance-thai.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
@@ -781,24 +802,3 @@
 <a href="https://jiliparty1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://jiliparty1.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
 <a href="https://jiliparty1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://jiliparty1.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://jiliparty1.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://jiliparty1.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://jiliparty1.xyz/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
-<a href="https://jiliparty1.xyz/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://jiliparty1.xyz/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://jiliparty1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://jiliparty1.xyz/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://jiliparty1.xyz/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://jiliparty1.xyz/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
-<a href="https://jiliparty1.xyz/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
-<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
-<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://jiliparty1.xyz/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://jiliparty1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://jiliparty1.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://jiliparty1.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://jiliparty1.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://jiliparty1.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://jiliparty1.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://competitorscreenshots.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://competitorscreenshots.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://competitorscreenshots.com/blueflamepublishingblog-xyz-resource-1/">blueflamepublishingblog xyz resource 1</a> 
 <a href="https://competitorscreenshots.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
 <a href="https://competitorscreenshots.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://competitorscreenshots.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
@@ -799,6 +802,3 @@
 <a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://croyale88.xyz/hello-world/">hello world</a> 
-<a href="https://croyale88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://croyale88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://croyale88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
