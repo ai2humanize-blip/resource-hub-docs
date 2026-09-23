@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://5starsstocks.it.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://5starsstocks.it.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
 <a href="https://5starsstocks.it.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
 <a href="https://5starsstocks.it.com/getting-how-to-fact-check-something-in-five-minutes-right-2/">getting how to fact check something in five minutes right 2</a> 
 <a href="https://5starsstocks.it.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
@@ -499,6 +501,7 @@
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-on-cryptocurrency-b-75-5/">comprehensive guides reviews and how tos on cryptocurrency b</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-the-ultimate-roundu-75-10/">comprehensive guides reviews and how tos the ultimate roundu</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-how-tos-mastering-cryptocurrenc-75-5/">comprehensive guides reviews how tos mastering cryptocurrenc</a> 
+<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-how-tos-your-go-to-resource-rou-75-5/">comprehensive guides reviews how tos your go to resource rou</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-how-tos-your-ultimate-resource-75-5/">comprehensive guides reviews how tos your ultimate resource </a> 
 <a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
 <a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-75-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
@@ -784,6 +787,7 @@
 <a href="https://agriculture-lawyer.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
 <a href="https://agriculture-lawyer.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://agriculture-lawyer.com/social-impact-india/">social impact india</a> 
+<a href="https://agriculture-lawyer.com/stay-informed-and-engaged-guides-reviews-how-tos-for-fashion-75-5/">stay informed and engaged guides reviews how tos for fashion</a> 
 <a href="https://agriculture-lawyer.com/staying-informed-the-best-strategies-for-consuming-current-n/">staying informed the best strategies for consuming current n</a> 
 <a href="https://agriculture-lawyer.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
 <a href="https://agriculture-lawyer.com/staying-safe-and-responsible-the-latest-in-online-casino-and/">staying safe and responsible the latest in online casino and</a> 
@@ -798,7 +802,3 @@
 <a href="https://agriculture-lawyer.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
 <a href="https://agriculture-lawyer.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
 <a href="https://agriculture-lawyer.com/the-future-of-digital-interaction-how-ai-driven-apps-are-tra/">the future of digital interaction how ai driven apps are tra</a> 
-<a href="https://agriculture-lawyer.com/the-future-of-news-consumption-how-ai-and-algorithms-are-tra/">the future of news consumption how ai and algorithms are tra</a> 
-<a href="https://agriculture-lawyer.com/the-hindu-lunar-calendar-months-paksha-and-major-festivals/">the hindu lunar calendar months paksha and major festivals</a> 
-<a href="https://agriculture-lawyer.com/the-rise-of-data-driven-sports-analysis-how-numbers-are-chan/">the rise of data driven sports analysis how numbers are chan</a> 
-<a href="https://agriculture-lawyer.com/the-ultimate-guide-to-starting-a-home-based-online-business-75-5/">the ultimate guide to starting a home based online business </a> 

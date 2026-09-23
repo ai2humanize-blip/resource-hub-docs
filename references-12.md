@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cochesdeocasion.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://cochesdeocasion.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
+<a href="https://cochesdeocasion.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
+<a href="https://cochesdeocasion.xyz/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
+<a href="https://cochesdeocasion.xyz/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
+<a href="https://cochesdeocasion.xyz/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
+<a href="https://cochesdeocasion.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://cochesdeocasion.xyz/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
+<a href="https://cochesdeocasion.xyz/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
+<a href="https://cochesdeocasion.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 
+<a href="https://cochesdeocasion.xyz/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
+<a href="https://cochesdeocasion.xyz/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
+<a href="https://cochesdeocasion.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://cochesdeocasion.xyz/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
 <a href="https://cochesdeocasion.xyz/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
 <a href="https://cochesdeocasion.xyz/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
@@ -789,16 +802,3 @@
 <a href="https://croginalcats.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
 <a href="https://croginalcats.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://croginalcats.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://croginalcats.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://croginalcats.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
-<a href="https://croginalcats.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://croginalcats.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://croginalcats.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://croginalcats.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://croginalcats.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://croginalcats.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://croginalcats.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://croginalcats.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://croginalcats.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://croginalcats.xyz/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://croginalcats.xyz/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 

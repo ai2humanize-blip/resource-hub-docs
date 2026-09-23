@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://croginalcats.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://croginalcats.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
+<a href="https://croginalcats.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
+<a href="https://croginalcats.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://croginalcats.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://croginalcats.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://croginalcats.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://croginalcats.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://croginalcats.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://croginalcats.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://croginalcats.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://croginalcats.xyz/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://croginalcats.xyz/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
 <a href="https://croginalcats.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://croginalcats.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
 <a href="https://croginalcats.xyz/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
@@ -748,6 +761,7 @@
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-26-4-5/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-26-4-6/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-26-4-7/">mastering guides reviews and how tos a comprehensive roundup</a> 
+<a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-26-4-8/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-26-4/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-your-ultimate-resource-26-4-2/">mastering guides reviews and how tos your ultimate resource </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-and-how-tos-your-ultimate-resource-26-4-3/">mastering guides reviews and how tos your ultimate resource </a> 
@@ -788,17 +802,3 @@
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-8/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4-9/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-26-4/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-26-4-2/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-26-4-3/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-26-4-4/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-26-4-5/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-26-4/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-the-26-4-2/">mastering online information guides reviews how tos for the </a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-the-26-4-3/">mastering online information guides reviews how tos for the </a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-how-tos-for-the-26-4/">mastering online information guides reviews how tos for the </a> 
-<a href="https://cyberkannadig.it.com/mastering-online-learning-and-research-guides-reviews-how-to-26-4/">mastering online learning and research guides reviews how to</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-learning-guides-reviews-and-how-tos-for-dig-26-4/">mastering online learning guides reviews and how tos for dig</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-learning-guides-reviews-and-how-tos-for-ski-26-4/">mastering online learning guides reviews and how tos for ski</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-learning-guides-reviews-and-how-tos-for-suc-26-4/">mastering online learning guides reviews and how tos for suc</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-learning-guides-reviews-how-tos-for-effecti-26-4/">mastering online learning guides reviews how tos for effecti</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-learning-guides-reviews-how-tos-for-savvy-r-26-4/">mastering online learning guides reviews how tos for savvy r</a> 

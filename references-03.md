@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://agriculture-lawyer.com/the-future-of-news-consumption-how-ai-and-algorithms-are-tra/">the future of news consumption how ai and algorithms are tra</a> 
+<a href="https://agriculture-lawyer.com/the-hindu-lunar-calendar-months-paksha-and-major-festivals/">the hindu lunar calendar months paksha and major festivals</a> 
+<a href="https://agriculture-lawyer.com/the-rise-of-data-driven-sports-analysis-how-numbers-are-chan/">the rise of data driven sports analysis how numbers are chan</a> 
+<a href="https://agriculture-lawyer.com/the-ultimate-guide-to-starting-a-home-based-online-business-75-5/">the ultimate guide to starting a home based online business </a> 
 <a href="https://agriculture-lawyer.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
 <a href="https://agriculture-lawyer.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://agriculture-lawyer.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
@@ -798,7 +802,3 @@
 <a href="https://alcobar85.xyz/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
 <a href="https://alcobar85.xyz/understanding-oxpoll-a-practical-guide/">understanding oxpoll a practical guide</a> 
 <a href="https://alcobar85.xyz/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
-<a href="https://alcobar85.xyz/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://alcobar85.xyz/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://alcobar85.xyz/understanding-thefontworld-a-practical-guide/">understanding thefontworld a practical guide</a> 
-<a href="https://alcobar85.xyz/understanding-tlt-a-practical-guide/">understanding tlt a practical guide</a> 
