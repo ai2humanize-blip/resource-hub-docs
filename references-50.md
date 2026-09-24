@@ -2,6 +2,37 @@
 
 [index](README.md) · [‹ prev](references-49.md)
 
+<a href="https://wonderful-phoenix-e523a5.netlify.app/how-to-spot-low-quality-content-online-and-why-it-matters.html">how to spot low quality content online and why it matters</a> 
+<a href="https://wondrous-chebakia-68bb50.netlify.app/navigating-the-world-of-cryptocurrency-bitcoin-blockchain-an.html">navigating the world of cryptocurrency bitcoin blockchain an</a> 
+<a href="https://wondrous-mooncake-84cb48.netlify.app/the-basics-of-staying-safe-while-browsing.html">the basics of staying safe while browsing</a> 
+<a href="https://wpeso.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://wpeso.xyz/a-practical-guide-to-useful-online-resources-2/">a practical guide to useful online resources 2</a> 
+<a href="https://wpeso.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://wpeso.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://wpeso.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://wpeso.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://wpeso.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://wpeso.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://wpeso.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://wpeso.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://wpeso.xyz/hello-world/">hello world</a> 
+<a href="https://wpeso.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://wpeso.xyz/how-to-find-trustworthy-websites-and-tools-online-2/">how to find trustworthy websites and tools online 2</a> 
+<a href="https://wpeso.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://wpeso.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://wpeso.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://wpeso.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://wpeso.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://wpeso.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://write.as/contentisblocked">contentisblocked</a> 
+<a href="https://www.diigo.com/rss/user/amother?page_num=1">amother</a> 
+<a href="https://www.diigo.com/rss/user/amother?page_num=2">amother</a> 
+<a href="https://www.diigo.com/rss/user/amother?page_num=3">amother</a> 
+<a href="https://www.diigo.com/rss/user/amother?page_num=4">amother</a> 
+<a href="https://www.diigo.com/rss/user/amother?page_num=5">amother</a> 
+<a href="https://www.diigo.com/rss/user/amother?page_num=6">amother</a> 
+<a href="https://www.easycounter.com/report/2forksevents.com">2forksevents.com</a> 
+<a href="https://www.easycounter.com/report/360sportnews.com">360sportnews.com</a> 
 <a href="https://www.google.com/maps/d/view?mid=1gMgxW-dnuRIIbLNnuQ52AKvS7lMd8NE">view</a> 
 <a href="https://www.instapaper.com/p/curatedreads1m">curatedreads1m</a> 
 <a href="https://www.statscrop.com/www/2forksevents.com">2forksevents.com</a> 

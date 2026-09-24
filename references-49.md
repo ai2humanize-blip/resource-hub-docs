@@ -2,6 +2,37 @@
 
 [index](README.md) · [next ›](references-50.md) · [‹ prev](references-48.md)
 
+<a href="https://uploadarticle.cn.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://uploadarticle.cn.com/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://uploadarticle.cn.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://uploadarticle.cn.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://uploadarticle.cn.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://uploadarticle.cn.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
+<a href="https://uploadarticle.cn.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://uploadarticle.cn.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://uploadarticle.cn.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
+<a href="https://uploadarticle.cn.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
+<a href="https://uploadarticle.cn.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://uploadarticle.cn.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
+<a href="https://uploadarticle.cn.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
+<a href="https://uploadarticle.cn.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://uploadarticle.cn.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://uploadarticle.cn.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it-matters/">how to read the news without getting overwhelmed and why it </a> 
+<a href="https://uploadarticle.cn.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://uploadarticle.cn.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
+<a href="https://uploadarticle.cn.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://uploadarticle.cn.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://uploadarticle.cn.com/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
+<a href="https://uploadarticle.cn.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://uploadarticle.cn.com/how-to-write-articles-people-actually-finish-reading/">how to write articles people actually finish reading</a> 
+<a href="https://uploadarticle.cn.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
+<a href="https://uploadarticle.cn.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://uploadarticle.cn.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://uploadarticle.cn.com/oxpoll-cc-resource-3/">oxpoll cc resource 3</a> 
+<a href="https://uploadarticle.cn.com/phonespeakerclean-com-resource-3/">phonespeakerclean com resource 3</a> 
+<a href="https://uploadarticle.cn.com/quikconsolecom-net-resource-3/">quikconsolecom net resource 3</a> 
+<a href="https://uploadarticle.cn.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://uploadarticle.cn.com/robthecoins-xyz-resource-3/">robthecoins xyz resource 3</a> 
 <a href="https://uploadarticle.cn.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
 <a href="https://uploadarticle.cn.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://uploadarticle.cn.com/techvantor-xyz-resource-3/">techvantor xyz resource 3</a> 
@@ -771,34 +802,3 @@
 <a href="https://winplus1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://winplus1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://winplus1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://wonderful-phoenix-e523a5.netlify.app/how-to-spot-low-quality-content-online-and-why-it-matters.html">how to spot low quality content online and why it matters</a> 
-<a href="https://wondrous-chebakia-68bb50.netlify.app/navigating-the-world-of-cryptocurrency-bitcoin-blockchain-an.html">navigating the world of cryptocurrency bitcoin blockchain an</a> 
-<a href="https://wondrous-mooncake-84cb48.netlify.app/the-basics-of-staying-safe-while-browsing.html">the basics of staying safe while browsing</a> 
-<a href="https://wpeso.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://wpeso.xyz/a-practical-guide-to-useful-online-resources-2/">a practical guide to useful online resources 2</a> 
-<a href="https://wpeso.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://wpeso.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://wpeso.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://wpeso.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://wpeso.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://wpeso.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://wpeso.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://wpeso.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://wpeso.xyz/hello-world/">hello world</a> 
-<a href="https://wpeso.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://wpeso.xyz/how-to-find-trustworthy-websites-and-tools-online-2/">how to find trustworthy websites and tools online 2</a> 
-<a href="https://wpeso.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://wpeso.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://wpeso.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://wpeso.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://wpeso.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://wpeso.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://write.as/contentisblocked">contentisblocked</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=1">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=2">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=3">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=4">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=5">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=6">amother</a> 
-<a href="https://www.easycounter.com/report/2forksevents.com">2forksevents.com</a> 
-<a href="https://www.easycounter.com/report/360sportnews.com">360sportnews.com</a> 

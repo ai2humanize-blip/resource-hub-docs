@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://livejournal.micro.blog/2026/08/28/proof-of-work-vs-proof.html">proof of work vs proof</a> 
+<a href="https://livejournal.micro.blog/2026/08/30/cplemaire-quoi-sert-un-annuaire.html">cplemaire quoi sert un annuaire</a> 
+<a href="https://livejournal.micro.blog/2026/09/01/choosing-the-right-online-learning.html">choosing the right online learning</a> 
+<a href="https://livejournal.micro.blog/2026/09/01/flight-deal-hunting-timing-tools.html">flight deal hunting timing tools</a> 
+<a href="https://livejournal.micro.blog/2026/09/02/understanding-how-indias-public-institutions.html">understanding how indias public institutions</a> 
+<a href="https://livejournal.micro.blog/2026/09/02/web-and-blockchain-policy-what.html">web and blockchain policy what</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/070646.html">070646</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071541.html">071541</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071621.html">071621</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071743.html">071743</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071914.html">071914</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072047.html">072047</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072130.html">072130</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072214.html">072214</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072421.html">072421</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072719.html">072719</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072835.html">072835</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073338.html">073338</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073425.html">073425</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/073753.html">073753</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/073835.html">073835</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/073917.html">073917</a> 
@@ -783,22 +802,3 @@
 <a href="https://loblarehouse.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://loblarehouse.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
 <a href="https://loblarehouse.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://loblarehouse.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://loblarehouse.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://loblarehouse.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://loblarehouse.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://loblarehouse.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://loblarehouse.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
-<a href="https://loblarehouse.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://loblarehouse.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://loblarehouse.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://loblarehouse.com/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://loblarehouse.com/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://loblarehouse.com/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://loblarehouse.com/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://loblarehouse.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://loblarehouse.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://loblarehouse.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://loblarehouse.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
-<a href="https://loblarehouse.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://loblarehouse.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
