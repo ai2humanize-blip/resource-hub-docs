@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cnlawblog.jpn.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-a-quick-guide/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
+<a href="https://cnlawblog.jpn.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://cnlawblog.jpn.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
+<a href="https://cnlawblog.jpn.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
+<a href="https://cnlawblog.jpn.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
+<a href="https://cnlawblog.jpn.com/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
+<a href="https://cnlawblog.jpn.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://cnlawblog.jpn.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
+<a href="https://cnlawblog.jpn.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
+<a href="https://cnlawblog.jpn.com/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
+<a href="https://cnlawblog.jpn.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
 <a href="https://cnlawblog.jpn.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
 <a href="https://cnlawblog.jpn.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
 <a href="https://cnlawblog.jpn.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
@@ -789,16 +802,3 @@
 <a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-86-6-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-86-6-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-86-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-3/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://crediblenews24.com/understanding-digital-literacy-the-basics-2/">understanding digital literacy the basics 2</a> 
-<a href="https://crediblenews24.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://crediblenews24.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://crediblenews24.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://crediblenews24.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 

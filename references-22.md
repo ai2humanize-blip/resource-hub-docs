@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://getolive.org/how-to-plan-a-memorable-event-a-step-by-step-guide/">how to plan a memorable event a step by step guide</a> 
+<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed-2/">how to read the news without getting overwhelmed 2</a> 
+<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed-3/">how to read the news without getting overwhelmed 3</a> 
+<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
+<a href="https://getolive.org/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://getolive.org/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
+<a href="https://getolive.org/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://getolive.org/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
+<a href="https://getolive.org/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://getolive.org/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://getolive.org/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://getolive.org/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://getolive.org/independent-web-tech-and-content-sites-worth-bookmarking-a-c-97-2/">independent web tech and content sites worth bookmarking a c</a> 
+<a href="https://getolive.org/kerala-lottery-guessing-numbers/">kerala lottery guessing numbers</a> 
+<a href="https://getolive.org/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
 <a href="https://getolive.org/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://getolive.org/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
 <a href="https://getolive.org/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-97-7/">making sense of today s fast paced news cycle a comprehensiv</a> 
@@ -473,6 +490,7 @@
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-72/">mastering marketing seo growth a comprehensive guide 29 7 72</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-73/">mastering marketing seo growth a comprehensive guide 29 7 73</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-74/">mastering marketing seo growth a comprehensive guide 29 7 74</a> 
+<a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-75/">mastering marketing seo growth a comprehensive guide 29 7 75</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-8/">mastering marketing seo growth a comprehensive guide 29 7 8</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7-9/">mastering marketing seo growth a comprehensive guide 29 7 9</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-29-7/">mastering marketing seo growth a comprehensive guide 29 7</a> 
@@ -784,21 +802,3 @@
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://globespro.it.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://globespro.it.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://globespro.it.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://glowing-bublanina-1377a1.netlify.app/what-makes-an-explainer-article-genuinely-useful-and-why-it-.html">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://gorgeous-heliotrope-9fc14f.netlify.app/exploring-the-best-casino-utan-spelpaus-options-for-swedish-.html">exploring the best casino utan spelpaus options for swedish</a> 
-<a href="https://gorgeous-toffee-1beb00.netlify.app/how-to-spot-low-quality-content-online-explained-simply.html">how to spot low quality content online explained simply</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://gptseoservices.gb.net/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 

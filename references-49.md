@@ -2,6 +2,36 @@
 
 [index](README.md) · [next ›](references-50.md) · [‹ prev](references-48.md)
 
+<a href="https://uploadarticle.cn.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
+<a href="https://uploadarticle.cn.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://uploadarticle.cn.com/techvantor-xyz-resource-3/">techvantor xyz resource 3</a> 
+<a href="https://uploadarticle.cn.com/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 
+<a href="https://uploadarticle.cn.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://uploadarticle.cn.com/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://uploadarticle.cn.com/the-difference-between-skimming-and-deep-reading-online-and-why-it-matters/">the difference between skimming and deep reading online and </a> 
+<a href="https://uploadarticle.cn.com/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
+<a href="https://uploadarticle.cn.com/the-hindu-lunar-calendar-months-paksha-and-major-festivals/">the hindu lunar calendar months paksha and major festivals</a> 
+<a href="https://uploadarticle.cn.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://uploadarticle.cn.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
+<a href="https://uploadarticle.cn.com/tlt-ng-resource-3/">tlt ng resource 3</a> 
+<a href="https://uploadarticle.cn.com/todaykeralalotteryresult-net-resource-3/">todaykeralalotteryresult net resource 3</a> 
+<a href="https://uploadarticle.cn.com/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
+<a href="https://uploadarticle.cn.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://uploadarticle.cn.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://uploadarticle.cn.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
+<a href="https://uploadarticle.cn.com/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
+<a href="https://uploadarticle.cn.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://uploadarticle.cn.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://uploadarticle.cn.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://uploadarticle.cn.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
+<a href="https://uploadarticle.cn.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://uploadarticle.cn.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://uploadarticle.cn.com/what-to-know-about-how-to-tell-explainer-journalism-from-opinion-2/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://uploadarticle.cn.com/what-to-know-about-how-to-tell-explainer-journalism-from-opinion/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://uploadarticle.cn.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://uploadarticle.cn.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://uploadarticle.cn.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://uploadarticle.cn.com/why-niche-blogs-still-matter-the-basics-2/">why niche blogs still matter the basics 2</a> 
 <a href="https://uploadarticle.cn.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
 <a href="https://uploadarticle.cn.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
 <a href="https://uploadarticle.cn.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
@@ -772,33 +802,3 @@
 <a href="https://www.diigo.com/rss/user/amother?page_num=6">amother</a> 
 <a href="https://www.easycounter.com/report/2forksevents.com">2forksevents.com</a> 
 <a href="https://www.easycounter.com/report/360sportnews.com">360sportnews.com</a> 
-<a href="https://www.google.com/maps/d/view?mid=1gMgxW-dnuRIIbLNnuQ52AKvS7lMd8NE">view</a> 
-<a href="https://www.instapaper.com/p/curatedreads1m">curatedreads1m</a> 
-<a href="https://www.statscrop.com/www/2forksevents.com">2forksevents.com</a> 
-<a href="https://www.statscrop.com/www/360sportnews.com">360sportnews.com</a> 
-<a href="https://www.statscrop.com/www/aavotcom.cc">aavotcom.cc</a> 
-<a href="https://www.statscrop.com/www/abcyapi.net">abcyapi.net</a> 
-<a href="https://www.statscrop.com/www/advantagebizmarketing.com">advantagebizmarketing.com</a> 
-<a href="https://www.statscrop.com/www/analyzingmarket.com">analyzingmarket.com</a> 
-<a href="https://www.statscrop.com/www/arcenturf.co">arcenturf.co</a> 
-<a href="https://www.statscrop.com/www/areyoufashion.com">areyoufashion.com</a> 
-<a href="https://www.statscrop.com/www/artpromptsgenerator.org">artpromptsgenerator.org</a> 
-<a href="https://www.statscrop.com/www/asianpinay.in.net">asianpinay.in.net</a> 
-<a href="https://www.statscrop.com/www/baginda168.gb.net">baginda168.gb.net</a> 
-<a href="https://www.statscrop.com/www/banneradsites.cc">banneradsites.cc</a> 
-<a href="https://www.statscrop.com/www/bettingagescom.net">bettingagescom.net</a> 
-<a href="https://www.statscrop.com/www/bitadvent.com">bitadvent.com</a> 
-<a href="https://www.statscrop.com/www/bitcoincasinosnews.com">bitcoincasinosnews.com</a> 
-<a href="https://www.statscrop.com/www/bitcoindigital.info">bitcoindigital.info</a> 
-<a href="https://www.statscrop.com/www/bitcoinlogical.com">bitcoinlogical.com</a> 
-<a href="https://www.statscrop.com/www/bitcoinprime.info">bitcoinprime.info</a> 
-<a href="https://www.statscrop.com/www/bitcointalk.co.bz">bitcointalk.co.bz</a> 
-<a href="https://www.statscrop.com/www/bitjackpot.de.com">bitjackpot.de.com</a> 
-<a href="https://www.statscrop.com/www/blackpearlbitcoin.com">blackpearlbitcoin.com</a> 
-<a href="https://www.statscrop.com/www/blocklist.co.kr">blocklist.co.kr</a> 
-<a href="https://www.statscrop.com/www/blueflamepublishingblog.xyz">blueflamepublishingblog.xyz</a> 
-<a href="https://www.statscrop.com/www/boostelearning.com">boostelearning.com</a> 
-<a href="https://www.statscrop.com/www/brightstartnews.com">brightstartnews.com</a> 
-<a href="https://www.statscrop.com/www/btccasinonews.com">btccasinonews.com</a> 
-<a href="https://www.statscrop.com/www/camocryptcom.org">camocryptcom.org</a> 
-<a href="https://www.statscrop.com/www/carmannews.co">carmannews.co</a> 

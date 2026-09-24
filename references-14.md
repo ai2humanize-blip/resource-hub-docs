@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://cyberkannadig.it.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://cyberkannadig.it.com/le-turf-pour-d-butants-lire-et-suivre-les-courses-hippiques/">le turf pour d butants lire et suivre les courses hippiques</a> 
+<a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://cyberkannadig.it.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-26-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
+<a href="https://cyberkannadig.it.com/master-cheap-flight-booking-guides-reviews-how-tos-for-real-26-4/">master cheap flight booking guides reviews how tos for real </a> 
+<a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4-2/">master guides reviews how tos your ultimate resource roundup</a> 
+<a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4/">master guides reviews how tos your ultimate resource roundup</a> 
+<a href="https://cyberkannadig.it.com/master-news-consumption-guides-reviews-how-tos-for-savvy-rea-26-4/">master news consumption guides reviews how tos for savvy rea</a> 
+<a href="https://cyberkannadig.it.com/master-online-guides-reviews-how-tos-a-comprehensive-roundup-26-4/">master online guides reviews how tos a comprehensive roundup</a> 
+<a href="https://cyberkannadig.it.com/master-online-learning-guides-reviews-and-how-tos-for-succes-26-4/">master online learning guides reviews and how tos for succes</a> 
+<a href="https://cyberkannadig.it.com/master-online-research-guides-reviews-how-tos-for-smart-sear-26-4/">master online research guides reviews how tos for smart sear</a> 
 <a href="https://cyberkannadig.it.com/master-personal-professional-growth-with-online-guides-revie-26-4/">master personal professional growth with online guides revie</a> 
 <a href="https://cyberkannadig.it.com/master-reading-and-research-guides-reviews-how-tos-for-effec-26-4/">master reading and research guides reviews how tos for effec</a> 
 <a href="https://cyberkannadig.it.com/master-smart-reading-online-guides-reviews-how-tos-for-savvy-26-4/">master smart reading online guides reviews how tos for savvy</a> 
@@ -306,6 +319,7 @@
 <a href="https://cyberkannadig.it.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
 <a href="https://cyberkannadig.it.com/understanding-legal-news-how-to-stay-informed-and-make-sense/">understanding legal news how to stay informed and make sense</a> 
 <a href="https://cyberkannadig.it.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
+<a href="https://cyberkannadig.it.com/understanding-lotteries-how-to-play-smart-and-stay-informed-26-4/">understanding lotteries how to play smart and stay informed </a> 
 <a href="https://cyberkannadig.it.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
 <a href="https://cyberkannadig.it.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
 <a href="https://cyberkannadig.it.com/understanding-oxpoll-a-practical-guide/">understanding oxpoll a practical guide</a> 
@@ -788,17 +802,3 @@
 <a href="https://cymbaltareviews.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
 <a href="https://cymbaltareviews.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
 <a href="https://cymbaltareviews.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://cymbaltareviews.com/a-closer-look-at-how-to-organize-the-information-you-find-on-2/">a closer look at how to organize the information you find on</a> 
-<a href="https://cymbaltareviews.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://cymbaltareviews.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://cymbaltareviews.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://cymbaltareviews.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://cymbaltareviews.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://cymbaltareviews.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://cymbaltareviews.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://cymbaltareviews.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://cymbaltareviews.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://cymbaltareviews.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://cymbaltareviews.com/a-simple-framework-for-researching-any-topic-online-a-quick-2/">a simple framework for researching any topic online a quick </a> 
-<a href="https://cymbaltareviews.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://cymbaltareviews.com/a-simple-framework-for-researching-any-topic-online-and-why-2/">a simple framework for researching any topic online and why </a> 
