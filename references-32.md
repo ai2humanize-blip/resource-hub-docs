@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://loblarehouse.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://loblarehouse.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://loblarehouse.com/guides-reviews-how-tos-50-resources-worth-bookmarking-106-9/">guides reviews how tos 50 resources worth bookmarking 106 9</a> 
+<a href="https://loblarehouse.com/how-ai-driven-apps-are-transforming-daily-life-and-work/">how ai driven apps are transforming daily life and work</a> 
+<a href="https://loblarehouse.com/how-ai-powered-apps-are-revolutionizing-daily-life-and-work/">how ai powered apps are revolutionizing daily life and work</a> 
+<a href="https://loblarehouse.com/how-ai-powered-apps-are-transforming-everyday-life-and-work/">how ai powered apps are transforming everyday life and work</a> 
+<a href="https://loblarehouse.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://loblarehouse.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://loblarehouse.com/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://loblarehouse.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://loblarehouse.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://loblarehouse.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://loblarehouse.com/how-to-build-a-personal-reading-list-a-quick-guide-2/">how to build a personal reading list a quick guide 2</a> 
+<a href="https://loblarehouse.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://loblarehouse.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://loblarehouse.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://loblarehouse.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://loblarehouse.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://loblarehouse.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://loblarehouse.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://loblarehouse.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://loblarehouse.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://loblarehouse.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://loblarehouse.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://ls-how-to-safeguar-msrl6vkc.web.app/">ls-how-to-safeguar-msrl6vkc.web.app</a> 
 <a href="https://ls-how-to-spot-a-genuinely-useful-blog-article-mt-imncw2y54a-uc.a.run.app">ls-how-to-spot-a-genuinely-useful-blog-article-mt-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-how-to-spot-a-genuinely-useful-blog-article.ai2hmnz-rhub.workers.dev/">ls-how-to-spot-a-genuinely-useful-blog-article.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-how-to-spot-low-quality-content-onlin-mtppviwj.wasmer.app/">ls-how-to-spot-low-quality-content-onlin-mtppviwj.wasmer.app</a> 
-<a href="https://ls-how-to-spot-low-quality-content-online-and--mt-imncw2y54a-uc.a.run.app">ls-how-to-spot-low-quality-content-online-and--mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-stay-ahe-msryu0il.firebaseapp.com/">ls-how-to-stay-ahe-msryu0il.firebaseapp.com</a> 
-<a href="https://ls-how-to-stay-ahe-msryu0il.web.app/">ls-how-to-stay-ahe-msryu0il.web.app</a> 
-<a href="https://ls-how-to-stay-ahe-mss0qq6f.firebaseapp.com/">ls-how-to-stay-ahe-mss0qq6f.firebaseapp.com</a> 
-<a href="https://ls-how-to-stay-ahe-mss0qq6f.web.app/">ls-how-to-stay-ahe-mss0qq6f.web.app</a> 
-<a href="https://ls-how-to-stay-informed-navigating-the-world-o-ms-imncw2y54a-uc.a.run.app">ls-how-to-stay-informed-navigating-the-world-o-ms-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-stay-informed-the-best-news-aggregat-ms-imncw2y54a-uc.a.run.app">ls-how-to-stay-informed-the-best-news-aggregat-ms-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-successf-msrkl6f8.firebaseapp.com/">ls-how-to-successf-msrkl6f8.firebaseapp.com</a> 
-<a href="https://ls-how-to-successf-msrkl6f8.web.app/">ls-how-to-successf-msrkl6f8.web.app</a> 
-<a href="https://ls-how-to-tell-explainer-journalism-from-opini-mt-imncw2y54a-uc.a.run.app">ls-how-to-tell-explainer-journalism-from-opini-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-use-the-web-to-learn-a-new-skill-a-p-mt-imncw2y54a-uc.a.run.app">ls-how-to-use-the-web-to-learn-a-new-skill-a-p-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-use-the-web-to-learn-a-new-skill-a-p-mv-imncw2y54a-uc.a.run.app">ls-how-to-use-the-web-to-learn-a-new-skill-a-p-mv-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-use-the-web-to-learn-a-new-skill-a-q-mt-imncw2y54a-uc.a.run.app">ls-how-to-use-the-web-to-learn-a-new-skill-a-q-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-vet-stud-mshscdmn.firebaseapp.com/">ls-how-to-vet-stud-mshscdmn.firebaseapp.com</a> 
-<a href="https://ls-how-to-vet-stud-mshscdmn.web.app/">ls-how-to-vet-stud-mshscdmn.web.app</a> 
-<a href="https://ls-independent-web-resources-mu4wbsuf-imncw2y54a-uc.a.run.app">ls-independent-web-resources-mu4wbsuf-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-instagram-capti-msilyt0m.firebaseapp.com/">ls-instagram-capti-msilyt0m.firebaseapp.com</a> 
-<a href="https://ls-instagram-capti-msilyt0m.web.app/">ls-instagram-capti-msilyt0m.web.app</a> 
-<a href="https://ls-instagram-caption-length-msim04x8-imncw2y54a-uc.a.run.app">ls-instagram-caption-length-msim04x8-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-instagram-engagement-rate-calculator.ai2hmnz-rhub.workers.dev/">ls-instagram-engagement-rate-calculator.ai2hmnz-rhub.workers.dev</a> 

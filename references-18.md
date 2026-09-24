@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://epicwin1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://epicwin1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://epicwin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://esm.sh/curated-web-directory-hub/index.html">index</a> 
+<a href="https://esm.sh/curated-web-directory-hub@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@006a7e9/independent-web-resources.html">independent web resources</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00b0d03/a-closer-look-at-why-primary-sources-matter-and-how-to-find-.html">a closer look at why primary sources matter and how to find</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00fe7d8/revolutionizing-daily-life-how-apps-are-transforming-the-dig.html">revolutionizing daily life how apps are transforming the dig</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@0167f9e/simple-habits-of-a-smart-internet-reader.html">simple habits of a smart internet reader</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@021ae9d/navigating-the-future-how-bitcoin-and-blockchain-are-transfo.html">navigating the future how bitcoin and blockchain are transfo</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@034b472/what-makes-an-explainer-article-genuinely-useful-and-why-it-.html">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@0411709/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@04dcaa4/how-to-avoid-misinformation-and-hype.html">how to avoid misinformation and hype</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@05291e1/why-niche-blogs-still-matter-explained-simply.html">why niche blogs still matter explained simply</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@059c82d/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@05ba34a/how-to-evaluate-online-reviews-and-recommendations-a-quick-g.html">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@05f2b7b/embracing-timeless-style-how-classic-fashion-transcends-tren.html">embracing timeless style how classic fashion transcends tren</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@06a63b1/getting-how-to-organize-the-information-you-find-online-righ.html">getting how to organize the information you find online righ</a> 
@@ -787,18 +802,3 @@
 <a href="https://fabbusinesssolutions.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://fabbusinesssolutions.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://fabbusinesssolutions.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://fabbusinesssolutions.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://fabbusinesssolutions.com/guides-reviews-how-tos-navigating-online-casinos-and-crypto-94-6/">guides reviews how tos navigating online casinos and crypto </a> 
-<a href="https://fabbusinesssolutions.com/harnessing-the-power-of-ai-driven-apps-for-a-smarter-digital/">harnessing the power of ai driven apps for a smarter digital</a> 
-<a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-revolutionizing-daily-life-in-the-di/">how ai powered apps are revolutionizing daily life in the di</a> 
-<a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
-<a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-transforming-our-digital-lives-2/">how ai powered apps are transforming our digital lives 2</a> 
-<a href="https://fabbusinesssolutions.com/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
-<a href="https://fabbusinesssolutions.com/how-current-news-impacts-your-daily-life-a-comprehensive-ana/">how current news impacts your daily life a comprehensive ana</a> 
-<a href="https://fabbusinesssolutions.com/how-recent-economic-trends-are-shaping-global-markets/">how recent economic trends are shaping global markets</a> 
-<a href="https://fabbusinesssolutions.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://fabbusinesssolutions.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://fabbusinesssolutions.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://fabbusinesssolutions.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
-<a href="https://fabbusinesssolutions.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://fabbusinesssolutions.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 

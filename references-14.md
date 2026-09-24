@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cyberkannadig.it.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://cyberkannadig.it.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://cyberkannadig.it.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://cyberkannadig.it.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://cyberkannadig.it.com/how-to-fact-check-something-in-five-minutes-the-basics-2/">how to fact check something in five minutes the basics 2</a> 
+<a href="https://cyberkannadig.it.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://cyberkannadig.it.com/how-to-find-and-plan-the-perfect-event-venue-guides-reviews-26-4/">how to find and plan the perfect event venue guides reviews </a> 
+<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-a-quick-guide-2/">how to find reliable how to guides a quick guide 2</a> 
+<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-explained-simply-2/">how to find reliable how to guides explained simply 2</a> 
+<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
+<a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
+<a href="https://cyberkannadig.it.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
+<a href="https://cyberkannadig.it.com/how-to-identify-and-avoid-common-online-scams-a-comprehensiv/">how to identify and avoid common online scams a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita/">how to leverage the latest apps for a more productive digita</a> 
 <a href="https://cyberkannadig.it.com/how-to-navigate-casinos-without-gamstop-a-practical-guide/">how to navigate casinos without gamstop a practical guide</a> 
 <a href="https://cyberkannadig.it.com/how-to-navigate-the-latest-news-trends-a-comprehensive-guide/">how to navigate the latest news trends a comprehensive guide</a> 
@@ -788,17 +802,3 @@
 <a href="https://cybinxo.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
 <a href="https://cybinxo.com/what-to-know-about-why-context-matters-when-reading-online-3/">what to know about why context matters when reading online 3</a> 
 <a href="https://cybinxo.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://cybinxo.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://cybinxo.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin-2/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://cybinxo.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://cybinxo.com/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://cybinxo.com/what-to-look-for-in-a-good-news-website-2/">what to look for in a good news website 2</a> 
-<a href="https://cybinxo.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
-<a href="https://cybinxo.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://cybinxo.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://cybinxo.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://cybinxo.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://cybinxo.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://cybinxo.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://cybinxo.com/why-context-matters-when-reading-online-3/">why context matters when reading online 3</a> 
-<a href="https://cybinxo.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
