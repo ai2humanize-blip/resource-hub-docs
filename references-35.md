@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://modernwritingdesk.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-your-li/">the ultimate guide to choosing the perfect watch for your li</a> 
+<a href="https://modernwritingdesk.com/the-ultimate-guide-to-choosing-the-perfect-watch-reviews-gui-110-10/">the ultimate guide to choosing the perfect watch reviews gui</a> 
+<a href="https://modernwritingdesk.com/the-ultimate-guide-to-starting-a-profitable-home-garden/">the ultimate guide to starting a profitable home garden</a> 
+<a href="https://modernwritingdesk.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://modernwritingdesk.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://modernwritingdesk.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
+<a href="https://modernwritingdesk.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
+<a href="https://modernwritingdesk.com/tlt-ng-resource-3/">tlt ng resource 3</a> 
+<a href="https://modernwritingdesk.com/todaykeralalotteryresult-net-resource-3/">todaykeralalotteryresult net resource 3</a> 
+<a href="https://modernwritingdesk.com/transforming-daily-life-ai-driven-apps-and-digital-organizat-110-10/">transforming daily life ai driven apps and digital organizat</a> 
+<a href="https://modernwritingdesk.com/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
+<a href="https://modernwritingdesk.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://modernwritingdesk.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
+<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-5/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://modernwritingdesk.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -783,22 +802,3 @@
 <a href="https://montanagreenpower.org/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://montanagreenpower.org/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://montanagreenpower.org/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://montanagreenpower.org/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://montanagreenpower.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://montanagreenpower.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://montanagreenpower.org/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://montanagreenpower.org/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
-<a href="https://monumental-pixie-04fdae.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://msmbet.gb.net/gindex.html">gindex</a> 
-<a href="https://msmbet.gb.net/picks.html">picks</a> 
-<a href="https://multihubvercel.vercel.app/">multihubvercel.vercel.app</a> 
-<a href="https://mwbet8888.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://mwbet8888.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://mwbet8888.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://mwbet8888.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://mwbet8888.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://mwbet8888.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://mwbet8888.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://mwbet8888.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://mwbet8888.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://mwbet8888.xyz/hello-world/">hello world</a> 

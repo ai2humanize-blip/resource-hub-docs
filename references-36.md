@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://montanagreenpower.org/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://montanagreenpower.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://montanagreenpower.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://montanagreenpower.org/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://montanagreenpower.org/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
+<a href="https://monumental-pixie-04fdae.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://msmbet.gb.net/gindex.html">gindex</a> 
+<a href="https://msmbet.gb.net/picks.html">picks</a> 
+<a href="https://multihubvercel.vercel.app/">multihubvercel.vercel.app</a> 
+<a href="https://mwbet8888.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://mwbet8888.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://mwbet8888.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://mwbet8888.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://mwbet8888.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://mwbet8888.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://mwbet8888.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://mwbet8888.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://mwbet8888.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://mwbet8888.xyz/hello-world/">hello world</a> 
 <a href="https://mwbet8888.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://mwbet8888.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://mwbet8888.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -51,6 +70,7 @@
 <a href="https://myclassnews.it.com/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
 <a href="https://myclassnews.it.com/comprehensive-guide-to-curated-resource-directories-and-inde-34-1/">comprehensive guide to curated resource directories and inde</a> 
 <a href="https://myclassnews.it.com/comprehensive-guides-how-tos-essential-resources-for-filipin-34-1/">comprehensive guides how tos essential resources for filipin</a> 
+<a href="https://myclassnews.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-34-1-2/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://myclassnews.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-34-1/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://myclassnews.it.com/comprehensive-guides-in-depth-reviews-practical-how-tos-your-34-1/">comprehensive guides in depth reviews practical how tos your</a> 
 <a href="https://myclassnews.it.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-34-1/">comprehensive guides reviews and how tos for crypto enthusia</a> 
@@ -302,6 +322,7 @@
 <a href="https://myclassnews.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-34-1-2/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://myclassnews.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-34-1-3/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://myclassnews.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-34-1-4/">mastering online information guides reviews how tos for smar</a> 
+<a href="https://myclassnews.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-34-1-5/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://myclassnews.it.com/mastering-online-information-guides-reviews-how-tos-for-smar-34-1/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://myclassnews.it.com/mastering-online-information-guides-reviews-how-tos-for-the-34-1-2/">mastering online information guides reviews how tos for the </a> 
 <a href="https://myclassnews.it.com/mastering-online-information-guides-reviews-how-tos-for-the-34-1-3/">mastering online information guides reviews how tos for the </a> 
@@ -340,6 +361,7 @@
 <a href="https://myclassnews.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-34-1/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://myclassnews.it.com/mastering-online-research-guides-reviews-how-tos-for-smarter-34-1-2/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://myclassnews.it.com/mastering-online-research-guides-reviews-how-tos-for-smarter-34-1/">mastering online research guides reviews how tos for smarter</a> 
+<a href="https://myclassnews.it.com/mastering-online-resources-guides-reviews-and-how-tos-for-ev-34-1/">mastering online resources guides reviews and how tos for ev</a> 
 <a href="https://myclassnews.it.com/mastering-online-resources-guides-reviews-and-how-tos-for-sm-34-1/">mastering online resources guides reviews and how tos for sm</a> 
 <a href="https://myclassnews.it.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-34-1/">mastering online resources guides reviews how tos for smarte</a> 
 <a href="https://myclassnews.it.com/mastering-personal-finance-a-business-and-marketing-perspect/">mastering personal finance a business and marketing perspect</a> 
@@ -780,25 +802,3 @@
 <a href="https://myfitbodygoals.com/what-to-know-about-what-to-look-for-in-a-good-news-website-3/">what to know about what to look for in a good news website 3</a> 
 <a href="https://myfitbodygoals.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://myfitbodygoals.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://myfitbodygoals.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide-2/">why niche blogs still matter a practical guide 2</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide-3/">why niche blogs still matter a practical guide 3</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-quick-guide-2/">why niche blogs still matter a quick guide 2</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-the-basics-2/">why niche blogs still matter the basics 2</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-the-basics-3/">why niche blogs still matter the basics 3</a> 
-<a href="https://myfitbodygoals.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://myfitbodygoals.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://myfitbodygoals.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://myfitbodygoals.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://myfitbodygoals.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://mylaunchpadnetwork.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://mylaunchpadnetwork.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommendations/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://mylaunchpadnetwork.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://mylaunchpadnetwork.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://mylaunchpadnetwork.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 

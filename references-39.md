@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://palacsintarecept.hu.net/the-playfair-display-and-source-sans-pairing/">the playfair display and source sans pairing</a> 
+<a href="https://palacsintarecept.hu.net/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://palacsintarecept.hu.net/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
+<a href="https://palacsintarecept.hu.net/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://palacsintarecept.hu.net/tlt-ng-resource-2/">tlt ng resource 2</a> 
+<a href="https://palacsintarecept.hu.net/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
+<a href="https://palacsintarecept.hu.net/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://palacsintarecept.hu.net/turos-palacsinta-recept/">turos palacsinta recept</a> 
+<a href="https://palacsintarecept.hu.net/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://palacsintarecept.hu.net/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://palacsintarecept.hu.net/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://palacsintarecept.hu.net/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
+<a href="https://palacsintarecept.hu.net/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
+<a href="https://palacsintarecept.hu.net/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
+<a href="https://palacsintarecept.hu.net/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://palacsintarecept.hu.net/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://palacsintarecept.hu.net/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://palacsintarecept.hu.net/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill-2/">what to know about how to use the web to learn a new skill 2</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
 <a href="https://palacsintarecept.hu.net/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://palacsintarecept.hu.net/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
 <a href="https://palacsintarecept.hu.net/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
@@ -780,25 +802,3 @@
 <a href="https://pixect.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://pixect.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://pixect.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://pixect.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
-<a href="https://pixect.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
-<a href="https://pixect.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
-<a href="https://pixect.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://pixect.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://pixect.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://pixect.xyz/check-matric-results-by-sms-2/">check matric results by sms 2</a> 
-<a href="https://pixect.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://pixect.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://pixect.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://pixect.xyz/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://pixect.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
-<a href="https://pixect.xyz/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://pixect.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
-<a href="https://pixect.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
-<a href="https://pixect.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://pixect.xyz/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://pixect.xyz/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://pixect.xyz/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
-<a href="https://pixect.xyz/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://pixect.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
-<a href="https://pixect.xyz/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
