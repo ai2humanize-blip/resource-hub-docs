@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://feetfinder.uk.net/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://feetfinder.uk.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://feetfinder.uk.net/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype-2/">how to avoid misinformation and hype 2</a> 
+<a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://feetfinder.uk.net/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://feetfinder.uk.net/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://feetfinder.uk.net/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://feetfinder.uk.net/how-to-choose-comfortable-everyday-shoes-that-actually-fit/">how to choose comfortable everyday shoes that actually fit</a> 
+<a href="https://feetfinder.uk.net/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://feetfinder.uk.net/how-to-evaluate-online-reviews-and-recommendations-a-practical-guide/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://feetfinder.uk.net/how-to-evaluate-online-reviews-and-recommendations-explained-simply/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://feetfinder.uk.net/how-to-evaluate-online-reviews-and-recommendations-the-basics/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://feetfinder.uk.net/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://feetfinder.uk.net/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
 <a href="https://feetfinder.uk.net/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://feetfinder.uk.net/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://feetfinder.uk.net/how-to-get-the-most-out-of-online-guides-2/">how to get the most out of online guides 2</a> 
@@ -784,21 +802,3 @@
 <a href="https://financieelveiligouderworden.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
 <a href="https://financieelveiligouderworden.com/how-to-organize-the-information-you-find-online-the-basics-3/">how to organize the information you find online the basics 3</a> 
 <a href="https://financieelveiligouderworden.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://financieelveiligouderworden.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://financieelveiligouderworden.com/how-to-safely-follow-an-app-that-s-still-in-development/">how to safely follow an app that s still in development</a> 
-<a href="https://financieelveiligouderworden.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://financieelveiligouderworden.com/how-to-spot-low-quality-content-online-and-why-it-matters-2/">how to spot low quality content online and why it matters 2</a> 
-<a href="https://financieelveiligouderworden.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://financieelveiligouderworden.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
-<a href="https://financieelveiligouderworden.com/how-to-stay-informed-navigating-today-s-complex-news-landsca/">how to stay informed navigating today s complex news landsca</a> 
-<a href="https://financieelveiligouderworden.com/how-to-tell-explainer-journalism-from-opinion-explained-simp-2/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://financieelveiligouderworden.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://financieelveiligouderworden.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://financieelveiligouderworden.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
-<a href="https://financieelveiligouderworden.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://financieelveiligouderworden.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://financieelveiligouderworden.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://financieelveiligouderworden.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://financieelveiligouderworden.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
-<a href="https://financieelveiligouderworden.com/making-sense-of-complex-topics-online-the-basics-2/">making sense of complex topics online the basics 2</a> 
-<a href="https://financieelveiligouderworden.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 

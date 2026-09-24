@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://pastebin.com/6cc5NBN2">6cc5NBN2</a> 
+<a href="https://pastebin.com/6uV7WhxD">6uV7WhxD</a> 
+<a href="https://pastebin.com/7rCu2j5e">7rCu2j5e</a> 
+<a href="https://pastebin.com/8NjeHQuD">8NjeHQuD</a> 
+<a href="https://pastebin.com/9ckEvWGb">9ckEvWGb</a> 
+<a href="https://pastebin.com/AB00uNUS">AB00uNUS</a> 
+<a href="https://pastebin.com/CXqxMV09">CXqxMV09</a> 
+<a href="https://pastebin.com/FC0M9YtL">FC0M9YtL</a> 
+<a href="https://pastebin.com/FhwtzAmN">FhwtzAmN</a> 
+<a href="https://pastebin.com/GJNsr578">GJNsr578</a> 
+<a href="https://pastebin.com/Gnq9zQKk">Gnq9zQKk</a> 
+<a href="https://pastebin.com/Hai0Wm3G">Hai0Wm3G</a> 
+<a href="https://pastebin.com/HwvpufBz">HwvpufBz</a> 
+<a href="https://pastebin.com/JB8J3e7f">JB8J3e7f</a> 
+<a href="https://pastebin.com/K5vgBLwB">K5vgBLwB</a> 
+<a href="https://pastebin.com/Ku6uvTY7">Ku6uvTY7</a> 
+<a href="https://pastebin.com/MP0XpwMq">MP0XpwMq</a> 
+<a href="https://pastebin.com/NXcvQBnV">NXcvQBnV</a> 
+<a href="https://pastebin.com/P1DgHJ8E">P1DgHJ8E</a> 
+<a href="https://pastebin.com/RK7kgdJB">RK7kgdJB</a> 
+<a href="https://pastebin.com/RL6vX0Kt">RL6vX0Kt</a> 
 <a href="https://pastebin.com/RePUMCyn">RePUMCyn</a> 
 <a href="https://pastebin.com/SQsuxWav">SQsuxWav</a> 
 <a href="https://pastebin.com/TRVL97Jg">TRVL97Jg</a> 
@@ -781,24 +802,3 @@
 <a href="https://pixect.xyz/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
 <a href="https://pixect.xyz/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
 <a href="https://pixect.xyz/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://pixect.xyz/understanding-thefontworld-a-practical-guide/">understanding thefontworld a practical guide</a> 
-<a href="https://pixect.xyz/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
-<a href="https://pixect.xyz/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
-<a href="https://pixect.xyz/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
-<a href="https://pixect.xyz/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
-<a href="https://pixect.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://pixect.xyz/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
-<a href="https://pixect.xyz/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
-<a href="https://pixect.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://pixect.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://pixect.xyz/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-4/">a closer look at how to avoid misinformation and hype 4</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommendations/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 

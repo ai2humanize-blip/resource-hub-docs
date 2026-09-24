@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://pixect.xyz/understanding-thefontworld-a-practical-guide/">understanding thefontworld a practical guide</a> 
+<a href="https://pixect.xyz/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
+<a href="https://pixect.xyz/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
+<a href="https://pixect.xyz/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
+<a href="https://pixect.xyz/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
+<a href="https://pixect.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://pixect.xyz/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://pixect.xyz/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
+<a href="https://pixect.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://pixect.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://pixect.xyz/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-4/">a closer look at how to avoid misinformation and hype 4</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommendations/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://playboicartinetworth.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
 <a href="https://playboicartinetworth.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://playboicartinetworth.com/a-closer-look-at-how-to-read-the-news-without-getting-overwhelmed/">a closer look at how to read the news without getting overwh</a> 
@@ -781,24 +802,3 @@
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/boosting-business-finance-and-productivity-through-smart-int-35-7/">boosting business finance and productivity through smart int</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-compare-sources-on-the-same-story-explained-simply-2/">how to compare sources on the same story explained simply 2</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 

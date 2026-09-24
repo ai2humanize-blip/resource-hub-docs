@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://nicecitydatecraze.com/transforming-daily-life-how-smart-apps-are-revolutionizing-t/">transforming daily life how smart apps are revolutionizing t</a> 
+<a href="https://nicecitydatecraze.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://nicecitydatecraze.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
+<a href="https://nicecitydatecraze.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://nicecitydatecraze.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://nicecitydatecraze.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://nicecitydatecraze.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://nicecitydatecraze.com/understanding-legal-information-and-news-a-guide-for-the-gen/">understanding legal information and news a guide for the gen</a> 
 <a href="https://nicecitydatecraze.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
@@ -781,24 +802,3 @@
 <a href="https://pastebin.com/5CTMAMzV">5CTMAMzV</a> 
 <a href="https://pastebin.com/5vGm8pTb">5vGm8pTb</a> 
 <a href="https://pastebin.com/6KUaC9u2">6KUaC9u2</a> 
-<a href="https://pastebin.com/6cc5NBN2">6cc5NBN2</a> 
-<a href="https://pastebin.com/6uV7WhxD">6uV7WhxD</a> 
-<a href="https://pastebin.com/7rCu2j5e">7rCu2j5e</a> 
-<a href="https://pastebin.com/8NjeHQuD">8NjeHQuD</a> 
-<a href="https://pastebin.com/9ckEvWGb">9ckEvWGb</a> 
-<a href="https://pastebin.com/AB00uNUS">AB00uNUS</a> 
-<a href="https://pastebin.com/CXqxMV09">CXqxMV09</a> 
-<a href="https://pastebin.com/FC0M9YtL">FC0M9YtL</a> 
-<a href="https://pastebin.com/FhwtzAmN">FhwtzAmN</a> 
-<a href="https://pastebin.com/GJNsr578">GJNsr578</a> 
-<a href="https://pastebin.com/Gnq9zQKk">Gnq9zQKk</a> 
-<a href="https://pastebin.com/Hai0Wm3G">Hai0Wm3G</a> 
-<a href="https://pastebin.com/HwvpufBz">HwvpufBz</a> 
-<a href="https://pastebin.com/JB8J3e7f">JB8J3e7f</a> 
-<a href="https://pastebin.com/K5vgBLwB">K5vgBLwB</a> 
-<a href="https://pastebin.com/Ku6uvTY7">Ku6uvTY7</a> 
-<a href="https://pastebin.com/MP0XpwMq">MP0XpwMq</a> 
-<a href="https://pastebin.com/NXcvQBnV">NXcvQBnV</a> 
-<a href="https://pastebin.com/P1DgHJ8E">P1DgHJ8E</a> 
-<a href="https://pastebin.com/RK7kgdJB">RK7kgdJB</a> 
-<a href="https://pastebin.com/RL6vX0Kt">RL6vX0Kt</a> 

@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cochesdeocasion.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://cochesdeocasion.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://cochesdeocasion.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cochesdeocasion.xyz/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://cochesdeocasion.xyz/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://cochesdeocasion.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://cochesdeocasion.xyz/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://cochesdeocasion.xyz/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://cochesdeocasion.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
+<a href="https://cochesdeocasion.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://cochesdeocasion.xyz/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
+<a href="https://cochesdeocasion.xyz/how-to-read-the-news-without-getting-overwhelmed-a-practical-guide/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://cochesdeocasion.xyz/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://cochesdeocasion.xyz/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://cochesdeocasion.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://cochesdeocasion.xyz/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://cochesdeocasion.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://cochesdeocasion.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cochesdeocasion.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://cochesdeocasion.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
 <a href="https://cochesdeocasion.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
@@ -784,21 +802,3 @@
 <a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://croginalcats.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://croginalcats.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://croginalcats.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://croginalcats.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://croginalcats.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://croginalcats.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://croginalcats.xyz/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://croginalcats.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://croginalcats.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://croginalcats.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
-<a href="https://croginalcats.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://croginalcats.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://croginalcats.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://croginalcats.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://croginalcats.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://croginalcats.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://croginalcats.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
