@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://getolive.org/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://getolive.org/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
+<a href="https://getolive.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://getolive.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://getolive.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://getolive.org/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://getolive.org/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://getolive.org/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
+<a href="https://getolive.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://getolive.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://getolive.org/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-2/">guides reviews how tos 50 resources worth bookmarking 97 3 2</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-3/">guides reviews how tos 50 resources worth bookmarking 97 3 3</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3/">guides reviews how tos 50 resources worth bookmarking 97 3</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-navigating-the-information-age-97-8/">guides reviews how tos navigating the information age 97 8</a> 
+<a href="https://getolive.org/how-ai-driven-apps-are-transforming-our-digital-experience/">how ai driven apps are transforming our digital experience</a> 
+<a href="https://getolive.org/how-ai-driven-apps-are-transforming-our-digital-lives/">how ai driven apps are transforming our digital lives</a> 
+<a href="https://getolive.org/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://getolive.org/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
 <a href="https://getolive.org/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
 <a href="https://getolive.org/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
@@ -784,21 +802,3 @@
 <a href="https://globespro.it.com/understanding-digital-literacy-the-basics-2/">understanding digital literacy the basics 2</a> 
 <a href="https://globespro.it.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://globespro.it.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://globespro.it.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://globespro.it.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://globespro.it.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://globespro.it.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://globespro.it.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://globespro.it.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://globespro.it.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://globespro.it.com/understanding-how-search-engines-rank-pages-explained-simply-2/">understanding how search engines rank pages explained simply</a> 
-<a href="https://globespro.it.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://globespro.it.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
-<a href="https://globespro.it.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://globespro.it.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://globespro.it.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
-<a href="https://globespro.it.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://globespro.it.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://globespro.it.com/understanding-oxpoll-a-practical-guide/">understanding oxpoll a practical guide</a> 
-<a href="https://globespro.it.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
-<a href="https://globespro.it.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 

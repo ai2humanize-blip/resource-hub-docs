@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://casacours.uk.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://casacours.uk.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://casacours.uk.com/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
+<a href="https://casacours.uk.com/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
+<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://casacours.uk.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
+<a href="https://casacours.uk.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://casacours.uk.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
+<a href="https://casacours.uk.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
+<a href="https://casacours.uk.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://casacours.uk.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://casacours.uk.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
+<a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://casacours.uk.com/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
 <a href="https://casacours.uk.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://casacours.uk.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
@@ -784,21 +802,3 @@
 <a href="https://cbdpuffbars.com/how-to-leverage-ai-and-automation-for-a-more-productive-digi/">how to leverage ai and automation for a more productive digi</a> 
 <a href="https://cbdpuffbars.com/how-to-organize-the-information-you-find-online-explained-simply/">how to organize the information you find online explained si</a> 
 <a href="https://cbdpuffbars.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://cbdpuffbars.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://cbdpuffbars.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://cbdpuffbars.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://cbdpuffbars.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://cbdpuffbars.com/how-to-safeguard-your-privacy-in-the-digital-age-essential-a/">how to safeguard your privacy in the digital age essential a</a> 
-<a href="https://cbdpuffbars.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://cbdpuffbars.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://cbdpuffbars.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://cbdpuffbars.com/how-to-stay-informed-the-best-news-aggregators-for-2023/">how to stay informed the best news aggregators for 2023</a> 
-<a href="https://cbdpuffbars.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cbdpuffbars.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters-2/">how to tell if a website is trustworthy and why it matters 2</a> 
-<a href="https://cbdpuffbars.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://cbdpuffbars.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://cbdpuffbars.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://cbdpuffbars.com/independent-daily-reporting/">independent daily reporting</a> 
-<a href="https://cbdpuffbars.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://cbdpuffbars.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://cbdpuffbars.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 

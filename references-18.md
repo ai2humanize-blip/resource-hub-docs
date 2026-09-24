@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://emiamedical.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://endearing-truffle-d89cbb.netlify.app/the-elearning-trends-reshaping-how-we-teach-and-learn.html">the elearning trends reshaping how we teach and learn</a> 
+<a href="https://epicwin1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://epicwin1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://epicwin1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://epicwin1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://epicwin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://epicwin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://epicwin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://epicwin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://epicwin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://epicwin1.xyz/hello-world/">hello world</a> 
+<a href="https://epicwin1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://epicwin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://epicwin1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://epicwin1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://epicwin1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://epicwin1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://epicwin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
@@ -784,21 +802,3 @@
 <a href="https://fabbusinesssolutions.com/exploring-the-best-in-web-tech-content-a-curated-guide-94-5/">exploring the best in web tech content a curated guide 94 5</a> 
 <a href="https://fabbusinesssolutions.com/exploring-the-best-independent-web-tech-crypto-resources-94-5/">exploring the best independent web tech crypto resources 94 </a> 
 <a href="https://fabbusinesssolutions.com/exploring-the-future-of-marketing-seo-growth-in-the-ai-era-94-7/">exploring the future of marketing seo growth in the ai era 9</a> 
-<a href="https://fabbusinesssolutions.com/exploring-the-future-of-sports-news-ai-data-analytics-and-fa-94-5/">exploring the future of sports news ai data analytics and fa</a> 
-<a href="https://fabbusinesssolutions.com/exploring-the-intersection-of-business-finance-and-productiv-94-8/">exploring the intersection of business finance and productiv</a> 
-<a href="https://fabbusinesssolutions.com/exploring-the-intersection-of-web-tech-and-content-editor-s-94-5/">exploring the intersection of web tech and content editor s </a> 
-<a href="https://fabbusinesssolutions.com/exploring-the-intersection-of-web-tech-and-content-in-today-94-5/">exploring the intersection of web tech and content in today </a> 
-<a href="https://fabbusinesssolutions.com/exploring-the-latest-news-trends-analysis-and-insights-for-i/">exploring the latest news trends analysis and insights for i</a> 
-<a href="https://fabbusinesssolutions.com/exploring-the-world-of-online-casinos-marketing-seo-growth-s-94-7/">exploring the world of online casinos marketing seo growth s</a> 
-<a href="https://fabbusinesssolutions.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://fabbusinesssolutions.com/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
-<a href="https://fabbusinesssolutions.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://fabbusinesssolutions.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
-<a href="https://fabbusinesssolutions.com/getting-how-to-compare-sources-on-the-same-story-right-2/">getting how to compare sources on the same story right 2</a> 
-<a href="https://fabbusinesssolutions.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://fabbusinesssolutions.com/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
-<a href="https://fabbusinesssolutions.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://fabbusinesssolutions.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig-2/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://fabbusinesssolutions.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://fabbusinesssolutions.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://fabbusinesssolutions.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 

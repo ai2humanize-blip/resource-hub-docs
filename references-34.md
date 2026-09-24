@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://marketingslave.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://marketingslave.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://marketingslave.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://marketingslave.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://marketingslave.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://marketingslave.com/how-to-fact-check-something-in-five-minutes-and-why-it-matters/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://marketingslave.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://marketingslave.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide-2/">how to find balanced coverage of a topic a quick guide 2</a> 
+<a href="https://marketingslave.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://marketingslave.com/how-to-find-reliable-how-to-guides-2/">how to find reliable how to guides 2</a> 
+<a href="https://marketingslave.com/how-to-find-reliable-how-to-guides-the-basics-2/">how to find reliable how to guides the basics 2</a> 
+<a href="https://marketingslave.com/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
+<a href="https://marketingslave.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
+<a href="https://marketingslave.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://marketingslave.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
+<a href="https://marketingslave.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://marketingslave.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
+<a href="https://marketingslave.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
+<a href="https://marketingslave.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
 <a href="https://marketingslave.com/how-to-spot-low-quality-content-online-and-why-it-matters-2/">how to spot low quality content online and why it matters 2</a> 
 <a href="https://marketingslave.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
 <a href="https://marketingslave.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
@@ -783,22 +802,3 @@
 <a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
 <a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
-<a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://modernwritingdesk.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
-<a href="https://modernwritingdesk.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
-<a href="https://modernwritingdesk.com/le-quint-comprendre-le-pari-hippique-le-plus-suivi/">le quint comprendre le pari hippique le plus suivi</a> 
-<a href="https://modernwritingdesk.com/making-sense-of-complex-topics-online-a-practical-guide-2/">making sense of complex topics online a practical guide 2</a> 
-<a href="https://modernwritingdesk.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://modernwritingdesk.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://modernwritingdesk.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://modernwritingdesk.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://modernwritingdesk.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://modernwritingdesk.com/marketing-seo-growth-50-resources-worth-bookmarking-110-6/">marketing seo growth 50 resources worth bookmarking 110 6</a> 
-<a href="https://modernwritingdesk.com/master-the-art-of-online-growth-guides-reviews-and-how-tos-f-110-10/">master the art of online growth guides reviews and how tos f</a> 
-<a href="https://modernwritingdesk.com/mastering-app-organization-boost-productivity-with-these-dig/">mastering app organization boost productivity with these dig</a> 
-<a href="https://modernwritingdesk.com/mastering-app-organization-essential-tips-for-a-clutter-free/">mastering app organization essential tips for a clutter free</a> 
-<a href="https://modernwritingdesk.com/mastering-business-growth-personal-finance-marketing-and-str-110-8/">mastering business growth personal finance marketing and str</a> 
-<a href="https://modernwritingdesk.com/mastering-business-personal-finance-and-marketing-a-strategi/">mastering business personal finance and marketing a strategi</a> 
-<a href="https://modernwritingdesk.com/mastering-guides-reviews-how-tos-the-ultimate-roundup-110-10/">mastering guides reviews how tos the ultimate roundup 110 10</a> 
-<a href="https://modernwritingdesk.com/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
-<a href="https://modernwritingdesk.com/mastering-personal-finance-a-strategic-approach-to-business-2/">mastering personal finance a strategic approach to business </a> 
