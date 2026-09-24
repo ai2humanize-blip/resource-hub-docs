@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://influencersgonewild.eu.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://influencersgonewild.eu.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://influencersgonewild.eu.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://influencersgonewild.eu.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://influencersgonewild.eu.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://influencersgonewild.eu.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://influencersgonewild.eu.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
 <a href="https://influencersgonewild.eu.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
 <a href="https://influencersgonewild.eu.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
@@ -784,21 +802,3 @@
 <a href="https://ireplicadealers.com/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon-103-4/">navigating the crypto landscape bitcoin blockchain and beyon</a> 
 <a href="https://ireplicadealers.com/navigating-the-crypto-revolution-a-beginner-s-guide-to-bitco/">navigating the crypto revolution a beginner s guide to bitco</a> 
 <a href="https://ireplicadealers.com/navigating-the-crypto-world-bitcoin-blockchain-and-beyond/">navigating the crypto world bitcoin blockchain and beyond</a> 
-<a href="https://ireplicadealers.com/navigating-the-digital-age-how-to-leverage-new-apps-for-ever/">navigating the digital age how to leverage new apps for ever</a> 
-<a href="https://ireplicadealers.com/navigating-the-digital-landscape-top-apps-for-business-finan-103-4/">navigating the digital landscape top apps for business finan</a> 
-<a href="https://ireplicadealers.com/navigating-the-evolving-landscape-of-news-consumption-in-202/">navigating the evolving landscape of news consumption in 202</a> 
-<a href="https://ireplicadealers.com/navigating-the-evolving-news-landscape-current-trends-and-re/">navigating the evolving news landscape current trends and re</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-business-finance-productivity-insights-103-4/">navigating the future business finance productivity insights</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-current-news-analysis-and-insights-for/">navigating the future current news analysis and insights for</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-how-ai-and-apps-are-transforming-our-d/">navigating the future how ai and apps are transforming our d</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-of-business-finance-productivity-in-20-103-9/">navigating the future of business finance productivity in 20</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-of-finance-a-comprehensive-guide-to-cr-103-3/">navigating the future of finance a comprehensive guide to cr</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-of-finance-cryptocurrency-bitcoin-and-103-4/">navigating the future of finance cryptocurrency bitcoin and </a> 
-<a href="https://ireplicadealers.com/navigating-the-future-of-marketing-seo-growth-a-comprehensiv-103-3/">navigating the future of marketing seo growth a comprehensiv</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-of-news-current-trends-and-in-depth-an-103-6/">navigating the future of news current trends and in depth an</a> 
-<a href="https://ireplicadealers.com/navigating-the-future-the-latest-in-cryptocurrency-bitcoin-a/">navigating the future the latest in cryptocurrency bitcoin a</a> 
-<a href="https://ireplicadealers.com/navigating-the-latest-trends-in-news-consumption-expert-anal-103-9/">navigating the latest trends in news consumption expert anal</a> 
-<a href="https://ireplicadealers.com/navigating-the-modern-job-market-essential-tools-and-strateg-103-5/">navigating the modern job market essential tools and strateg</a> 
-<a href="https://ireplicadealers.com/navigating-the-modern-job-market-strategies-for-career-growt/">navigating the modern job market strategies for career growt</a> 
-<a href="https://ireplicadealers.com/navigating-the-modern-news-landscape-insights-on-business-fi-103-9/">navigating the modern news landscape insights on business fi</a> 

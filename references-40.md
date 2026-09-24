@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://pixect.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://pixect.xyz/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
+<a href="https://pixect.xyz/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
+<a href="https://pixect.xyz/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
+<a href="https://pixect.xyz/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
+<a href="https://pixect.xyz/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
+<a href="https://pixect.xyz/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
+<a href="https://pixect.xyz/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
+<a href="https://pixect.xyz/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://pixect.xyz/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
+<a href="https://pixect.xyz/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
+<a href="https://pixect.xyz/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
+<a href="https://pixect.xyz/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
+<a href="https://pixect.xyz/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
+<a href="https://pixect.xyz/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
+<a href="https://pixect.xyz/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
+<a href="https://pixect.xyz/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
+<a href="https://pixect.xyz/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
+<a href="https://pixect.xyz/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
+<a href="https://pixect.xyz/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
+<a href="https://pixect.xyz/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
 <a href="https://pixect.xyz/understanding-thefontworld-a-practical-guide/">understanding thefontworld a practical guide</a> 
 <a href="https://pixect.xyz/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
 <a href="https://pixect.xyz/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://portalnewsletter.co.za/wp/2026/09/01/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/01/mastering-business-finance-productivity-a-comprehensive-guid-35-2-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/09/02/business-finance-productivity-a-comprehensive-guide-to-under-35-2/">business finance productivity a comprehensive guide to under</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/02/business-finance-productivity-essential-resources-for-2026-35-2/">business finance productivity essential resources for 2026 3</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/02/essential-independent-news-and-explainer-sites-for-business-35-2/">essential independent news and explainer sites for business </a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/02/mastering-business-finance-and-productivity-editor-s-top-pic-35-2/">mastering business finance and productivity editor s top pic</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/02/mastering-business-finance-and-productivity-in-the-crypto-an-35-2/">mastering business finance and productivity in the crypto an</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/02/mastering-business-finance-productivity-travel-savings-strat-35-2/">mastering business finance productivity travel savings strat</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/02/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/02/why-explainer-journalism-matters-more-than-ever/">why explainer journalism matters more than ever</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/03/mastering-business-finance-and-productivity-in-the-digital-a-35-2/">mastering business finance and productivity in the digital a</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/03/mastering-business-finance-productivity-a-comprehensive-guid-35-2-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/03/maximizing-business-finance-and-productivity-with-ai-and-sma-35-2/">maximizing business finance and productivity with ai and sma</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-building-a-healthy-daily-reading-habit-2/">a closer look at building a healthy daily reading habit 2</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-how-to-compare-sources-on-the-same-story-2/">a closer look at how to compare sources on the same story 2</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/09/04/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 

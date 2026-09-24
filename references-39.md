@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://palacsintarecept.hu.net/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://paper.wf/1mother/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
+<a href="https://paper.wf/1mother/a-useful-resource-what-to-do-after-a-data-breach">a useful resource what to do after a data breach</a> 
+<a href="https://paper.wf/1mother/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
+<a href="https://paper.wf/1mother/independent-websites-worth-bookmarking">independent websites worth bookmarking</a> 
+<a href="https://paper.wf/1mother/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
+<a href="https://paper.wf/1mother/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
+<a href="https://pastebin.com/0FQdJ0Br">0FQdJ0Br</a> 
+<a href="https://pastebin.com/0PUSy2f3">0PUSy2f3</a> 
+<a href="https://pastebin.com/0QbqeZhW">0QbqeZhW</a> 
+<a href="https://pastebin.com/0QywkJGB">0QywkJGB</a> 
+<a href="https://pastebin.com/0cxSYR0C">0cxSYR0C</a> 
+<a href="https://pastebin.com/18GUjLX1">18GUjLX1</a> 
+<a href="https://pastebin.com/1QWGgGCb">1QWGgGCb</a> 
+<a href="https://pastebin.com/25RmgqAd">25RmgqAd</a> 
+<a href="https://pastebin.com/3crC2VX7">3crC2VX7</a> 
+<a href="https://pastebin.com/3uUu7A6k">3uUu7A6k</a> 
+<a href="https://pastebin.com/4Te3LqEq">4Te3LqEq</a> 
+<a href="https://pastebin.com/5CTMAMzV">5CTMAMzV</a> 
+<a href="https://pastebin.com/5vGm8pTb">5vGm8pTb</a> 
+<a href="https://pastebin.com/6KUaC9u2">6KUaC9u2</a> 
 <a href="https://pastebin.com/6cc5NBN2">6cc5NBN2</a> 
 <a href="https://pastebin.com/6uV7WhxD">6uV7WhxD</a> 
 <a href="https://pastebin.com/7rCu2j5e">7rCu2j5e</a> 
@@ -781,24 +802,3 @@
 <a href="https://pixect.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 
 <a href="https://pixect.xyz/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
 <a href="https://pixect.xyz/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
-<a href="https://pixect.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://pixect.xyz/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
-<a href="https://pixect.xyz/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
-<a href="https://pixect.xyz/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
-<a href="https://pixect.xyz/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
-<a href="https://pixect.xyz/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
-<a href="https://pixect.xyz/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://pixect.xyz/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
-<a href="https://pixect.xyz/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://pixect.xyz/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://pixect.xyz/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://pixect.xyz/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://pixect.xyz/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://pixect.xyz/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
-<a href="https://pixect.xyz/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://pixect.xyz/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
-<a href="https://pixect.xyz/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://pixect.xyz/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://pixect.xyz/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
-<a href="https://pixect.xyz/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://pixect.xyz/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 

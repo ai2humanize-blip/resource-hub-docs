@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cochesdeocasion.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cochesdeocasion.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cochesdeocasion.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cochesdeocasion.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
+<a href="https://cochesdeocasion.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://cochesdeocasion.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://cochesdeocasion.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cochesdeocasion.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://cochesdeocasion.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cochesdeocasion.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cochesdeocasion.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cochesdeocasion.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://cochesdeocasion.xyz/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://cochesdeocasion.xyz/getting-started-with-a-password-manager/">getting started with a password manager</a> 
 <a href="https://cochesdeocasion.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://cochesdeocasion.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://cochesdeocasion.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -784,21 +802,3 @@
 <a href="https://crediblenews24.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://crediblenews24.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://crediblenews24.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://crediblenews24.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://crediblenews24.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://crediblenews24.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website-2/">what to look for in a good news website 2</a> 
-<a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://crediblenews24.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://crediblenews24.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
-<a href="https://crediblenews24.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://crediblenews24.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://crediblenews24.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://crediblenews24.com/why-explainer-journalism-web-and-content-matter-in-today-s-w-86-8/">why explainer journalism web and content matter in today s w</a> 
-<a href="https://crediblenews24.com/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-86-8/">why niche blogs still matter a deep dive into web tech conte</a> 
-<a href="https://crediblenews24.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
