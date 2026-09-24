@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cnlawblog.jpn.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
+<a href="https://cnlawblog.jpn.com/what-makes-an-explainer-article-genuinely-useful-and-why-it-matters/">what makes an explainer article genuinely useful and why it </a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-understanding-how-search-engines-rank-pages/">what to know about understanding how search engines rank pag</a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cnlawblog.jpn.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://cnlawblog.jpn.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cnlawblog.jpn.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://cnlawblog.jpn.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://cnlawblog.jpn.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://cochesdeocasion.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://cochesdeocasion.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://cochesdeocasion.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://cochesdeocasion.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cochesdeocasion.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cochesdeocasion.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -784,21 +802,3 @@
 <a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-2/">unpacking today s top news in depth analysis and expert insi</a> 
 <a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-86-8/">unpacking today s top news in depth analysis and expert insi</a> 
 <a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://crediblenews24.com/vaeyc/">vaeyc</a> 
-<a href="https://crediblenews24.com/web-tech-content-your-ultimate-guide-to-digital-productivity-86-8/">web tech content your ultimate guide to digital productivity</a> 
-<a href="https://crediblenews24.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://crediblenews24.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://crediblenews24.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://crediblenews24.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://crediblenews24.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-evaluate-online-reviews-and-recommendations/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-organize-the-information-you-find-online/">what to know about how to organize the information you find </a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy-2/">what to know about how to tell if a website is trustworthy 2</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
-<a href="https://crediblenews24.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://crediblenews24.com/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
-<a href="https://crediblenews24.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://crediblenews24.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://crediblenews24.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 

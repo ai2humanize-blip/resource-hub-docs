@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://palacsintarecept.hu.net/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://palacsintarecept.hu.net/what-to-look-for-in-a-good-news-website-explained-simply-2/">what to look for in a good news website explained simply 2</a> 
+<a href="https://palacsintarecept.hu.net/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://palacsintarecept.hu.net/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://palacsintarecept.hu.net/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
 <a href="https://palacsintarecept.hu.net/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://paper.wf/1mother/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
 <a href="https://paper.wf/1mother/a-useful-resource-what-to-do-after-a-data-breach">a useful resource what to do after a data breach</a> 
@@ -781,24 +802,3 @@
 <a href="https://pixect.xyz/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://pixect.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://pixect.xyz/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://pixect.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://pixect.xyz/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://pixect.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://pixect.xyz/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
-<a href="https://pixect.xyz/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://pixect.xyz/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://pixect.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://pixect.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://pixect.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://pixect.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
-<a href="https://pixect.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
-<a href="https://pixect.xyz/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
-<a href="https://pixect.xyz/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
-<a href="https://pixect.xyz/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
-<a href="https://pixect.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://pixect.xyz/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://pixect.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://pixect.xyz/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
-<a href="https://pixect.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 
-<a href="https://pixect.xyz/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
-<a href="https://pixect.xyz/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 

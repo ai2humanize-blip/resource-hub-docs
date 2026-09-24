@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://feetfinder.uk.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://feetfinder.uk.net/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://feetfinder.uk.net/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://feetfinder.uk.net/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://feetfinder.uk.net/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
+<a href="https://feetfinder.uk.net/arcenturf-co-resource-3-2/">arcenturf co resource 3 2</a> 
+<a href="https://feetfinder.uk.net/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
+<a href="https://feetfinder.uk.net/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://feetfinder.uk.net/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://feetfinder.uk.net/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
+<a href="https://feetfinder.uk.net/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-10/">common questions answered 10</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-11/">common questions answered 11</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-12/">common questions answered 12</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-13/">common questions answered 13</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-14/">common questions answered 14</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-16/">common questions answered 16</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-17/">common questions answered 17</a> 
 <a href="https://feetfinder.uk.net/common-questions-answered-18/">common questions answered 18</a> 
 <a href="https://feetfinder.uk.net/common-questions-answered-19/">common questions answered 19</a> 
 <a href="https://feetfinder.uk.net/common-questions-answered-2/">common questions answered 2</a> 
@@ -784,21 +802,3 @@
 <a href="https://financieelveiligouderworden.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://financieelveiligouderworden.com/how-ai-is-transforming-news-reporting-current-trends-and-fut/">how ai is transforming news reporting current trends and fut</a> 
 <a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-revolutionizing-daily-life-in-the-di/">how ai powered apps are revolutionizing daily life in the di</a> 
-<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-transforming-daily-life-for-the-bett/">how ai powered apps are transforming daily life for the bett</a> 
-<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-transforming-our-digital-experience/">how ai powered apps are transforming our digital experience</a> 
-<a href="https://financieelveiligouderworden.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
-<a href="https://financieelveiligouderworden.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://financieelveiligouderworden.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://financieelveiligouderworden.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://financieelveiligouderworden.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://financieelveiligouderworden.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
-<a href="https://financieelveiligouderworden.com/how-to-boost-your-website-s-seo-with-user-experience-optimiz/">how to boost your website s seo with user experience optimiz</a> 
-<a href="https://financieelveiligouderworden.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
-<a href="https://financieelveiligouderworden.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
-<a href="https://financieelveiligouderworden.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
-<a href="https://financieelveiligouderworden.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://financieelveiligouderworden.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
-<a href="https://financieelveiligouderworden.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
-<a href="https://financieelveiligouderworden.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://financieelveiligouderworden.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://financieelveiligouderworden.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
