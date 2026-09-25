@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://marketingslave.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://marketingslave.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://marketingslave.com/guides-reviews-how-tos-50-resources-worth-bookmarking-108-2/">guides reviews how tos 50 resources worth bookmarking 108 2</a> 
+<a href="https://marketingslave.com/how-ai-and-machine-learning-are-transforming-everyday-apps-2/">how ai and machine learning are transforming everyday apps 2</a> 
+<a href="https://marketingslave.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://marketingslave.com/how-ai-and-machine-learning-are-transforming-news-reporting/">how ai and machine learning are transforming news reporting</a> 
+<a href="https://marketingslave.com/how-ai-powered-apps-are-transforming-everyday-life-for-the-b/">how ai powered apps are transforming everyday life for the b</a> 
+<a href="https://marketingslave.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://marketingslave.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype-a-quick-guide-2/">how to avoid misinformation and hype a quick guide 2</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype-explained-simply-2/">how to avoid misinformation and hype explained simply 2</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://marketingslave.com/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://marketingslave.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://marketingslave.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://marketingslave.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://marketingslave.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://marketingslave.com/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
+<a href="https://marketingslave.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
 <a href="https://marketingslave.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://marketingslave.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://marketingslave.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
@@ -781,24 +802,3 @@
 <a href="https://modernwritingdesk.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
 <a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
 <a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
-<a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
-<a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://modernwritingdesk.com/how-to-organize-the-information-you-find-online-the-basics-2/">how to organize the information you find online the basics 2</a> 
-<a href="https://modernwritingdesk.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://modernwritingdesk.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it-2/">how to read the news without getting overwhelmed and why it </a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://modernwritingdesk.com/how-to-read-the-news-without-getting-overwhelmed-explained-simply/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://modernwritingdesk.com/how-to-spot-low-quality-content-online-a-quick-guide-2/">how to spot low quality content online a quick guide 2</a> 
-<a href="https://modernwritingdesk.com/how-to-spot-low-quality-content-online-a-quick-guide-3/">how to spot low quality content online a quick guide 3</a> 
-<a href="https://modernwritingdesk.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://modernwritingdesk.com/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
-<a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
-<a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://modernwritingdesk.com/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 

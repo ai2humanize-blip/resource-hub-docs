@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cnlawblog.jpn.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cnlawblog.jpn.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cnlawblog.jpn.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://cnlawblog.jpn.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://cnlawblog.jpn.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cnlawblog.jpn.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://cnlawblog.jpn.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cnlawblog.jpn.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cnlawblog.jpn.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cnlawblog.jpn.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-organize-the-information-you-find-online-right/">getting how to organize the information you find online righ</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
@@ -789,16 +802,3 @@
 <a href="https://crediblenews24.com/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
 <a href="https://crediblenews24.com/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
 <a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
-<a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-explained-simply-2/">simple habits of a smart internet reader explained simply 2</a> 
-<a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
-<a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
-<a href="https://crediblenews24.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://crediblenews24.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://crediblenews24.com/staying-informed-in-2023-navigating-web-tech-and-content-tre-86-8/">staying informed in 2023 navigating web tech and content tre</a> 
-<a href="https://crediblenews24.com/staying-informed-top-independent-sites-for-web-tech-content-86-8/">staying informed top independent sites for web tech content </a> 
-<a href="https://crediblenews24.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 

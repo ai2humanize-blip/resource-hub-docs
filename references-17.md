@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://earnmoneyplayinggames.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
+<a href="https://earnmoneyplayinggames.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
+<a href="https://earnmoneyplayinggames.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://earnmoneyplayinggames.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://earnmoneyplayinggames.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://earnmoneyplayinggames.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://earnmoneyplayinggames.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://earnmoneyplayinggames.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://earnmoneyplayinggames.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://earnmoneyplayinggames.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://earnmoneyplayinggames.xyz/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://earnmoneyplayinggames.xyz/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
@@ -787,18 +802,3 @@
 <a href="https://emiamedical.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://emiamedical.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://emiamedical.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://emiamedical.com/what-to-know-about-why-context-matters-when-reading-online-3/">what to know about why context matters when reading online 3</a> 
-<a href="https://emiamedical.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://emiamedical.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://emiamedical.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://emiamedical.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://emiamedical.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://emiamedical.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
-<a href="https://emiamedical.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://emiamedical.com/why-explainer-journalism-matters-more-than-ever/">why explainer journalism matters more than ever</a> 
-<a href="https://emiamedical.com/why-niche-blogs-still-matter-2/">why niche blogs still matter 2</a> 
-<a href="https://emiamedical.com/why-niche-blogs-still-matter-explained-simply-2/">why niche blogs still matter explained simply 2</a> 
-<a href="https://emiamedical.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://emiamedical.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 

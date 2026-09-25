@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://fil7771.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://fil7771.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://fil7771.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://fil7771.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://fil7771.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://fil7771.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://fil7771.xyz/hello-world/">hello world</a> 
+<a href="https://fil7771.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://fil7771.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://fil7771.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://fil7771.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://fil7771.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://fil7771.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://fil7771.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
 <a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
@@ -785,20 +802,3 @@
 <a href="https://getolive.org/exploring-essential-digital-tools-online-resources-for-crypt-97-6/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://getolive.org/exploring-essential-digital-tools-online-resources-for-moder-97-6/">exploring essential digital tools online resources for moder</a> 
 <a href="https://getolive.org/exploring-guides-reviews-and-how-tos-a-comprehensive-roundup-97-3/">exploring guides reviews and how tos a comprehensive roundup</a> 
-<a href="https://getolive.org/exploring-the-best-digital-tools-online-resources-for-modern-97-1/">exploring the best digital tools online resources for modern</a> 
-<a href="https://getolive.org/exploring-the-best-guides-reviews-and-how-tos-for-fashion-an-97-8/">exploring the best guides reviews and how tos for fashion an</a> 
-<a href="https://getolive.org/exploring-the-digital-realm-web-tech-content-insights-97-7/">exploring the digital realm web tech content insights 97 7</a> 
-<a href="https://getolive.org/exploring-the-dynamic-world-of-web-tech-and-content-a-compre-97-7/">exploring the dynamic world of web tech and content a compre</a> 
-<a href="https://getolive.org/exploring-the-future-digital-tools-online-resources-for-cryp-97-6/">exploring the future digital tools online resources for cryp</a> 
-<a href="https://getolive.org/exploring-the-future-of-apps-how-ai-and-ar-are-transforming/">exploring the future of apps how ai and ar are transforming</a> 
-<a href="https://getolive.org/exploring-the-intersection-of-fashion-style-and-modern-lifes-97-8/">exploring the intersection of fashion style and modern lifes</a> 
-<a href="https://getolive.org/exploring-the-intersection-of-web-tech-and-content-in-2023-97-2/">exploring the intersection of web tech and content in 2023 9</a> 
-<a href="https://getolive.org/exploring-the-intersection-of-web-tech-and-content-in-indian-97-7/">exploring the intersection of web tech and content in indian</a> 
-<a href="https://getolive.org/exploring-the-intersection-of-web-tech-and-content-in-the-bl-97-7/">exploring the intersection of web tech and content in the bl</a> 
-<a href="https://getolive.org/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
-<a href="https://getolive.org/exploring-the-world-of-digital-tools-cryptocurrency-bitcoin-97-6/">exploring the world of digital tools cryptocurrency bitcoin </a> 
-<a href="https://getolive.org/exploring-the-world-of-online-casinos-business-finance-and-p-97-10/">exploring the world of online casinos business finance and p</a> 
-<a href="https://getolive.org/exploring-today-s-news-landscape-guides-reviews-how-tos-for-97-8/">exploring today s news landscape guides reviews how tos for </a> 
-<a href="https://getolive.org/exploring-web-tech-content-and-online-casino-news-a-comprehe-97-7/">exploring web tech content and online casino news a comprehe</a> 
-<a href="https://getolive.org/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://getolive.org/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
