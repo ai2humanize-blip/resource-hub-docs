@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://phbetlogin.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://phbetlogin.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://phbetlogin.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://phbetlogin.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://phbetlogin.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://phcasino.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://phcasino.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://phcasino.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://phcasino.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://phcasino.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://phcasino.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://phcasino.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://phcasino.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://phcasino.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://phcasino.xyz/hello-world/">hello world</a> 
+<a href="https://phcasino.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://phcasino.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://phcasino.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://phcasino.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://phcasino.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://phcasino.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://phcasino.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://phlwin1.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
 <a href="https://phlwin1.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://phlwin1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -780,25 +802,3 @@
 <a href="https://polovnakola.com/the-future-of-communication-how-apps-are-transforming-digita/">the future of communication how apps are transforming digita</a> 
 <a href="https://polovnakola.com/the-future-of-digital-news-emerging-trends-and-analysis-for/">the future of digital news emerging trends and analysis for</a> 
 <a href="https://polovnakola.com/the-future-of-sports-news-how-analytics-and-technology-are-t/">the future of sports news how analytics and technology are t</a> 
-<a href="https://polovnakola.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
-<a href="https://polovnakola.com/the-rise-of-ai-in-news-reporting-current-trends-and-future-i/">the rise of ai in news reporting current trends and future i</a> 
-<a href="https://polovnakola.com/the-rise-of-ai-powered-apps-transforming-our-digital-lives/">the rise of ai powered apps transforming our digital lives</a> 
-<a href="https://polovnakola.com/the-rise-of-sustainable-fashion-how-eco-friendly-choices-are/">the rise of sustainable fashion how eco friendly choices are</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading-a-quick-guide-2/">the value of slow careful reading a quick guide 2</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
-<a href="https://polovnakola.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://polovnakola.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
-<a href="https://polovnakola.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
-<a href="https://polovnakola.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
-<a href="https://polovnakola.com/transform-your-life-top-health-wellness-and-organic-living-t/">transform your life top health wellness and organic living t</a> 
-<a href="https://polovnakola.com/transforming-daily-life-how-apps-are-revolutionizing-the-dig/">transforming daily life how apps are revolutionizing the dig</a> 
-<a href="https://polovnakola.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
-<a href="https://polovnakola.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://polovnakola.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://alcobar85.xyz/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://alcobar85.xyz/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://alcobar85.xyz/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://alcobar85.xyz/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
+<a href="https://alcobar85.xyz/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://alcobar85.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://alcobar85.xyz/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
 <a href="https://alcobar85.xyz/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://alcobar85.xyz/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
@@ -188,6 +194,7 @@
 <a href="https://algiamedical.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-77-2/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://algiamedical.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-77-7-2/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://algiamedical.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-77-7-3/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://algiamedical.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-77-7-4/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://algiamedical.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-77-7/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://algiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-ai-art-77-7/">exploring the intersection of web tech and content in ai art</a> 
 <a href="https://algiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-today-77-7/">exploring the intersection of web tech and content in today </a> 
@@ -454,6 +461,7 @@
 <a href="https://algiamedical.com/navigating-today-s-news-landscape-strategies-for-staying-inf-77-10/">navigating today s news landscape strategies for staying inf</a> 
 <a href="https://algiamedical.com/navigating-web-tech-and-content-a-comprehensive-roundup-for-77-7/">navigating web tech and content a comprehensive roundup for </a> 
 <a href="https://algiamedical.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-77-7/">navigating web tech content a comprehensive guide for savvy </a> 
+<a href="https://algiamedical.com/navigating-web-tech-content-a-comprehensive-guide-for-stayin-77-7/">navigating web tech content a comprehensive guide for stayin</a> 
 <a href="https://algiamedical.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-77-7-2/">navigating web tech content a comprehensive guide for the mo</a> 
 <a href="https://algiamedical.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-77-7-3/">navigating web tech content a comprehensive guide for the mo</a> 
 <a href="https://algiamedical.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-77-7/">navigating web tech content a comprehensive guide for the mo</a> 
@@ -588,6 +596,7 @@
 <a href="https://algiamedical.com/unpacking-today-s-top-news-expert-analysis-and-key-insights-77-9/">unpacking today s top news expert analysis and key insights </a> 
 <a href="https://algiamedical.com/virginia-childhood-education-what-to-know-in-2026-77-8/">virginia childhood education what to know in 2026 77 8</a> 
 <a href="https://algiamedical.com/web-tech-content-a-comprehensive-guide-to-cryptocurrency-onl-77-7/">web tech content a comprehensive guide to cryptocurrency onl</a> 
+<a href="https://algiamedical.com/web-tech-content-expert-solutions-for-everyday-tech-issues-77-7/">web tech content expert solutions for everyday tech issues 7</a> 
 <a href="https://algiamedical.com/web-tech-content-your-ultimate-guide-to-online-resources-and-77-7/">web tech content your ultimate guide to online resources and</a> 
 <a href="https://algiamedical.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
 <a href="https://algiamedical.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
@@ -793,12 +802,3 @@
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-12/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-13/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-14/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-15/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-16/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-17/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-18/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-19/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-4/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-a-comprehensive-guid-78-9-5/">mastering business finance productivity a comprehensive guid</a> 

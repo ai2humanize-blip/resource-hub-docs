@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cmdslot.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cmdslot.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cmdslot.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
+<a href="https://cmdslot.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://cmdslot.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://cmdslot.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cmdslot.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
+<a href="https://cmdslot.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cmdslot.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://cmdslot.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://cmdslot.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
+<a href="https://cmdslot.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
+<a href="https://cmdslot.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cmdslot.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cmdslot.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://cmdslot.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cmdslot.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
 <a href="https://cmdslot.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
 <a href="https://cmdslot.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
 <a href="https://cmdslot.xyz/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
@@ -784,21 +802,3 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-2/">mastering business finance productivity in the digital age a</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6/">mastering business finance productivity in the digital age a</a> 
-<a href="https://crediblenews24.com/mastering-business-growth-integrating-personal-finance-and-m/">mastering business growth integrating personal finance and m</a> 
-<a href="https://crediblenews24.com/mastering-career-changes-job-searches-and-legal-knowledge-es-86-9/">mastering career changes job searches and legal knowledge es</a> 
-<a href="https://crediblenews24.com/mastering-communication-home-upgrades-and-digital-privacy-a-86-9/">mastering communication home upgrades and digital privacy a </a> 
-<a href="https://crediblenews24.com/mastering-crypto-essential-terms-news-reading-and-wallet-saf-86-2/">mastering crypto essential terms news reading and wallet saf</a> 
-<a href="https://crediblenews24.com/mastering-crypto-guides-reviews-and-how-tos-for-bitcoin-and-86-9/">mastering crypto guides reviews and how tos for bitcoin and </a> 
-<a href="https://crediblenews24.com/mastering-digital-literacy-essential-tools-online-resources-86-7/">mastering digital literacy essential tools online resources </a> 
-<a href="https://crediblenews24.com/mastering-digital-literacy-essential-tools-resources-for-the-86-7/">mastering digital literacy essential tools resources for the</a> 
-<a href="https://crediblenews24.com/mastering-digital-privacy-how-to-secure-your-personal-data-i/">mastering digital privacy how to secure your personal data i</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-10/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-11/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-12/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-2/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-3/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-4/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-5/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-6/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-7/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-8/">mastering digital tools online resources a comprehensive gui</a> 

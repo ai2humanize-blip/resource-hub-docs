@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
+<a href="https://marketingslave.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://marketingslave.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://marketingslave.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://marketingslave.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://marketingslave.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://marketingslave.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://marketingslave.com/a-closer-look-at-why-niche-blogs-still-matter-2/">a closer look at why niche blogs still matter 2</a> 
+<a href="https://marketingslave.com/a-closer-look-at-why-niche-blogs-still-matter-3/">a closer look at why niche blogs still matter 3</a> 
+<a href="https://marketingslave.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://marketingslave.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://marketingslave.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://marketingslave.com/a-exploring-the-future-how-ai-and-apps-are-transforming-our/">a exploring the future how ai and apps are transforming our</a> 
+<a href="https://marketingslave.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://marketingslave.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://marketingslave.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://marketingslave.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://marketingslave.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
 <a href="https://marketingslave.com/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
@@ -783,22 +802,3 @@
 <a href="https://modernwritingdesk.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://modernwritingdesk.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://modernwritingdesk.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://modernwritingdesk.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://modernwritingdesk.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://modernwritingdesk.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://modernwritingdesk.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://modernwritingdesk.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://modernwritingdesk.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://modernwritingdesk.com/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
-<a href="https://modernwritingdesk.com/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
-<a href="https://modernwritingdesk.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://modernwritingdesk.com/boosting-your-child-s-early-development-proven-strategies-fo/">boosting your child s early development proven strategies fo</a> 
-<a href="https://modernwritingdesk.com/breaking-down-the-latest-news-and-analysis-what-you-need-to/">breaking down the latest news and analysis what you need to</a> 
-<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
-<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://modernwritingdesk.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://modernwritingdesk.com/business-finance-productivity-navigating-online-casinos-and-110-2/">business finance productivity navigating online casinos and </a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-10/">common questions answered 10</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-11/">common questions answered 11</a> 

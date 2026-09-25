@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://bandemusic.com/how-to-boost-your-productivity-with-the-best-apps-for-a-digi/">how to boost your productivity with the best apps for a digi</a> 
+<a href="https://bandemusic.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://bandemusic.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://bandemusic.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://bandemusic.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://bandemusic.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://bandemusic.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-practical-guid-2/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
 <a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
@@ -784,21 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-d9939c88/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-f32abbdb/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-3ebc0384/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-5cb3e795/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-a12bacf0/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-cbcede8a/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-perspective-for-2023/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-perspective/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-practical-guide/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-quick-guide-e27ed6a7/">understanding how search engines rank pages a quick guide e2</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-and-why-it-matters/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-legal-news-and-information-a-comprehensive-guide/">understanding legal news and information a comprehensive gui</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-the-current-landscape-of-news-consumption-trends-and-analysis/">understanding the current landscape of news consumption tren</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-the-impact-of-ai-on-modern-journalism-a-deep-dive/">understanding the impact of ai on modern journalism a deep d</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-the-impact-of-ai-on-modern-news-reporting-current-trends-and-analysis/">understanding the impact of ai on modern news reporting curr</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-the-impact-of-recent-currency-fluctuations-on-global-markets/">understanding the impact of recent currency fluctuations on </a> 

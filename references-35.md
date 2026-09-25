@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://modernwritingdesk.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://modernwritingdesk.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://modernwritingdesk.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://modernwritingdesk.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://modernwritingdesk.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://modernwritingdesk.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://modernwritingdesk.com/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
+<a href="https://modernwritingdesk.com/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
+<a href="https://modernwritingdesk.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://modernwritingdesk.com/boosting-your-child-s-early-development-proven-strategies-fo/">boosting your child s early development proven strategies fo</a> 
+<a href="https://modernwritingdesk.com/breaking-down-the-latest-news-and-analysis-what-you-need-to/">breaking down the latest news and analysis what you need to</a> 
+<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
+<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://modernwritingdesk.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://modernwritingdesk.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://modernwritingdesk.com/business-finance-productivity-navigating-online-casinos-and-110-2/">business finance productivity navigating online casinos and </a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-10/">common questions answered 10</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-11/">common questions answered 11</a> 
 <a href="https://modernwritingdesk.com/common-questions-answered-12/">common questions answered 12</a> 
 <a href="https://modernwritingdesk.com/common-questions-answered-13/">common questions answered 13</a> 
 <a href="https://modernwritingdesk.com/common-questions-answered-14/">common questions answered 14</a> 
@@ -783,22 +802,3 @@
 <a href="https://montanagreenpower.org/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
 <a href="https://montanagreenpower.org/exploring-web-tech-content-from-online-casinos-to-crypto-new-111-3/">exploring web tech content from online casinos to crypto new</a> 
 <a href="https://montanagreenpower.org/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://montanagreenpower.org/get-a-digital-national-id/">get a digital national id</a> 
-<a href="https://montanagreenpower.org/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://montanagreenpower.org/getting-how-to-avoid-misinformation-and-hype-right-2/">getting how to avoid misinformation and hype right 2</a> 
-<a href="https://montanagreenpower.org/getting-how-to-avoid-misinformation-and-hype-right-3/">getting how to avoid misinformation and hype right 3</a> 
-<a href="https://montanagreenpower.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://montanagreenpower.org/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
-<a href="https://montanagreenpower.org/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://montanagreenpower.org/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
-<a href="https://montanagreenpower.org/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://montanagreenpower.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://montanagreenpower.org/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://montanagreenpower.org/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://montanagreenpower.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://montanagreenpower.org/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://montanagreenpower.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://montanagreenpower.org/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://montanagreenpower.org/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://montanagreenpower.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://montanagreenpower.org/how-ai-is-transforming-the-news-industry-a-comprehensive-ana/">how ai is transforming the news industry a comprehensive ana</a> 

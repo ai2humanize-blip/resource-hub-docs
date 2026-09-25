@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://montanagreenpower.org/get-a-digital-national-id/">get a digital national id</a> 
+<a href="https://montanagreenpower.org/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://montanagreenpower.org/getting-how-to-avoid-misinformation-and-hype-right-2/">getting how to avoid misinformation and hype right 2</a> 
+<a href="https://montanagreenpower.org/getting-how-to-avoid-misinformation-and-hype-right-3/">getting how to avoid misinformation and hype right 3</a> 
+<a href="https://montanagreenpower.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://montanagreenpower.org/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://montanagreenpower.org/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://montanagreenpower.org/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://montanagreenpower.org/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
+<a href="https://montanagreenpower.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://montanagreenpower.org/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://montanagreenpower.org/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://montanagreenpower.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://montanagreenpower.org/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://montanagreenpower.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://montanagreenpower.org/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://montanagreenpower.org/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://montanagreenpower.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://montanagreenpower.org/how-ai-is-transforming-the-news-industry-a-comprehensive-ana/">how ai is transforming the news industry a comprehensive ana</a> 
 <a href="https://montanagreenpower.org/how-ai-powered-apps-are-revolutionizing-everyday-life/">how ai powered apps are revolutionizing everyday life</a> 
 <a href="https://montanagreenpower.org/how-ai-powered-apps-are-transforming-our-daily-lives-and-wor/">how ai powered apps are transforming our daily lives and wor</a> 
 <a href="https://montanagreenpower.org/how-ai-powered-apps-are-transforming-our-daily-lives/">how ai powered apps are transforming our daily lives</a> 
@@ -270,6 +289,7 @@
 <a href="https://myclassnews.it.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-34-1/">comprehensive guides reviews and how tos your ultimate resou</a> 
 <a href="https://myclassnews.it.com/comprehensive-guides-reviews-how-tos-cyber-safety-and-font-p-34-1/">comprehensive guides reviews how tos cyber safety and font p</a> 
 <a href="https://myclassnews.it.com/comprehensive-guides-reviews-how-tos-your-go-to-resource-rou-34-1/">comprehensive guides reviews how tos your go to resource rou</a> 
+<a href="https://myclassnews.it.com/comprehensive-guides-reviews-how-tos-your-ultimate-resource-34-1-2/">comprehensive guides reviews how tos your ultimate resource </a> 
 <a href="https://myclassnews.it.com/comprehensive-guides-reviews-how-tos-your-ultimate-resource-34-1/">comprehensive guides reviews how tos your ultimate resource </a> 
 <a href="https://myclassnews.it.com/comprehensive-roundup-guides-reviews-how-tos-for-savvy-reade-34-1/">comprehensive roundup guides reviews how tos for savvy reade</a> 
 <a href="https://myclassnews.it.com/consumer-technology-reviews-and-buying-guides-what-to-know/">consumer technology reviews and buying guides what to know</a> 
@@ -295,6 +315,7 @@
 <a href="https://myclassnews.it.com/discovering-asian-pinay-culture-a-deep-dive-into-traditions/">discovering asian pinay culture a deep dive into traditions</a> 
 <a href="https://myclassnews.it.com/discovering-asianpinay-a-unique-blend-of-asian-and-filipino/">discovering asianpinay a unique blend of asian and filipino</a> 
 <a href="https://myclassnews.it.com/discovering-the-best-online-guides-reviews-and-how-tos-for-e-34-1/">discovering the best online guides reviews and how tos for e</a> 
+<a href="https://myclassnews.it.com/essential-guides-and-how-tos-for-government-services-in-bang-34-1/">essential guides and how tos for government services in bang</a> 
 <a href="https://myclassnews.it.com/essential-guides-reviews-and-how-tos-for-everyday-services-a-34-1/">essential guides reviews and how tos for everyday services a</a> 
 <a href="https://myclassnews.it.com/essential-guides-reviews-and-how-tos-top-independent-news-an-34-1/">essential guides reviews and how tos top independent news an</a> 
 <a href="https://myclassnews.it.com/essential-guides-reviews-how-tos-for-aspiring-authors-from-i-34-1/">essential guides reviews how tos for aspiring authors from i</a> 
@@ -480,6 +501,7 @@
 <a href="https://myclassnews.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-34-1/">mastering guides reviews how tos your ultimate resource 34 1</a> 
 <a href="https://myclassnews.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-34-1-2/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://myclassnews.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-34-1-3/">mastering guides reviews how tos your ultimate resource roun</a> 
+<a href="https://myclassnews.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-34-1-4/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://myclassnews.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-34-1/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://myclassnews.it.com/mastering-information-guides-reviews-how-tos-for-the-modern-34-1/">mastering information guides reviews how tos for the modern </a> 
 <a href="https://myclassnews.it.com/mastering-marketing-seo-growth-a-comprehensive-guide-34-2/">mastering marketing seo growth a comprehensive guide 34 2</a> 
@@ -780,25 +802,3 @@
 <a href="https://myfitbodygoals.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
 <a href="https://myfitbodygoals.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://myfitbodygoals.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-10/">common questions answered 10</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-11/">common questions answered 11</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-12/">common questions answered 12</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-13/">common questions answered 13</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-14/">common questions answered 14</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-15/">common questions answered 15</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-16/">common questions answered 16</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-17/">common questions answered 17</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-18/">common questions answered 18</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-19/">common questions answered 19</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-2/">common questions answered 2</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-20/">common questions answered 20</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-21/">common questions answered 21</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-22/">common questions answered 22</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-6/">common questions answered 6</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-7/">common questions answered 7</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-8/">common questions answered 8</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://myfitbodygoals.com/common-questions-answered/">common questions answered</a> 
