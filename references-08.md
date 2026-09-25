@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://bandemusic.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://bandemusic.com/how-to-spot-low-quality-content-online-and-why-it-matters-2/">how to spot low quality content online and why it matters 2</a> 
+<a href="https://bandemusic.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://bandemusic.com/how-to-stay-informed-with-reliable-news-sources-in-a-digital/">how to stay informed with reliable news sources in a digital</a> 
+<a href="https://bandemusic.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://bandemusic.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://bandemusic.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://bandemusic.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
 <a href="https://bandemusic.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
 <a href="https://bandemusic.com/leveraging-technology-for-enhanced-productivity-apps-and-too/">leveraging technology for enhanced productivity apps and too</a> 
 <a href="https://bandemusic.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
@@ -794,11 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/what-makes-an-explainer-article-genuinely-useful-and-why-it-matters/">what makes an explainer article genuinely useful and why it </a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-makes-an-explainer-article-genuinely-useful-explained-simply/">what makes an explainer article genuinely useful explained s</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-how-to-evaluate-online-reviews-and-recommendations/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-understanding-how-search-engines-rank-pages/">what to know about understanding how search engines rank pag</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them-6a13a6ec/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 

@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://alcobar85.xyz/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
+<a href="https://alcobar85.xyz/how-to-safely-clean-your-phone-speaker/">how to safely clean your phone speaker</a> 
 <a href="https://alcobar85.xyz/how-to-spot-low-quality-content-online-a-practical-guide-2/">how to spot low quality content online a practical guide 2</a> 
 <a href="https://alcobar85.xyz/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
 <a href="https://alcobar85.xyz/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
@@ -434,6 +436,7 @@
 <a href="https://algiamedical.com/navigating-the-web-a-practical-guide-to-reliable-tech-conten-77-7/">navigating the web a practical guide to reliable tech conten</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-practical-guide-to-trustworthy-tech-con-77-7-2/">navigating the web a practical guide to trustworthy tech con</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-practical-guide-to-trustworthy-tech-con-77-7/">navigating the web a practical guide to trustworthy tech con</a> 
+<a href="https://algiamedical.com/navigating-the-web-a-practical-guide-to-valuable-online-reso-77-7/">navigating the web a practical guide to valuable online reso</a> 
 <a href="https://algiamedical.com/navigating-the-web-habits-and-skills-for-smart-internet-read-77-7/">navigating the web habits and skills for smart internet read</a> 
 <a href="https://algiamedical.com/navigating-the-web-mastering-tech-content-and-digital-litera-77-7/">navigating the web mastering tech content and digital litera</a> 
 <a href="https://algiamedical.com/navigating-the-web-tech-and-content-a-comprehensive-guide-77-7/">navigating the web tech and content a comprehensive guide 77</a> 
@@ -761,6 +764,7 @@
 <a href="https://alientapereviews.com/marketing-seo-growth-essential-strategies-for-business-succe-78-8/">marketing seo growth essential strategies for business succe</a> 
 <a href="https://alientapereviews.com/marketing-seo-growth-strategies-for-success-in-the-digital-a-78-3/">marketing seo growth strategies for success in the digital a</a> 
 <a href="https://alientapereviews.com/master-business-finance-productivity-a-comprehensive-guide-t-78-9/">master business finance productivity a comprehensive guide t</a> 
+<a href="https://alientapereviews.com/master-marketing-seo-growth-top-online-resources-tools-78-8/">master marketing seo growth top online resources tools 78 8</a> 
 <a href="https://alientapereviews.com/master-smart-reading-online-guides-reviews-how-tos-for-savvy-78-7/">master smart reading online guides reviews how tos for savvy</a> 
 <a href="https://alientapereviews.com/master-the-art-of-budget-travel-cheap-flights-smart-booking-78-10/">master the art of budget travel cheap flights smart booking </a> 
 <a href="https://alientapereviews.com/master-the-art-of-online-reading-boost-your-digital-literacy-78-8/">master the art of online reading boost your digital literacy</a> 
@@ -798,7 +802,3 @@
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-essential-reading-an-78-9/">mastering business finance productivity essential reading an</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-essential-skills-for-78-9-2/">mastering business finance productivity essential skills for</a> 
 <a href="https://alientapereviews.com/mastering-business-finance-productivity-essential-skills-for-78-9/">mastering business finance productivity essential skills for</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-essential-web-skills-78-9/">mastering business finance productivity essential web skills</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-in-the-digital-age-78-9-2/">mastering business finance productivity in the digital age 7</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-in-the-digital-age-78-9-3/">mastering business finance productivity in the digital age 7</a> 
-<a href="https://alientapereviews.com/mastering-business-finance-productivity-in-the-digital-age-78-9-4/">mastering business finance productivity in the digital age 7</a> 
