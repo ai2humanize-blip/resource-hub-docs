@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://cbdpuffbars.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://cbdpuffbars.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://cbdpuffbars.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://cbdpuffbars.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://cbdpuffbars.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://cbdpuffbars.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://cbdpuffbars.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://cbdpuffbars.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://cbdpuffbars.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-a-quick-guide-2/">how to fact check something in five minutes a quick guide 2</a> 
+<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-the-basics-2/">how to fact check something in five minutes the basics 2</a> 
+<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
 <a href="https://cbdpuffbars.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://cbdpuffbars.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
 <a href="https://cbdpuffbars.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
@@ -784,21 +802,3 @@
 <a href="https://cmdslot.xyz/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
 <a href="https://cmdslot.xyz/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
 <a href="https://cmdslot.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://cmdslot.xyz/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://cmdslot.xyz/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
-<a href="https://cmdslot.xyz/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://cmdslot.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://cmdslot.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://cmdslot.xyz/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://cmdslot.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://cmdslot.xyz/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://cnlawblog.jpn.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
-<a href="https://cnlawblog.jpn.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://cnlawblog.jpn.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 

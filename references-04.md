@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://alcobar85.xyz/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://alcobar85.xyz/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://alcobar85.xyz/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://alcobar85.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://alcobar85.xyz/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
+<a href="https://alcobar85.xyz/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
 <a href="https://alcobar85.xyz/oxpoll-cc-resource-1-2/">oxpoll cc resource 1 2</a> 
 <a href="https://alcobar85.xyz/oxpoll-cc-resource-1-3/">oxpoll cc resource 1 3</a> 
 <a href="https://alcobar85.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
@@ -409,11 +415,14 @@
 <a href="https://algiamedical.com/navigating-the-modern-news-landscape-insights-on-business-fi-77-10/">navigating the modern news landscape insights on business fi</a> 
 <a href="https://algiamedical.com/navigating-the-modern-news-landscape-marketing-seo-and-growt-77-9/">navigating the modern news landscape marketing seo and growt</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-comprehensive-guide-to-reliable-tech-co-77-7/">navigating the web a comprehensive guide to reliable tech co</a> 
+<a href="https://algiamedical.com/navigating-the-web-a-comprehensive-guide-to-tech-content-and-77-7/">navigating the web a comprehensive guide to tech content and</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-curated-guide-to-essential-online-resou-77-7-2/">navigating the web a curated guide to essential online resou</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-curated-guide-to-essential-online-resou-77-7/">navigating the web a curated guide to essential online resou</a> 
+<a href="https://algiamedical.com/navigating-the-web-a-curated-guide-to-essential-tech-content-77-7-2/">navigating the web a curated guide to essential tech content</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-curated-guide-to-essential-tech-content-77-7/">navigating the web a curated guide to essential tech content</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-curated-guide-to-tech-content-and-usefu-77-7/">navigating the web a curated guide to tech content and usefu</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-practical-guide-to-essential-online-res-77-7/">navigating the web a practical guide to essential online res</a> 
+<a href="https://algiamedical.com/navigating-the-web-a-practical-guide-to-reliable-tech-conten-77-7/">navigating the web a practical guide to reliable tech conten</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-practical-guide-to-trustworthy-tech-con-77-7-2/">navigating the web a practical guide to trustworthy tech con</a> 
 <a href="https://algiamedical.com/navigating-the-web-a-practical-guide-to-trustworthy-tech-con-77-7/">navigating the web a practical guide to trustworthy tech con</a> 
 <a href="https://algiamedical.com/navigating-the-web-habits-and-skills-for-smart-internet-read-77-7/">navigating the web habits and skills for smart internet read</a> 
@@ -793,12 +802,3 @@
 <a href="https://alientapereviews.com/mastering-digital-skills-top-online-resources-professional-c-78-10/">mastering digital skills top online resources professional c</a> 
 <a href="https://alientapereviews.com/mastering-digital-tools-online-resources-a-comprehensive-gui-78-10/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://alientapereviews.com/mastering-digital-tools-online-resources-a-comprehensive-gui-78-5/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://alientapereviews.com/mastering-digital-tools-online-resources-for-smarter-news-co-78-10/">mastering digital tools online resources for smarter news co</a> 
-<a href="https://alientapereviews.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-78-7/">mastering guides reviews and how tos a comprehensive roundup</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-78-8-2/">mastering marketing seo and growth a comprehensive guide 78 </a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-78-8-3/">mastering marketing seo and growth a comprehensive guide 78 </a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-78-8-4/">mastering marketing seo and growth a comprehensive guide 78 </a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-78-8/">mastering marketing seo and growth a comprehensive guide 78 </a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-and-growth-in-the-digital-age-78-8/">mastering marketing seo and growth in the digital age 78 8</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-10/">mastering marketing seo growth a comprehensive guide 78 8 10</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-growth-a-comprehensive-guide-78-8-11/">mastering marketing seo growth a comprehensive guide 78 8 11</a> 

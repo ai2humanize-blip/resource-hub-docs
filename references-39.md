@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://oceaniccleaningservice.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://oceaniccleaningservice.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://oceaniccleaningservice.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://oceaniccleaningservice.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://oceaniccleaningservice.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://oceaniccleaningservice.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://okbetcc.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://okbetcc.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://okbetcc.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://okbetcc.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://okbetcc.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://okbetcc.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://okbetcc.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://okbetcc.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://okbetcc.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://okbetcc.xyz/hello-world/">hello world</a> 
+<a href="https://okbetcc.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://okbetcc.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://okbetcc.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://okbetcc.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://okbetcc.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://okbetcc.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://okbetcc.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://optimistindia.codeberg.page/">optimistindia.codeberg.page</a> 
@@ -781,24 +802,3 @@
 <a href="https://phlwin1.xyz/tlt-ng-resource-2/">tlt ng resource 2</a> 
 <a href="https://phlwin1.xyz/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
 <a href="https://phlwin1.xyz/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
-<a href="https://phlwin1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://phlwin1.xyz/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://phlwin1.xyz/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://phlwin1.xyz/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
-<a href="https://phlwin1.xyz/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://phlwin1.xyz/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
-<a href="https://phlwin1.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
-<a href="https://phlwin1.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://phlwin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://phlwin1.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://phlwin1.xyz/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://phlwin1.xyz/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
-<a href="https://phspin1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://phspin1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://phspin1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://phspin1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://phspin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://phspin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://phspin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://phspin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://phspin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 

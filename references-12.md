@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cmdslot.xyz/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://cmdslot.xyz/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
+<a href="https://cmdslot.xyz/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://cmdslot.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://cmdslot.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://cmdslot.xyz/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cmdslot.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cmdslot.xyz/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://cnlawblog.jpn.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cnlawblog.jpn.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cnlawblog.jpn.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cnlawblog.jpn.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cnlawblog.jpn.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
@@ -784,21 +802,3 @@
 <a href="https://crediblenews24.com/navigating-the-latest-news-landscape-in-depth-analysis-and-t/">navigating the latest news landscape in depth analysis and t</a> 
 <a href="https://crediblenews24.com/navigating-the-modern-job-market-strategies-for-career-growt/">navigating the modern job market strategies for career growt</a> 
 <a href="https://crediblenews24.com/navigating-the-modern-news-landscape-tools-trends-and-ai-ins-86-7/">navigating the modern news landscape tools trends and ai ins</a> 
-<a href="https://crediblenews24.com/navigating-the-modern-news-landscape-web-tech-content-insigh-86-8/">navigating the modern news landscape web tech content insigh</a> 
-<a href="https://crediblenews24.com/navigating-the-world-of-business-finance-and-productivity-in-86-6/">navigating the world of business finance and productivity in</a> 
-<a href="https://crediblenews24.com/navigating-today-s-news-landscape-digital-tools-online-resou-86-7/">navigating today s news landscape digital tools online resou</a> 
-<a href="https://crediblenews24.com/navigating-web-tech-content-a-comprehensive-guide-for-crypto-86-8/">navigating web tech content a comprehensive guide for crypto</a> 
-<a href="https://crediblenews24.com/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://crediblenews24.com/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://crediblenews24.com/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://crediblenews24.com/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste/">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
-<a href="https://crediblenews24.com/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://crediblenews24.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://crediblenews24.com/recognizing-credible-experts-online-a-quick-guide-2/">recognizing credible experts online a quick guide 2</a> 
-<a href="https://crediblenews24.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://crediblenews24.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://crediblenews24.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-86-10/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://crediblenews24.com/revolutionizing-daily-life-mastering-apps-for-productivity-l-86-9/">revolutionizing daily life mastering apps for productivity l</a> 
-<a href="https://crediblenews24.com/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
-<a href="https://crediblenews24.com/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
-<a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 

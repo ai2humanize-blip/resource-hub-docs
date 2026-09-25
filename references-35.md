@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://modernwritingdesk.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://modernwritingdesk.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://modernwritingdesk.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://modernwritingdesk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://modernwritingdesk.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://modernwritingdesk.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://modernwritingdesk.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://modernwritingdesk.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://modernwritingdesk.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://modernwritingdesk.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://modernwritingdesk.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://modernwritingdesk.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
+<a href="https://modernwritingdesk.com/how-to-find-balanced-coverage-of-a-topic-2/">how to find balanced coverage of a topic 2</a> 
+<a href="https://modernwritingdesk.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
+<a href="https://modernwritingdesk.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://modernwritingdesk.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
+<a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
 <a href="https://modernwritingdesk.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
 <a href="https://modernwritingdesk.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://modernwritingdesk.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
@@ -784,21 +802,3 @@
 <a href="https://montanagreenpower.org/mastering-the-art-of-business-personal-finance-and-marketing/">mastering the art of business personal finance and marketing</a> 
 <a href="https://montanagreenpower.org/mastering-the-intersection-of-business-personal-finance-and/">mastering the intersection of business personal finance and</a> 
 <a href="https://montanagreenpower.org/mastering-timepieces-reviews-guides-how-tos-for-the-perfect-111-9/">mastering timepieces reviews guides how tos for the perfect </a> 
-<a href="https://montanagreenpower.org/maximizing-your-kitchen-space-innovative-storage-solutions-f/">maximizing your kitchen space innovative storage solutions f</a> 
-<a href="https://montanagreenpower.org/maximizing-your-website-s-seo-potential-a-comprehensive-guid/">maximizing your website s seo potential a comprehensive guid</a> 
-<a href="https://montanagreenpower.org/navigating-career-changes-and-growth-with-digital-tools-onli-111-7/">navigating career changes and growth with digital tools onli</a> 
-<a href="https://montanagreenpower.org/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://montanagreenpower.org/navigating-the-complex-world-of-current-news-analysis-trends/">navigating the complex world of current news analysis trends</a> 
-<a href="https://montanagreenpower.org/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon/">navigating the crypto landscape bitcoin blockchain and beyon</a> 
-<a href="https://montanagreenpower.org/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://montanagreenpower.org/navigating-the-current-news-landscape-expert-insights-and-an/">navigating the current news landscape expert insights and an</a> 
-<a href="https://montanagreenpower.org/navigating-the-digital-world-essential-apps-for-modern-life/">navigating the digital world essential apps for modern life</a> 
-<a href="https://montanagreenpower.org/navigating-the-ever-changing-landscape-of-news-consumption-i/">navigating the ever changing landscape of news consumption i</a> 
-<a href="https://montanagreenpower.org/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
-<a href="https://montanagreenpower.org/navigating-the-future-of-finance-cryptocurrency-bitcoin-and/">navigating the future of finance cryptocurrency bitcoin and</a> 
-<a href="https://montanagreenpower.org/navigating-the-future-of-marketing-seo-growth-strategies-for-111-10/">navigating the future of marketing seo growth strategies for</a> 
-<a href="https://montanagreenpower.org/navigating-the-future-of-news-current-trends-and-expert-anal/">navigating the future of news current trends and expert anal</a> 
-<a href="https://montanagreenpower.org/navigating-the-future-understanding-bitcoin-blockchain-and-c/">navigating the future understanding bitcoin blockchain and c</a> 
-<a href="https://montanagreenpower.org/navigating-the-future-understanding-bitcoin-blockchain-and-t/">navigating the future understanding bitcoin blockchain and t</a> 
-<a href="https://montanagreenpower.org/navigating-the-latest-trends-in-news-consumption-a-deep-dive/">navigating the latest trends in news consumption a deep dive</a> 
-<a href="https://montanagreenpower.org/navigating-the-modern-workplace-essential-jobs-and-career-ad/">navigating the modern workplace essential jobs and career ad</a> 

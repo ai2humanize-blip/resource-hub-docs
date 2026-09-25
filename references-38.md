@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://newswada.com/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
+<a href="https://newswada.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://newswada.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://newswada.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://newswada.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://newswada.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://newswada.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
+<a href="https://newswada.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill-2/">what to know about how to use the web to learn a new skill 2</a> 
+<a href="https://newswada.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://newswada.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://newswada.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://newswada.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://newswada.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://newswada.com/what-to-look-for-in-a-good-news-website-the-basics-2/">what to look for in a good news website the basics 2</a> 
+<a href="https://newswada.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://newswada.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://newswada.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
+<a href="https://newswada.com/why-context-matters-when-reading-online-3/">why context matters when reading online 3</a> 
+<a href="https://newswada.com/why-context-matters-when-reading-online-a-quick-guide-2/">why context matters when reading online a quick guide 2</a> 
+<a href="https://newswada.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
+<a href="https://newswada.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://newswada.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://newswada.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://newswada.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
@@ -781,24 +802,3 @@
 <a href="https://oceaniccleaningservice.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
 <a href="https://oceaniccleaningservice.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
 <a href="https://oceaniccleaningservice.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://oceaniccleaningservice.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://oceaniccleaningservice.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://oceaniccleaningservice.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://oceaniccleaningservice.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://oceaniccleaningservice.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://oceaniccleaningservice.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://okbetcc.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://okbetcc.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://okbetcc.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://okbetcc.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://okbetcc.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://okbetcc.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://okbetcc.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://okbetcc.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://okbetcc.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://okbetcc.xyz/hello-world/">hello world</a> 
-<a href="https://okbetcc.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://okbetcc.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://okbetcc.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://okbetcc.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://okbetcc.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 

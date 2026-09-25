@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://casacours.uk.com/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
+<a href="https://casacours.uk.com/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
+<a href="https://casacours.uk.com/how-to-keep-clean-auditable-cryptocurrency-transaction-recor/">how to keep clean auditable cryptocurrency transaction recor</a> 
+<a href="https://casacours.uk.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://casacours.uk.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
+<a href="https://casacours.uk.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
+<a href="https://casacours.uk.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
+<a href="https://casacours.uk.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://casacours.uk.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://casacours.uk.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
+<a href="https://casacours.uk.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://casacours.uk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://casacours.uk.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://casacours.uk.com/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
+<a href="https://casacours.uk.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://casacours.uk.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
+<a href="https://casacours.uk.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
+<a href="https://casacours.uk.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
 <a href="https://casacours.uk.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
 <a href="https://casacours.uk.com/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
 <a href="https://casacours.uk.com/licensing-and-player-protections-in-regulated-gambling-marke/">licensing and player protections in regulated gambling marke</a> 
@@ -784,21 +802,3 @@
 <a href="https://cbdpuffbars.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype-2/">how to avoid misinformation and hype 2</a> 
 <a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://cbdpuffbars.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
-<a href="https://cbdpuffbars.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://cbdpuffbars.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
-<a href="https://cbdpuffbars.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://cbdpuffbars.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://cbdpuffbars.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://cbdpuffbars.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
-<a href="https://cbdpuffbars.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://cbdpuffbars.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-a-quick-guide-2/">how to fact check something in five minutes a quick guide 2</a> 
-<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
-<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-the-basics-2/">how to fact check something in five minutes the basics 2</a> 
-<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://cbdpuffbars.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
