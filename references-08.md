@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://bandemusic.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://bandemusic.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig-2/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://bandemusic.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://bandemusic.com/harnessing-ai-for-creative-inspiration-a-new-era-for-digital/">harnessing ai for creative inspiration a new era for digital</a> 
+<a href="https://bandemusic.com/how-ai-driven-apps-are-revolutionizing-everyday-life/">how ai driven apps are revolutionizing everyday life</a> 
+<a href="https://bandemusic.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
+<a href="https://bandemusic.com/how-html5-revolutionized-casual-browser-gaming-for-business-81-6/">how html5 revolutionized casual browser gaming for business </a> 
+<a href="https://bandemusic.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://bandemusic.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
@@ -789,16 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/the-ultimate-guide-to-choosing-the-best-coffee-beans-for-your-brew/">the ultimate guide to choosing the best coffee beans for you</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-ultimate-guide-to-choosing-the-perfect-watch-for-any-occasion/">the ultimate guide to choosing the perfect watch for any occ</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://boostelearning.mataroa.blog/blog/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-bitcoin-and-ethereum-price-trends-a-practical-guide/">understanding bitcoin and ethereum price trends a practical </a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginners-guide-to-the-future-of-finance/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-061cea18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-43a213b8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-6be561ef/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-72ff2d8d/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-7b84f9c2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-7f6a4e81/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-aa899214/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-d9939c88/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-f32abbdb/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-3ebc0384/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

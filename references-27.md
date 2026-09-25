@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmZwLgdmcN3G4HfZEraMYUnPAFrMn2rdKS3Af6KRo1YH8c">QmZwLgdmcN3G4HfZEraMYUnPAFrMn2rdKS3Af6KRo1YH8c</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaG75KtPcMEpRButxKD9yUfdq7hnLXR1mu8PdG7fwhxeQ">QmaG75KtPcMEpRButxKD9yUfdq7hnLXR1mu8PdG7fwhxeQ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaMiM2TiHpr9qDSUbo14Em9XizoQYwFXPfHjk3uCpMGay">QmaMiM2TiHpr9qDSUbo14Em9XizoQYwFXPfHjk3uCpMGay</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaSN2JxDLct4BmMMGEYNoqBpCvY1RusKjZgxTewuC3rmW">QmaSN2JxDLct4BmMMGEYNoqBpCvY1RusKjZgxTewuC3rmW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaSxWw3G2H4TrUdbTyeV37efFLwHSkkvuKhbd6Hd6h4Q2">QmaSxWw3G2H4TrUdbTyeV37efFLwHSkkvuKhbd6Hd6h4Q2</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaVAJK3QpTKKpNZ2T47deFY2wKVsskwneQTezAK5bN5d7">QmaVAJK3QpTKKpNZ2T47deFY2wKVsskwneQTezAK5bN5d7</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmapR825Ec8xQRLmSWaBMQ66XihWvQnqvPrzvp98GEhqw7">QmapR825Ec8xQRLmSWaBMQ66XihWvQnqvPrzvp98GEhqw7</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmapfFbkLpES7ha8HjqvpAon6k9MfnjMR9qUje7mRadFgb">QmapfFbkLpES7ha8HjqvpAon6k9MfnjMR9qUje7mRadFgb</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmarD8U4j4wfEP8GhosHaeab95UJxEVVykdfWF5RaH4Ju4">QmarD8U4j4wfEP8GhosHaeab95UJxEVVykdfWF5RaH4Ju4</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaskL7AMS7UKx66SJbfenKT9jcZMFegNJUTAUB2MiZ3EG">QmaskL7AMS7UKx66SJbfenKT9jcZMFegNJUTAUB2MiZ3EG</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmau7KrSAmso4LznwTDo1jpSxZ9PZe1huAbruSUz9Pohzd">Qmau7KrSAmso4LznwTDo1jpSxZ9PZe1huAbruSUz9Pohzd</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmb8osKgCEQqKm78W3s3CHv8SKXLURdkoXinuM73VjZJmt">Qmb8osKgCEQqKm78W3s3CHv8SKXLURdkoXinuM73VjZJmt</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbDLkW5w4wGW7aqVhiPscHAa7ME4JxXZkHE78wFrYktSn">QmbDLkW5w4wGW7aqVhiPscHAa7ME4JxXZkHE78wFrYktSn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbK11yFxC9oH4QiY5nFG4EhhKobMgyW9tyt4dMFdRRuiW">QmbK11yFxC9oH4QiY5nFG4EhhKobMgyW9tyt4dMFdRRuiW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbPDWu9oUKGrdqZSyogH7GXsg4J8kRQ8u1T8PaBjDNw3n">QmbPDWu9oUKGrdqZSyogH7GXsg4J8kRQ8u1T8PaBjDNw3n</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbXZ5JUJBZnNHaioh6axCfhaKLWcqDhfhhXDLmUYraYt2">QmbXZ5JUJBZnNHaioh6axCfhaKLWcqDhfhhXDLmUYraYt2</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbXoMvni9RjQXJ2DARU2TDw5cHtWD5VpaAEMiFR4YTYKi">QmbXoMvni9RjQXJ2DARU2TDw5cHtWD5VpaAEMiFR4YTYKi</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbiB4mrCbSCL4RCfgQbrCctBJi93GP4hpNKVCxwB5GA8X">QmbiB4mrCbSCL4RCfgQbrCctBJi93GP4hpNKVCxwB5GA8X</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf">QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6">QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496">Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW">Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW</a> 
@@ -783,22 +802,3 @@
 <a href="https://labmagickite.com/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
 <a href="https://labmagickite.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://labmagickite.com/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://labmagickite.com/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
-<a href="https://labmagickite.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://labmagickite.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://labmagickite.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://labmagickite.com/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
-<a href="https://labmagickite.com/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://labmagickite.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
-<a href="https://labmagickite.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://labmagickite.com/getting-recognizing-credible-experts-online-right-2/">getting recognizing credible experts online right 2</a> 
-<a href="https://labmagickite.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://labmagickite.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://labmagickite.com/getting-why-primary-sources-matter-and-how-to-find-them-righ-2/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://labmagickite.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://labmagickite.com/getting-why-primary-sources-matter-and-how-to-find-them-right/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://labmagickite.com/guides-reviews-how-tos-navigating-online-casinos-and-crypto-104-6/">guides reviews how tos navigating online casinos and crypto </a> 
-<a href="https://labmagickite.com/hogatoga/">hogatoga</a> 
-<a href="https://labmagickite.com/how-ai-and-machine-learning-are-revolutionizing-everyday-app/">how ai and machine learning are revolutionizing everyday app</a> 
-<a href="https://labmagickite.com/how-ai-driven-apps-are-transforming-our-daily-digital-intera/">how ai driven apps are transforming our daily digital intera</a> 
-<a href="https://labmagickite.com/how-ai-driven-news-aggregators-are-transforming-the-media-la/">how ai driven news aggregators are transforming the media la</a> 

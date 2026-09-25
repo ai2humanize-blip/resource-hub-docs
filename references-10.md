@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://captainjackinterview.com/wifi-keeps-disconnecting/">wifi keeps disconnecting</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
@@ -789,16 +802,3 @@
 <a href="https://cbdpuffbars.com/discover-the-best-independent-digital-tools-online-resources-84-9/">discover the best independent digital tools online resources</a> 
 <a href="https://cbdpuffbars.com/discovering-the-vibrant-world-of-independent-music-culture/">discovering the vibrant world of independent music culture</a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-a-comprehensive-gui-84-4/">essential digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-crypto-and-fina-84-9/">essential digital tools online resources for crypto and fina</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-cryptocurrency-84-4/">essential digital tools online resources for cryptocurrency </a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-financial-and-m-84-4/">essential digital tools online resources for financial and m</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-learning-and-st-84-4/">essential digital tools online resources for learning and st</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-lifelong-learni-84-4/">essential digital tools online resources for lifelong learni</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-modern-learning-84-4/">essential digital tools online resources for modern learning</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-modern-needs-84-4/">essential digital tools online resources for modern needs 84</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-modern-readers-84-4-2/">essential digital tools online resources for modern readers </a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-modern-readers-84-4/">essential digital tools online resources for modern readers </a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-modern-users-84-4/">essential digital tools online resources for modern users 84</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-navigating-the-84-4/">essential digital tools online resources for navigating the </a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-interne-84-4/">essential digital tools online resources for smarter interne</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-learnin-84-4/">essential digital tools online resources for smarter learnin</a> 

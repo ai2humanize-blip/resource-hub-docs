@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/mastering-personal-finance-for-business-growth-a-marketing-p/">mastering personal finance for business growth a marketing p</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/programmes-et-types-de-paris-pmu-bien-s-y-retrouver/">programmes et types de paris pmu bien s y retrouver</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/the-font-world/">the font world</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://madeleine-dore.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://madeleine-dore.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://madeleine-dore.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://madeleine-dore.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://madeleine-dore.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://madwirebuild.com/gindex.html">gindex</a> 
-<a href="https://madwirebuild.com/picks.html">picks</a> 
-<a href="https://magenta-arithmetic-409861.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-and-.html">understanding the impact of ai on modern news reporting and</a> 
-<a href="https://magenta-melba-e4a69c.netlify.app/professional-construction-network.html">professional construction network</a> 
-<a href="https://magenta-sprite-849eb9.netlify.app/making-sense-of-complex-topics-online-explained-simply.html">making sense of complex topics online explained simply</a> 
-<a href="https://magical-donut-ca7937.netlify.app/discovering-the-vibrant-world-of-asianpinay-a-deep-dive-into.html">discovering the vibrant world of asianpinay a deep dive into</a> 
-<a href="https://magicly.bio/1mother/A-curated-list-of-independent-websites">A curated list of independent websites</a> 
-<a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
-<a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
-<a href="https://magicly.bio/1mother/Independent-websites-worth-bookmarking-a-reading-list">Independent websites worth bookmarking a reading list</a> 
-<a href="https://magicly.bio/1mother/More-independent-publications-to-explore">More independent publications to explore</a> 
-<a href="https://magnificent-zabaione-cf1f35.netlify.app/a-simple-framework-for-researching-any-topic-online.html">a simple framework for researching any topic online</a> 
-<a href="https://marketingslave.com/a-beginner-s-guide-to-understanding-ai-image-generation/">a beginner s guide to understanding ai image generation</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://marketingslave.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 

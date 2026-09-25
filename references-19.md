@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://ezoterizm.com/web-tech-and-organic-living-expert-insights-and-holistic-hea-93-6/">web tech and organic living expert insights and holistic hea</a> 
+<a href="https://ezoterizm.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui-2/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://ezoterizm.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://ezoterizm.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://ezoterizm.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://ezoterizm.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://ezoterizm.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://ezoterizm.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://ezoterizm.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
+<a href="https://ezoterizm.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://ezoterizm.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://ezoterizm.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://ezoterizm.com/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
+<a href="https://ezoterizm.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://ezoterizm.com/why-explainer-journalism-matters-more-than-ever/">why explainer journalism matters more than ever</a> 
 <a href="https://ezoterizm.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
 <a href="https://ezoterizm.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://ezoterizm.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
@@ -365,6 +380,7 @@
 <a href="https://fabbusinesssolutions.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
 <a href="https://fabbusinesssolutions.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://fabulous-valkyrie-be860a.netlify.app/simple-habits-of-a-smart-internet-reader-a-practical-guide.html">simple habits of a smart internet reader a practical guide</a> 
+<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-bitcoin-gambling-what-you-need-to-know-27-5/">a beginner s guide to bitcoin gambling what you need to know</a> 
 <a href="https://fabulouspoetry.it.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
 <a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
@@ -786,19 +802,3 @@
 <a href="https://fabulouspoetry.it.com/navigating-the-future-of-news-marketing-seo-growth-in-2023-s-27-4/">navigating the future of news marketing seo growth in 2023 s</a> 
 <a href="https://fabulouspoetry.it.com/navigating-the-future-the-latest-trends-in-ai-and-machine-le/">navigating the future the latest trends in ai and machine le</a> 
 <a href="https://fabulouspoetry.it.com/navigating-the-intersection-of-marketing-seo-growth-for-busi-27-4/">navigating the intersection of marketing seo growth for busi</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-latest-news-landscape-expert-insights-and-ana/">navigating the latest news landscape expert insights and ana</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-latest-news-landscape-in-depth-analysis-and-e/">navigating the latest news landscape in depth analysis and e</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-modern-news-landscape-marketing-seo-and-growt-27-4/">navigating the modern news landscape marketing seo and growt</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-shifting-landscape-of-news-consumption-a-comp-27-4/">navigating the shifting landscape of news consumption a comp</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-shifting-tides-of-today-s-news-landscape-anal/">navigating the shifting tides of today s news landscape anal</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-web-for-business-finance-productivity-a-compr-27-5-2/">navigating the web for business finance productivity a compr</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-web-for-business-finance-productivity-a-compr-27-5/">navigating the web for business finance productivity a compr</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-web-for-business-finance-productivity-a-curat-27-5-2/">navigating the web for business finance productivity a curat</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-web-for-business-finance-productivity-a-curat-27-5-3/">navigating the web for business finance productivity a curat</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-web-for-business-finance-productivity-a-curat-27-5/">navigating the web for business finance productivity a curat</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-web-for-business-finance-productivity-a-pract-27-5/">navigating the web for business finance productivity a pract</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-web-for-business-finance-productivity-a-reade-27-5/">navigating the web for business finance productivity a reade</a> 
-<a href="https://fabulouspoetry.it.com/navigating-the-world-of-cryptocurrency-bitcoin-and-blockchai/">navigating the world of cryptocurrency bitcoin and blockchai</a> 
-<a href="https://fabulouspoetry.it.com/navigating-today-s-news-landscape-a-guide-to-staying-informe/">navigating today s news landscape a guide to staying informe</a> 
-<a href="https://fabulouspoetry.it.com/optimizing-your-online-experience-a-practical-guide-to-enhan-27-5/">optimizing your online experience a practical guide to enhan</a> 
-<a href="https://fabulouspoetry.it.com/oxpoll-cc-resource-1-2/">oxpoll cc resource 1 2</a> 

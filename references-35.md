@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://metromsk.se.net/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://metromsk.se.net/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://metromsk.se.net/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://modernwritingdesk.com/a-beginner-s-guide-to-understanding-ai-image-generation/">a beginner s guide to understanding ai image generation</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-making-sense-of-complex-topics-online-3/">a closer look at making sense of complex topics online 3</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-the-value-of-slow-careful-reading-3/">a closer look at the value of slow careful reading 3</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://modernwritingdesk.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://modernwritingdesk.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://modernwritingdesk.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
 <a href="https://modernwritingdesk.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://modernwritingdesk.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://modernwritingdesk.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -275,6 +296,7 @@
 <a href="https://modernwritingdesk.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://modernwritingdesk.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
 <a href="https://modernwritingdesk.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://moneynewsweb.co.in/a-beginner-s-guide-to-bitcoin-gambling-essential-digital-too-21-2/">a beginner s guide to bitcoin gambling essential digital too</a> 
 <a href="https://moneynewsweb.co.in/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource-2/">a closer look at how to bookmark and revisit useful resource</a> 
 <a href="https://moneynewsweb.co.in/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
 <a href="https://moneynewsweb.co.in/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
@@ -780,25 +802,3 @@
 <a href="https://montanagreenpower.org/common-questions-answered-20/">common questions answered 20</a> 
 <a href="https://montanagreenpower.org/common-questions-answered-21/">common questions answered 21</a> 
 <a href="https://montanagreenpower.org/common-questions-answered-22/">common questions answered 22</a> 
-<a href="https://montanagreenpower.org/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://montanagreenpower.org/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://montanagreenpower.org/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://montanagreenpower.org/common-questions-answered-6/">common questions answered 6</a> 
-<a href="https://montanagreenpower.org/common-questions-answered-7/">common questions answered 7</a> 
-<a href="https://montanagreenpower.org/common-questions-answered-8/">common questions answered 8</a> 
-<a href="https://montanagreenpower.org/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://montanagreenpower.org/common-questions-answered/">common questions answered</a> 
-<a href="https://montanagreenpower.org/comprehensive-guides-reviews-and-how-tos-for-every-interest-111-4/">comprehensive guides reviews and how tos for every interest </a> 
-<a href="https://montanagreenpower.org/comprehensive-guides-reviews-and-how-tos-for-modern-needs-111-4/">comprehensive guides reviews and how tos for modern needs 11</a> 
-<a href="https://montanagreenpower.org/consumer-tech-reviews/">consumer tech reviews</a> 
-<a href="https://montanagreenpower.org/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://montanagreenpower.org/digital-tools-online-resources-50-resources-worth-bookmarkin-111-7-2/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://montanagreenpower.org/digital-tools-online-resources-50-resources-worth-bookmarkin-111-7/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://montanagreenpower.org/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
-<a href="https://montanagreenpower.org/discovering-the-best-coffee-shops-a-guide-to-unearthing-hidd/">discovering the best coffee shops a guide to unearthing hidd</a> 
-<a href="https://montanagreenpower.org/elevate-your-health-and-wellness-with-these-organic-living-t/">elevate your health and wellness with these organic living t</a> 
-<a href="https://montanagreenpower.org/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://montanagreenpower.org/exploring-essential-digital-tools-online-resources-for-every-111-2/">exploring essential digital tools online resources for every</a> 
-<a href="https://montanagreenpower.org/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
-<a href="https://montanagreenpower.org/exploring-web-tech-content-from-online-casinos-to-crypto-new-111-3/">exploring web tech content from online casinos to crypto new</a> 
-<a href="https://montanagreenpower.org/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 

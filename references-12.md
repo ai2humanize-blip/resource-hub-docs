@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://clinquant-moonbeam-2b26e4.netlify.app/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon.html">navigating the crypto landscape bitcoin blockchain and beyon</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-makes-an-explainer-article-genuinely-useful/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://cmdslot.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cmdslot.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cmdslot.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cmdslot.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cmdslot.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
 <a href="https://cmdslot.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
@@ -789,16 +802,3 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-6/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-7/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-8/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-roun-86-6/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-2/">mastering business finance productivity essential skills for</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-3/">mastering business finance productivity essential skills for</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6/">mastering business finance productivity essential skills for</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-2/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-3/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-2/">mastering business finance productivity in the digital age a</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6/">mastering business finance productivity in the digital age a</a> 
