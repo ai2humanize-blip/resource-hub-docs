@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-4/">a closer look at how to avoid misinformation and hype 4</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opinion/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
+<a href="https://grouperfishingsecrets.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://grouperfishingsecrets.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://grouperfishingsecrets.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://grouperfishingsecrets.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://grouperfishingsecrets.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
+<a href="https://grouperfishingsecrets.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
 <a href="https://grouperfishingsecrets.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
 <a href="https://grouperfishingsecrets.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://grouperfishingsecrets.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -784,21 +802,3 @@
 <a href="https://heatherburrisphotography.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://heatherburrisphotography.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://heatherburrisphotography.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://heatherburrisphotography.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://heatherburrisphotography.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://heatherburrisphotography.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://heatherburrisphotography.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
-<a href="https://heatherburrisphotography.com/why-niche-blogs-still-matter-a-quick-guide-2/">why niche blogs still matter a quick guide 2</a> 
-<a href="https://heatherburrisphotography.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-explained-si-2/">why primary sources matter and how to find them explained si</a> 
-<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
-<a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://heatherburrisphotography.com/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
-<a href="https://hedaroibergroup.com/5-essential-steps-to-create-a-comprehensive-home-fire-safety/">5 essential steps to create a comprehensive home fire safety</a> 
-<a href="https://hedaroibergroup.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://hedaroibergroup.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://hedaroibergroup.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 

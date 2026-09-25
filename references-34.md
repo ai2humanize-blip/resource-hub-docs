@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://madeleine-dore.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-how-to-fact-check-something-in-five-minut-2/">what to know about how to fact check something in five minut</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://madeleine-dore.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://madeleine-dore.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://madeleine-dore.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://madeleine-dore.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://madeleine-dore.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://madeleine-dore.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
@@ -784,21 +802,3 @@
 <a href="https://metromsk.se.net/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://metromsk.se.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://metromsk.se.net/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://metromsk.se.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
-<a href="https://metromsk.se.net/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
-<a href="https://metromsk.se.net/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
-<a href="https://metromsk.se.net/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
-<a href="https://metromsk.se.net/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://metromsk.se.net/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://metromsk.se.net/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://metromsk.se.net/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://metromsk.se.net/what-to-look-for-in-a-good-news-website-a-practical-guide-2/">what to look for in a good news website a practical guide 2</a> 
-<a href="https://metromsk.se.net/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://metromsk.se.net/what-to-look-for-in-a-good-news-website-a-quick-guide-2/">what to look for in a good news website a quick guide 2</a> 
-<a href="https://metromsk.se.net/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://metromsk.se.net/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://metromsk.se.net/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://metromsk.se.net/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://metromsk.se.net/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://metromsk.se.net/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://metromsk.se.net/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 

@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://captainjackinterview.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://captainjackinterview.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://captainjackinterview.com/wifi-keeps-disconnecting/">wifi keeps disconnecting</a> 
@@ -784,21 +802,3 @@
 <a href="https://cbdpuffbars.com/choosing-the-perfect-watch-a-comprehensive-buying-guide/">choosing the perfect watch a comprehensive buying guide</a> 
 <a href="https://cbdpuffbars.com/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
 <a href="https://cbdpuffbars.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
-<a href="https://cbdpuffbars.com/comprehensive-guides-reviews-and-how-tos-for-tech-crypto-and-84-6/">comprehensive guides reviews and how tos for tech crypto and</a> 
-<a href="https://cbdpuffbars.com/comprehensive-guides-reviews-how-tos-your-ultimate-resource-84-6/">comprehensive guides reviews how tos your ultimate resource </a> 
-<a href="https://cbdpuffbars.com/comprehensive-roundup-guides-reviews-how-tos-for-every-inter-84-6/">comprehensive roundup guides reviews how tos for every inter</a> 
-<a href="https://cbdpuffbars.com/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
-<a href="https://cbdpuffbars.com/creating-online-polls-and-surveys-and-reading-results-what-t/">creating online polls and surveys and reading results what t</a> 
-<a href="https://cbdpuffbars.com/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://cbdpuffbars.com/cyberkannadig-the-future-of-web-tech-content-in-2026-84-5/">cyberkannadig the future of web tech content in 2026 84 5</a> 
-<a href="https://cbdpuffbars.com/decoding-news-trends-expert-guides-reviews-and-how-tos-for-2-84-6/">decoding news trends expert guides reviews and how tos for 2</a> 
-<a href="https://cbdpuffbars.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-84-7/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://cbdpuffbars.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://cbdpuffbars.com/discover-essential-digital-tools-online-resources-for-every-84-9/">discover essential digital tools online resources for every </a> 
-<a href="https://cbdpuffbars.com/discover-the-best-browser-games-digital-tools-for-endless-en-84-9/">discover the best browser games digital tools for endless en</a> 
-<a href="https://cbdpuffbars.com/discover-the-best-digital-tools-online-resources-for-every-n-84-9-2/">discover the best digital tools online resources for every n</a> 
-<a href="https://cbdpuffbars.com/discover-the-best-digital-tools-online-resources-for-every-n-84-9/">discover the best digital tools online resources for every n</a> 
-<a href="https://cbdpuffbars.com/discover-the-best-guides-reviews-how-tos-for-budget-travel-a-84-6/">discover the best guides reviews how tos for budget travel a</a> 
-<a href="https://cbdpuffbars.com/discover-the-best-independent-digital-tools-online-resources-84-9/">discover the best independent digital tools online resources</a> 
-<a href="https://cbdpuffbars.com/discovering-the-vibrant-world-of-independent-music-culture/">discovering the vibrant world of independent music culture</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-a-comprehensive-gui-84-4/">essential digital tools online resources a comprehensive gui</a> 
