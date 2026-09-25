@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://marketingslave.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://marketingslave.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://marketingslave.com/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
+<a href="https://marketingslave.com/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
+<a href="https://marketingslave.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://marketingslave.com/boosting-productivity-top-apps-for-managing-your-digital-lif/">boosting productivity top apps for managing your digital lif</a> 
+<a href="https://marketingslave.com/boosting-your-business-and-personal-finance-with-strategic-m/">boosting your business and personal finance with strategic m</a> 
+<a href="https://marketingslave.com/boosting-your-business-and-personal-finances-a-marketing-str/">boosting your business and personal finances a marketing str</a> 
+<a href="https://marketingslave.com/breaking-down-the-latest-news-trends-expert-analysis-and-key/">breaking down the latest news trends expert analysis and key</a> 
+<a href="https://marketingslave.com/breaking-down-today-s-top-news-analysis-and-insights-you-nee/">breaking down today s top news analysis and insights you nee</a> 
+<a href="https://marketingslave.com/breaking-down-today-s-top-news-stories-analysis-and-insights/">breaking down today s top news stories analysis and insights</a> 
+<a href="https://marketingslave.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://marketingslave.com/building-a-healthy-daily-reading-habit-explained-simply-2/">building a healthy daily reading habit explained simply 2</a> 
+<a href="https://marketingslave.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://marketingslave.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://marketingslave.com/business-finance-productivity-a-comprehensive-guide-for-succ-108-9/">business finance productivity a comprehensive guide for succ</a> 
+<a href="https://marketingslave.com/business-finance-productivity-key-strategies-for-success-in-108-4/">business finance productivity key strategies for success in </a> 
+<a href="https://marketingslave.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
 <a href="https://marketingslave.com/common-questions-answered-10/">common questions answered 10</a> 
 <a href="https://marketingslave.com/common-questions-answered-11/">common questions answered 11</a> 
 <a href="https://marketingslave.com/common-questions-answered-12/">common questions answered 12</a> 
@@ -784,21 +802,3 @@
 <a href="https://modernwritingdesk.com/business-finance-productivity-navigating-online-casinos-and-110-2/">business finance productivity navigating online casinos and </a> 
 <a href="https://modernwritingdesk.com/common-questions-answered-10/">common questions answered 10</a> 
 <a href="https://modernwritingdesk.com/common-questions-answered-11/">common questions answered 11</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-12/">common questions answered 12</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-13/">common questions answered 13</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-14/">common questions answered 14</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-15/">common questions answered 15</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-16/">common questions answered 16</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-17/">common questions answered 17</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-18/">common questions answered 18</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-19/">common questions answered 19</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-2/">common questions answered 2</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-20/">common questions answered 20</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-21/">common questions answered 21</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-22/">common questions answered 22</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-6/">common questions answered 6</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-7/">common questions answered 7</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-8/">common questions answered 8</a> 

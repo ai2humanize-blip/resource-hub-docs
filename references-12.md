@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cmdslot.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://cmdslot.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://cmdslot.xyz/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://cmdslot.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://cmdslot.xyz/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cmdslot.xyz/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://cmdslot.xyz/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cmdslot.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cmdslot.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
+<a href="https://cmdslot.xyz/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
+<a href="https://cmdslot.xyz/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
+<a href="https://cmdslot.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://cmdslot.xyz/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
+<a href="https://cmdslot.xyz/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
 <a href="https://cmdslot.xyz/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
 <a href="https://cmdslot.xyz/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
 <a href="https://cmdslot.xyz/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
@@ -784,21 +802,3 @@
 <a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-7/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-8/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7-9/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-digital-tools-online-resources-a-comprehensive-gui-86-7/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://crediblenews24.com/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-a-comprehensive-guide-86-10/">mastering marketing seo growth a comprehensive guide 86 10</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-86-5-2/">mastering marketing seo growth strategies for success 86 5 2</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-86-5/">mastering marketing seo growth strategies for success 86 5</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-the-latest-strategies-for-suc-86-10/">mastering marketing seo growth the latest strategies for suc</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-86-10/">mastering marketing seo growth your guide to building a succ</a> 
-<a href="https://crediblenews24.com/mastering-modern-fashion-navigating-2023-s-style-and-lifesty/">mastering modern fashion navigating 2023 s style and lifesty</a> 
-<a href="https://crediblenews24.com/mastering-online-reading-essential-digital-tools-resources-f-86-7/">mastering online reading essential digital tools resources f</a> 
-<a href="https://crediblenews24.com/mastering-personal-finance-a-practical-guide-to-financial-we/">mastering personal finance a practical guide to financial we</a> 
-<a href="https://crediblenews24.com/mastering-personal-finance-business-and-marketing-a-comprehe-86-6/">mastering personal finance business and marketing a comprehe</a> 
-<a href="https://crediblenews24.com/mastering-the-art-of-financial-management-for-small-business/">mastering the art of financial management for small business</a> 
-<a href="https://crediblenews24.com/mastering-the-art-of-personal-finance-a-business-and-marketi/">mastering the art of personal finance a business and marketi</a> 
-<a href="https://crediblenews24.com/mastering-the-art-of-personal-finance-for-small-business-suc/">mastering the art of personal finance for small business suc</a> 
-<a href="https://crediblenews24.com/mastering-the-digital-world-essential-tools-online-resources-86-7/">mastering the digital world essential tools online resources</a> 
-<a href="https://crediblenews24.com/mastering-time-management-boost-productivity-with-these-prov/">mastering time management boost productivity with these prov</a> 
-<a href="https://crediblenews24.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-86-8/">mastering web tech content a comprehensive guide for smart r</a> 

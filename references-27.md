@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn">QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE">QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt">QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX">QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G">QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdemBTMw2MWN9cMav8gz9a6o5sVqS6P12RwVAdHXyq39m">QmdemBTMw2MWN9cMav8gz9a6o5sVqS6P12RwVAdHXyq39m</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdhQWwvPNznD6ozEu2L6MS7NZLhX6st3UCWo12LgCE6J1">QmdhQWwvPNznD6ozEu2L6MS7NZLhX6st3UCWo12LgCE6J1</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdoH5KswDD2CcfeRKtBqionAr95xBSRe4zy6sxd6d6ykS">QmdoH5KswDD2CcfeRKtBqionAr95xBSRe4zy6sxd6d6ykS</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qme54TEw9878RjcFYzyD5WSE2RwGQn4457S3g5dbipQhaM">Qme54TEw9878RjcFYzyD5WSE2RwGQn4457S3g5dbipQhaM</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qme5NECJQmFbpENisU8eX3FuibPDvDFLgRqp4BvH71J1Aq">Qme5NECJQmFbpENisU8eX3FuibPDvDFLgRqp4BvH71J1Aq</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeCaG1rnePAwmvZ4rkBnE9sXRfNAm7oeKTfJT76D69USa">QmeCaG1rnePAwmvZ4rkBnE9sXRfNAm7oeKTfJT76D69USa</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeGjMYESFYdXk1QtebYnPNMW1yZ69KaceVKusNpvY89kp">QmeGjMYESFYdXk1QtebYnPNMW1yZ69KaceVKusNpvY89kp</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmebwZtdC1JhNASjFsfFhWzUpGmoS5uF6GwRfEwTemtzXV">QmebwZtdC1JhNASjFsfFhWzUpGmoS5uF6GwRfEwTemtzXV</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmecPBf5ENSm91H1ZpqvnjPYdMLT8rCs2u632DZj8vWyTZ">QmecPBf5ENSm91H1ZpqvnjPYdMLT8rCs2u632DZj8vWyTZ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeduHUVCBTqzhauVECfUPYGKFn9kFy9uQem9jyZ69AVsU">QmeduHUVCBTqzhauVECfUPYGKFn9kFy9uQem9jyZ69AVsU</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeozSeEjBEoN5HRqrvaHMT5iE9LpBSYEbdV1p5KGh8R4c">QmeozSeEjBEoN5HRqrvaHMT5iE9LpBSYEbdV1p5KGh8R4c</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmesEKnMXgZ98PiNmTxJqHnRrHvnv2akk8RVWxtdz22pQW">QmesEKnMXgZ98PiNmTxJqHnRrHvnv2akk8RVWxtdz22pQW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ">QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB">QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd">Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR">Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR</a> 
@@ -784,21 +802,3 @@
 <a href="https://labmagickite.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://labmagickite.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
 <a href="https://labmagickite.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://labmagickite.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://labmagickite.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://labmagickite.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
-<a href="https://labmagickite.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
-<a href="https://labmagickite.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://labmagickite.com/how-to-find-reliable-how-to-guides-2/">how to find reliable how to guides 2</a> 
-<a href="https://labmagickite.com/how-to-find-reliable-how-to-guides-3/">how to find reliable how to guides 3</a> 
-<a href="https://labmagickite.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://labmagickite.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://labmagickite.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://labmagickite.com/how-to-get-the-most-out-of-online-guides-the-basics-2/">how to get the most out of online guides the basics 2</a> 
-<a href="https://labmagickite.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://labmagickite.com/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://labmagickite.com/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://labmagickite.com/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://labmagickite.com/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://labmagickite.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://labmagickite.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 

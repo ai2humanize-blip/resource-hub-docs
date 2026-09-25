@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://ls-discover-the-be-msroww1b.firebaseapp.com/">ls-discover-the-be-msroww1b.firebaseapp.com</a> 
+<a href="https://ls-discover-the-be-msroww1b.web.app/">ls-discover-the-be-msroww1b.web.app</a> 
+<a href="https://ls-discover-the-magic-of-container-gardening-a-ms-imncw2y54a-uc.a.run.app">ls-discover-the-magic-of-container-gardening-a-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-discover-the-po-msrgkphb.firebaseapp.com/">ls-discover-the-po-msrgkphb.firebaseapp.com</a> 
+<a href="https://ls-discover-the-po-msrgkphb.web.app/">ls-discover-the-po-msrgkphb.web.app</a> 
+<a href="https://ls-discover-the-power-of-guest-posting-for-seo-ms-imncw2y54a-uc.a.run.app">ls-discover-the-power-of-guest-posting-for-seo-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-discover-the-secret-to-effortless-meal-prep-ms-imncw2y54a-uc.a.run.app">ls-discover-the-secret-to-effortless-meal-prep-ms-imncw2y54a-uc.a.run.app</a> 
+<a href="https://ls-discover-unique-event-ideas-and-planning-tips-for-m.ai2hmnz-rhub.workers.dev/">ls-discover-unique-event-ideas-and-planning-tips-for-m.ai2hmnz-rhub.workers.dev</a> 
+<a href="https://ls-discover-unique-msrpy3r7.firebaseapp.com/">ls-discover-unique-msrpy3r7.firebaseapp.com</a> 
 <a href="https://ls-discover-unique-msrpy3r7.web.app/">ls-discover-unique-msrpy3r7.web.app</a> 
 <a href="https://ls-discover-unique-msrqk346.firebaseapp.com/">ls-discover-unique-msrqk346.firebaseapp.com</a> 
 <a href="https://ls-discover-unique-msrqk346.web.app/">ls-discover-unique-msrqk346.web.app</a> 
@@ -784,21 +802,3 @@
 <a href="https://marketingslave.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
 <a href="https://marketingslave.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://marketingslave.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://marketingslave.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://marketingslave.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
-<a href="https://marketingslave.com/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
-<a href="https://marketingslave.com/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
-<a href="https://marketingslave.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://marketingslave.com/boosting-productivity-top-apps-for-managing-your-digital-lif/">boosting productivity top apps for managing your digital lif</a> 
-<a href="https://marketingslave.com/boosting-your-business-and-personal-finance-with-strategic-m/">boosting your business and personal finance with strategic m</a> 
-<a href="https://marketingslave.com/boosting-your-business-and-personal-finances-a-marketing-str/">boosting your business and personal finances a marketing str</a> 
-<a href="https://marketingslave.com/breaking-down-the-latest-news-trends-expert-analysis-and-key/">breaking down the latest news trends expert analysis and key</a> 
-<a href="https://marketingslave.com/breaking-down-today-s-top-news-analysis-and-insights-you-nee/">breaking down today s top news analysis and insights you nee</a> 
-<a href="https://marketingslave.com/breaking-down-today-s-top-news-stories-analysis-and-insights/">breaking down today s top news stories analysis and insights</a> 
-<a href="https://marketingslave.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://marketingslave.com/building-a-healthy-daily-reading-habit-explained-simply-2/">building a healthy daily reading habit explained simply 2</a> 
-<a href="https://marketingslave.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://marketingslave.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://marketingslave.com/business-finance-productivity-a-comprehensive-guide-for-succ-108-9/">business finance productivity a comprehensive guide for succ</a> 
-<a href="https://marketingslave.com/business-finance-productivity-key-strategies-for-success-in-108-4/">business finance productivity key strategies for success in </a> 
-<a href="https://marketingslave.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 

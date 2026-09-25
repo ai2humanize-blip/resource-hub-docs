@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://gbetlogin.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://gbetlogin.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://gbetlogin.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://gbetlogin.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://gbetlogin.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://gentle-kitten-b6b885.netlify.app/why-primary-sources-matter-and-how-to-find-them-a-quick-guid.html">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://genuine-nougat-24966b.netlify.app/discover-the-transformative-power-of-music-education-for-chi.html">discover the transformative power of music education for chi</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opinion/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy-2/">a closer look at how to tell if a website is trustworthy 2</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://getolive.org/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://getolive.org/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://getolive.org/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://getolive.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://getolive.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://getolive.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine-2/">a simple framework for researching any topic online explaine</a> 
 <a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
@@ -784,21 +802,3 @@
 <a href="https://globespro.it.com/optimistindia-revolutionizing-marketing-strategies-for-2024/">optimistindia revolutionizing marketing strategies for 2024</a> 
 <a href="https://globespro.it.com/optimizing-your-online-experience-a-practical-guide-to-enhan-29-7/">optimizing your online experience a practical guide to enhan</a> 
 <a href="https://globespro.it.com/oxpoll-cc-resource-1-2/">oxpoll cc resource 1 2</a> 
-<a href="https://globespro.it.com/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
-<a href="https://globespro.it.com/phone-storage-full-when-it-isn-t/">phone storage full when it isn t</a> 
-<a href="https://globespro.it.com/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
-<a href="https://globespro.it.com/prompt-you-are-writing-a-bylined-article-for-casino-utan-spe/">prompt you are writing a bylined article for casino utan spe</a> 
-<a href="https://globespro.it.com/pronostics-turf-gratuits-ce-qu-ils-valent-vraiment/">pronostics turf gratuits ce qu ils valent vraiment</a> 
-<a href="https://globespro.it.com/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
-<a href="https://globespro.it.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://globespro.it.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://globespro.it.com/reduce-mobile-data-use/">reduce mobile data use</a> 
-<a href="https://globespro.it.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://globespro.it.com/revolutionizing-daily-life-mastering-apps-for-productivity-l-29-6/">revolutionizing daily life mastering apps for productivity l</a> 
-<a href="https://globespro.it.com/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
-<a href="https://globespro.it.com/serpinsightlinkinsertion-overview-and-latest-updates/">serpinsightlinkinsertion overview and latest updates</a> 
-<a href="https://globespro.it.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
-<a href="https://globespro.it.com/stay-informed-in-the-digital-age-mastering-marketing-seo-gro-29-7/">stay informed in the digital age mastering marketing seo gro</a> 
-<a href="https://globespro.it.com/staying-informed-a-comprehensive-guide-to-today-s-top-news-a/">staying informed a comprehensive guide to today s top news a</a> 
-<a href="https://globespro.it.com/staying-informed-and-ahead-the-ultimate-guide-to-sports-news-29-6/">staying informed and ahead the ultimate guide to sports news</a> 
-<a href="https://globespro.it.com/staying-informed-and-engaged-navigating-the-worlds-of-market-29-7/">staying informed and engaged navigating the worlds of market</a> 

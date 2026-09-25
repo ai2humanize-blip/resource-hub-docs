@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://modernwritingdesk.com/common-questions-answered-12/">common questions answered 12</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-13/">common questions answered 13</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-14/">common questions answered 14</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-15/">common questions answered 15</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-16/">common questions answered 16</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-17/">common questions answered 17</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-18/">common questions answered 18</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-19/">common questions answered 19</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-2/">common questions answered 2</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-20/">common questions answered 20</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-21/">common questions answered 21</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-22/">common questions answered 22</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-3/">common questions answered 3</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-4/">common questions answered 4</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-5/">common questions answered 5</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-6/">common questions answered 6</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-7/">common questions answered 7</a> 
+<a href="https://modernwritingdesk.com/common-questions-answered-8/">common questions answered 8</a> 
 <a href="https://modernwritingdesk.com/common-questions-answered-9/">common questions answered 9</a> 
 <a href="https://modernwritingdesk.com/common-questions-answered/">common questions answered</a> 
 <a href="https://modernwritingdesk.com/comprehensive-guides-reviews-and-how-tos-navigating-legal-an-110-10/">comprehensive guides reviews and how tos navigating legal an</a> 
@@ -784,21 +802,3 @@
 <a href="https://montanagreenpower.org/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
 <a href="https://montanagreenpower.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://montanagreenpower.org/how-ai-is-transforming-the-news-industry-a-comprehensive-ana/">how ai is transforming the news industry a comprehensive ana</a> 
-<a href="https://montanagreenpower.org/how-ai-powered-apps-are-revolutionizing-everyday-life/">how ai powered apps are revolutionizing everyday life</a> 
-<a href="https://montanagreenpower.org/how-ai-powered-apps-are-transforming-our-daily-lives-and-wor/">how ai powered apps are transforming our daily lives and wor</a> 
-<a href="https://montanagreenpower.org/how-ai-powered-apps-are-transforming-our-daily-lives/">how ai powered apps are transforming our daily lives</a> 
-<a href="https://montanagreenpower.org/how-recent-economic-trends-are-shaping-the-future-of-global/">how recent economic trends are shaping the future of global</a> 
-<a href="https://montanagreenpower.org/how-strategic-personal-finance-management-can-boost-your-bus/">how strategic personal finance management can boost your bus</a> 
-<a href="https://montanagreenpower.org/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-2/">how to avoid misinformation and hype 2</a> 
-<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://montanagreenpower.org/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
-<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://montanagreenpower.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://montanagreenpower.org/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://montanagreenpower.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://montanagreenpower.org/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://montanagreenpower.org/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
