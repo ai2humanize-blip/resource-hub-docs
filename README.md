@@ -131,6 +131,9 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://bettingagescom.net/">bettingagescom.net</a> 
 <a href="https://robthecoins.xyz/">robthecoins.xyz</a> 
 <a href="https://phonespeakerclean.com/">phonespeakerclean.com</a> 
+<a href="https://dailyaqi.com/">dailyaqi.com</a> 
+<a href="https://dailynamaz.com/">dailynamaz.com</a> 
+<a href="https://urusid.com/">urusid.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -183,5 +186,6 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 48](references-48.md)
 - [Reference set 49](references-49.md)
 - [Reference set 50](references-50.md)
+- [Reference set 51](references-51.md)
 
-_39,952 curated references across 50 sets._
+_40,320 curated references across 51 sets._
