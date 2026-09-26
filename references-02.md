@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://55bmw1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://55bmw1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://55bmw1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://55bmw1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://55bmw1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -800,5 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-strategies-for-virginia-child-75-6/">mastering marketing seo growth strategies for virginia child</a> 
 <a href="https://agriculture-lawyer.com/mastering-news-consumption-guides-reviews-how-tos-for-inform-75-5/">mastering news consumption guides reviews how tos for inform</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-and-how-tos-for-75-5-2/">mastering online information guides reviews and how tos for </a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-and-how-tos-for-75-5/">mastering online information guides reviews and how tos for </a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-2/">mastering online information guides reviews how tos for savv</a> 

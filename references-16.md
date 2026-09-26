@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://debra--7365004c97c811f186481607ee4eb77e.web.val.run">debra--7365004c97c811f186481607ee4eb77e.web.val.run</a> 
+<a href="https://debra--784b567a97d111f191cc1607ee4eb77e.web.val.run">debra--784b567a97d111f191cc1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--8b5b763c97b811f1abb41607ee4eb77e.web.val.run">debra--8b5b763c97b811f1abb41607ee4eb77e.web.val.run</a> 
+<a href="https://debra--9702130497d311f19aaf1607ee4eb77e.web.val.run">debra--9702130497d311f19aaf1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--cd8d19d697ca11f1ad111607ee4eb77e.web.val.run">debra--cd8d19d697ca11f1ad111607ee4eb77e.web.val.run</a> 
+<a href="https://debra--d386f77697c511f196bf1607ee4eb77e.web.val.run">debra--d386f77697c511f196bf1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run">debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--ed851c8897d511f183d11607ee4eb77e.web.val.run">debra--ed851c8897d511f183d11607ee4eb77e.web.val.run</a> 
+<a href="https://decentralwatch.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://decentralwatch.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://decentralwatch.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://decentralwatch.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://decentralwatch.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://decentralwatch.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://decentralwatch.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://decentralwatch.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://decentralwatch.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://decentralwatch.xyz/hello-world/">hello world</a> 
+<a href="https://decentralwatch.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://decentralwatch.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://decentralwatch.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://decentralwatch.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://decentralwatch.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://decentralwatch.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://decentralwatch.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://deft-youtiao-307bfe.netlify.app/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide.html">how to choose the perfect watch a comprehensive buying guide</a> 
@@ -779,26 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/navigating-the-world-of-web-tech-and-content-a-comprehensive-guide-pm7">navigating the world of web tech and content a comprehensive</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-todays-news-landscape-strategies-for-clarity-truth-and-in-depth-analysis-3447">navigating todays news landscape strategies for clarity trut</a> 
 <a href="https://dev.to/ai2humanizeblip/navigating-web-tech-and-content-a-comprehensive-guide-for-entrepreneurs-4bdp">navigating web tech and content a comprehensive guide for en</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-and-content-a-comprehensive-roundup-2ccp">navigating web tech and content a comprehensive roundup 2ccp</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-and-content-a-comprehensive-roundup-for-enthusiasts-202l">navigating web tech and content a comprehensive roundup for </a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-and-content-from-online-casinos-to-independent-music-1ld7">navigating web tech and content from online casinos to indep</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-1n4i">navigating web tech content a comprehensive guide 1n4i</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-2023-mia">navigating web tech content a comprehensive guide for 2023 m</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-2026-1f2n">navigating web tech content a comprehensive guide for 2026 1</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-crypto-enthusiasts-449f">navigating web tech content a comprehensive guide for crypto</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-informed-readers-5052">navigating web tech content a comprehensive guide for inform</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-job-seekers-and-tech-enthusiasts-47m2">navigating web tech content a comprehensive guide for job se</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-modern-learners-p7l">navigating web tech content a comprehensive guide for modern</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-modern-readers-1ojo">navigating web tech content a comprehensive guide for modern</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-nigerians-1c9n">navigating web tech content a comprehensive guide for nigeri</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-savvy-readers-2hkb">navigating web tech content a comprehensive guide for savvy </a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-smart-readers-502n">navigating web tech content a comprehensive guide for smart </a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-the-modern-enthusiast-56g5">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-the-modern-reader-2a6f">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-the-modern-reader-59o8">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-the-modern-reader-cek">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-for-the-modern-reader-ok5">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-to-cryptocurrency-online-casinos-and-2f86">navigating web tech content a comprehensive guide to cryptoc</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-to-digital-proficiency-ogl">navigating web tech content a comprehensive guide to digital</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-to-informed-digital-consumption-2lok">navigating web tech content a comprehensive guide to informe</a> 
-<a href="https://dev.to/ai2humanizeblip/navigating-web-tech-content-a-comprehensive-guide-to-informed-reading-and-trustworthy-sources-1178">navigating web tech content a comprehensive guide to informe</a> 

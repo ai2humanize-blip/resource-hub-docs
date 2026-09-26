@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://ezoterizm.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://ezoterizm.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://ezoterizm.com/getting-how-to-avoid-misinformation-and-hype-right-2/">getting how to avoid misinformation and hype right 2</a> 
+<a href="https://ezoterizm.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://ezoterizm.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://ezoterizm.com/getting-how-to-get-the-most-out-of-online-guides-right-2/">getting how to get the most out of online guides right 2</a> 
+<a href="https://ezoterizm.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://ezoterizm.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig-2/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://ezoterizm.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://ezoterizm.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://ezoterizm.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://ezoterizm.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://ezoterizm.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://ezoterizm.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://ezoterizm.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
+<a href="https://ezoterizm.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://ezoterizm.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://ezoterizm.com/how-ai-driven-apps-are-transforming-our-daily-digital-experi/">how ai driven apps are transforming our daily digital experi</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-revolutionizing-daily-life-and-work/">how ai powered apps are revolutionizing daily life and work</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-privacy/">how ai powered apps are transforming daily life and privacy</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work-3/">how ai powered apps are transforming daily life and work 3</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
 <a href="https://ezoterizm.com/how-recent-economic-trends-are-shaping-global-currency-marke/">how recent economic trends are shaping global currency marke</a> 
 <a href="https://ezoterizm.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
@@ -779,26 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-18/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-19/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-2/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-20/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-21/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-22/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-23/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-24/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-25/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-26/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-27/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-28/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-29/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-3/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-30/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-31/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-4/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-5/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-6/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-7/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-8/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-9/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-curated-resour-27-5/">mastering business finance and productivity a curated resour</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-guide-to-smart-27-5/">mastering business finance and productivity a guide to smart</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-essential-insigh-27-5/">mastering business finance and productivity essential insigh</a> 
