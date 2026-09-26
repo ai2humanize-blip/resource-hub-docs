@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/">ls-boosting-produc-msro9yji.web.app</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/affordable-seo-services-for-small-businesses-a-2026-guide/">affordable seo services for small businesses a 2026 guide</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/crypto-security-protecting-your-wallet-keys-and-funds/">crypto security protecting your wallet keys and funds</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/cyber-safety-guides-worth-bookmarking/">cyber safety guides worth bookmarking</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/cybersecurity-awareness-and-digital-literacy-for-everyone/">cybersecurity awareness and digital literacy for everyone</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/digital-productivity-tools-and-habits-that-actually-work/">digital productivity tools and habits that actually work</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
@@ -781,24 +802,3 @@
 <a href="https://madeleine-dore.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
 <a href="https://madeleine-dore.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://madeleine-dore.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://madeleine-dore.com/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
-<a href="https://madeleine-dore.com/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
-<a href="https://madeleine-dore.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://madeleine-dore.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-o/">breaking down the latest news in depth analysis and expert o</a> 
-<a href="https://madeleine-dore.com/breaking-down-today-s-top-news-in-depth-analysis-and-expert/">breaking down today s top news in depth analysis and expert</a> 
-<a href="https://madeleine-dore.com/breaking-news-updates/">breaking news updates</a> 
-<a href="https://madeleine-dore.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
-<a href="https://madeleine-dore.com/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
-<a href="https://madeleine-dore.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://madeleine-dore.com/business-finance-productivity-key-strategies-for-success-in-107-10/">business finance productivity key strategies for success in </a> 
-<a href="https://madeleine-dore.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
-<a href="https://madeleine-dore.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
-<a href="https://madeleine-dore.com/common-questions-about-daily-prayer-times-answered/">common questions about daily prayer times answered</a> 
-<a href="https://madeleine-dore.com/common-questions-about-indonesian-documents-and-services-ans/">common questions about indonesian documents and services ans</a> 
-<a href="https://madeleine-dore.com/common-questions-about-the-air-quality-index-answered/">common questions about the air quality index answered</a> 
-<a href="https://madeleine-dore.com/common-questions-answered-10/">common questions answered 10</a> 
-<a href="https://madeleine-dore.com/common-questions-answered-11/">common questions answered 11</a> 
-<a href="https://madeleine-dore.com/common-questions-answered-12/">common questions answered 12</a> 
-<a href="https://madeleine-dore.com/common-questions-answered-13/">common questions answered 13</a> 
-<a href="https://madeleine-dore.com/common-questions-answered-14/">common questions answered 14</a> 
-<a href="https://madeleine-dore.com/common-questions-answered-16/">common questions answered 16</a> 

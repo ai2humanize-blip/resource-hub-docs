@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://55bmw1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://55bmw1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://55bmw1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://55bmw1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://55bmw1.xyz/hello-world/">hello world</a> 
@@ -689,6 +691,7 @@
 <a href="https://agriculture-lawyer.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://agriculture-lawyer.com/marketing-seo-growth-50-resources-worth-bookmarking-75-1/">marketing seo growth 50 resources worth bookmarking 75 1</a> 
 <a href="https://agriculture-lawyer.com/marketing-seo-growth-essential-strategies-for-business-succe-75-6/">marketing seo growth essential strategies for business succe</a> 
+<a href="https://agriculture-lawyer.com/master-guides-reviews-how-tos-your-ultimate-resource-for-lea-75-5/">master guides reviews how tos your ultimate resource for lea</a> 
 <a href="https://agriculture-lawyer.com/master-online-learning-guides-reviews-and-how-tos-for-succes-75-5/">master online learning guides reviews and how tos for succes</a> 
 <a href="https://agriculture-lawyer.com/master-online-research-guides-reviews-how-tos-for-smart-sear-75-5/">master online research guides reviews how tos for smart sear</a> 
 <a href="https://agriculture-lawyer.com/master-personal-professional-growth-with-online-guides-revie-75-5/">master personal professional growth with online guides revie</a> 
@@ -734,6 +737,7 @@
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5-5/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5-6/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5-7/">mastering guides reviews how tos your ultimate resource roun</a> 
+<a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5-8/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-75-10/">mastering guides reviews how tos your ultimate round up for </a> 
 <a href="https://agriculture-lawyer.com/mastering-information-guides-reviews-how-tos-for-the-modern-75-5/">mastering information guides reviews how tos for the modern </a> 
@@ -798,7 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-6/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-7/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-smar-75-5-2/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-smar-75-5-3/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-smar-75-5/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-the-75-5/">mastering online information guides reviews how tos for the </a> 

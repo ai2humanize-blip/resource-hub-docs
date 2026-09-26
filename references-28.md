@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://jiurui9.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://jiurui9.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://jiurui9.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://jiurui9.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://jiurui9.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://jiurui9.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://jiurui9.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://jiurui9.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://jiurui9.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://jiurui9.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://jiurui9.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
+<a href="https://jiurui9.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
 <a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
 <a href="https://jiurui9.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
 <a href="https://jiurui9.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
@@ -783,22 +802,3 @@
 <a href="https://landscape-paintings.net/understanding-the-intersection-of-marketing-seo-growth-a-com-105-6/">understanding the intersection of marketing seo growth a com</a> 
 <a href="https://landscape-paintings.net/understanding-the-latest-developments-in-ai-and-their-impact/">understanding the latest developments in ai and their impact</a> 
 <a href="https://landscape-paintings.net/understanding-the-latest-trends-in-news-consumption-a-deep-d/">understanding the latest trends in news consumption a deep d</a> 
-<a href="https://landscape-paintings.net/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://landscape-paintings.net/unleashing-the-ultimate-event-planning-guide-creative-ideas-105-7/">unleashing the ultimate event planning guide creative ideas </a> 
-<a href="https://landscape-paintings.net/unlocking-growth-mastering-marketing-seo-and-beyond-105-6/">unlocking growth mastering marketing seo and beyond 105 6</a> 
-<a href="https://landscape-paintings.net/unlocking-the-power-of-compound-interest-a-beginner-s-guide/">unlocking the power of compound interest a beginner s guide</a> 
-<a href="https://landscape-paintings.net/unlocking-the-power-of-emotional-intelligence-in-everyday-li/">unlocking the power of emotional intelligence in everyday li</a> 
-<a href="https://landscape-paintings.net/web-tech-content-50-resources-worth-bookmarking-105-9-2/">web tech content 50 resources worth bookmarking 105 9 2</a> 
-<a href="https://landscape-paintings.net/web-tech-content-50-resources-worth-bookmarking-105-9/">web tech content 50 resources worth bookmarking 105 9</a> 
-<a href="https://landscape-paintings.net/what-makes-an-explainer-article-genuinely-useful-2/">what makes an explainer article genuinely useful 2</a> 
-<a href="https://landscape-paintings.net/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://landscape-paintings.net/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://landscape-paintings.net/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://landscape-paintings.net/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://landscape-paintings.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
-<a href="https://landscape-paintings.net/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
-<a href="https://landscape-paintings.net/what-to-know-about-how-to-tell-explainer-journalism-from-opinion/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://landscape-paintings.net/what-to-know-about-the-difference-between-skimming-and-deep-reading-online/">what to know about the difference between skimming and deep </a> 
-<a href="https://landscape-paintings.net/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://landscape-paintings.net/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://landscape-paintings.net/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 

@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cybinxo.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://cybinxo.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://cybinxo.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://cybinxo.com/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
+<a href="https://cybinxo.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://cybinxo.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cybinxo.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://cybinxo.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://cybinxo.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://cybinxo.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://cybinxo.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cybinxo.com/guides-reviews-how-tos-50-resources-worth-bookmarking-87-3-2/">guides reviews how tos 50 resources worth bookmarking 87 3 2</a> 
+<a href="https://cybinxo.com/guides-reviews-how-tos-50-resources-worth-bookmarking-87-3-3/">guides reviews how tos 50 resources worth bookmarking 87 3 3</a> 
+<a href="https://cybinxo.com/guides-reviews-how-tos-50-resources-worth-bookmarking-87-3/">guides reviews how tos 50 resources worth bookmarking 87 3</a> 
 <a href="https://cybinxo.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://cybinxo.com/how-ai-powered-apps-are-transforming-everyday-life-2/">how ai powered apps are transforming everyday life 2</a> 
 <a href="https://cybinxo.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
@@ -788,17 +802,3 @@
 <a href="https://dellywoodfilms.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
 <a href="https://dellywoodfilms.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://dellywoodfilms.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://dellywoodfilms.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://dellywoodfilms.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://dellywoodfilms.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://dellywoodfilms.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://dellywoodfilms.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://dellywoodfilms.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://dellywoodfilms.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://dellywoodfilms.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://dellywoodfilms.com/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
-<a href="https://dellywoodfilms.com/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
-<a href="https://dellywoodfilms.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
-<a href="https://dellywoodfilms.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://dellywoodfilms.com/boost-your-business-and-personal-finances-with-strategic-mar-3/">boost your business and personal finances with strategic mar</a> 
