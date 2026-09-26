@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-find-reliable-how-to-guides-2/">a closer look at how to find reliable how to guides 2</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://cbdpuffbars.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://cbdpuffbars.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cbdpuffbars.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cbdpuffbars.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cbdpuffbars.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cbdpuffbars.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
 <a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
@@ -784,21 +802,3 @@
 <a href="https://cbdstent.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://cbdstent.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
 <a href="https://cbdstent.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://cbdstent.com/understanding-legal-news-how-to-stay-informed-and-make-sense/">understanding legal news how to stay informed and make sense</a> 
-<a href="https://cbdstent.com/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://cbdstent.com/unlocking-creativity-how-ai-powered-tools-revolutionize-digi/">unlocking creativity how ai powered tools revolutionize digi</a> 
-<a href="https://cbdstent.com/unlocking-success-business-finance-productivity-insights-85-7/">unlocking success business finance productivity insights 85 </a> 
-<a href="https://cbdstent.com/unlocking-the-future-how-bitcoin-and-blockchain-are-revoluti/">unlocking the future how bitcoin and blockchain are revoluti</a> 
-<a href="https://cbdstent.com/unlocking-the-future-transforming-your-digital-life-with-ai-85-8/">unlocking the future transforming your digital life with ai </a> 
-<a href="https://cbdstent.com/unlocking-the-secrets-of-effective-sports-news-and-analysis/">unlocking the secrets of effective sports news and analysis</a> 
-<a href="https://cbdstent.com/unpacking-the-latest-trends-in-news-consumption-and-analysis/">unpacking the latest trends in news consumption and analysis</a> 
-<a href="https://cbdstent.com/web-tech-and-organic-living-expert-insights-and-holistic-hea-85-9/">web tech and organic living expert insights and holistic hea</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-9-2/">web tech content 50 resources worth bookmarking 85 9 2</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-9/">web tech content 50 resources worth bookmarking 85 9</a> 
-<a href="https://cbdstent.com/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
-<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://cbdstent.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 

@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://dellywoodfilms.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://dellywoodfilms.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://dellywoodfilms.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://dellywoodfilms.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://dellywoodfilms.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://dellywoodfilms.com/how-to-effectively-use-social-media-for-small-business-growt/">how to effectively use social media for small business growt</a> 
+<a href="https://dellywoodfilms.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://dellywoodfilms.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://dellywoodfilms.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide-2/">how to find balanced coverage of a topic a practical guide 2</a> 
+<a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://dellywoodfilms.com/how-to-find-reliable-how-to-guides-2/">how to find reliable how to guides 2</a> 
 <a href="https://dellywoodfilms.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
@@ -784,21 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/what-to-know-about-why-context-matters-when-reading-online-3ca3">what to know about why context matters when reading online 3</a> 
 <a href="https://dev.to/ai2humanizeblip/what-to-look-for-in-a-good-news-website-a-practical-guide-3a35">what to look for in a good news website a practical guide 3a</a> 
 <a href="https://dev.to/ai2humanizeblip/what-to-look-for-in-a-good-news-website-a-quick-guide-1jcp">what to look for in a good news website a quick guide 1jcp</a> 
-<a href="https://dev.to/ai2humanizeblip/why-browser-games-are-perfect-for-a-quick-break-2jd8">why browser games are perfect for a quick break 2jd8</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-2ajp">why niche blogs still matter 2ajp</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-3p8o">why niche blogs still matter 3p8o</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-content-276k">why niche blogs still matter a deep dive into web tech conte</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-a-practical-guide-fbb">why niche blogs still matter a practical guide fbb</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-explained-simply-b4d">why niche blogs still matter explained simply b4d</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-in-the-web-tech-content-landscape-4ecm">why niche blogs still matter in the web tech content landsca</a> 
-<a href="https://dev.to/ai2humanizeblip/why-niche-digital-publications-are-winning-the-modern-newsroom-538j">why niche digital publications are winning the modern newsro</a> 
-<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-3op8">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-52g2">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://dinxsh.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://dinxsh.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://dinxsh.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://dinxsh.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://dinxsh.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://dinxsh.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://dinxsh.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://dinxsh.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 

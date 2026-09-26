@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/">ls-discover-the-be-msrom6eg.web.app</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/cplemaire-quoi-sert-un-annuaire-du-turf/">cplemaire quoi sert un annuaire du turf</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/crypto-security-protecting-your-wallet-keys-and-funds/">crypto security protecting your wallet keys and funds</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/cyber-safety-guides-worth-bookmarking/">cyber safety guides worth bookmarking</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/digital-productivity-tools-and-habits-that-actually-work/">digital productivity tools and habits that actually work</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/firebase-hub-test-article/">firebase hub test article</a> 
@@ -784,21 +802,3 @@
 <a href="https://madeleine-dore.com/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
 <a href="https://madeleine-dore.com/turf-pour-d-butants-par-o-commencer/">turf pour d butants par o commencer</a> 
 <a href="https://madeleine-dore.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://madeleine-dore.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-3/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
