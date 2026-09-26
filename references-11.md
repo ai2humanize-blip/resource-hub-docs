@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://cbdpuffbars.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
+<a href="https://cbdpuffbars.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cbdpuffbars.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cbdpuffbars.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://cbdpuffbars.com/avoid-online-loan-and-text-scams/">avoid online loan and text scams</a> 
+<a href="https://cbdpuffbars.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://cbdpuffbars.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cbdpuffbars.com/boosting-your-business-and-personal-finances-a-marketing-per/">boosting your business and personal finances a marketing per</a> 
+<a href="https://cbdpuffbars.com/breaking-down-today-s-top-news-expert-analysis-and-key-insig/">breaking down today s top news expert analysis and key insig</a> 
+<a href="https://cbdpuffbars.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
+<a href="https://cbdpuffbars.com/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
+<a href="https://cbdpuffbars.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cbdpuffbars.com/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://cbdpuffbars.com/choosing-the-perfect-watch-a-comprehensive-buying-guide/">choosing the perfect watch a comprehensive buying guide</a> 
+<a href="https://cbdpuffbars.com/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://cbdpuffbars.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
 <a href="https://cbdpuffbars.com/comprehensive-guides-reviews-and-how-tos-for-tech-crypto-and-84-6/">comprehensive guides reviews and how tos for tech crypto and</a> 
 <a href="https://cbdpuffbars.com/comprehensive-guides-reviews-how-tos-your-ultimate-resource-84-6/">comprehensive guides reviews how tos your ultimate resource </a> 
 <a href="https://cbdpuffbars.com/comprehensive-roundup-guides-reviews-how-tos-for-every-inter-84-6/">comprehensive roundup guides reviews how tos for every inter</a> 
@@ -784,21 +802,3 @@
 <a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
 <a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://cbdstent.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://cbdstent.com/what-to-know-about-a-simple-framework-for-researching-any-topic-online/">what to know about a simple framework for researching any to</a> 
-<a href="https://cbdstent.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://cbdstent.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
-<a href="https://cbdstent.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://cbdstent.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
-<a href="https://cbdstent.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
-<a href="https://cbdstent.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
-<a href="https://cbdstent.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://cbdstent.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://cbdstent.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://cbdstent.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
-<a href="https://cbdstent.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://cbdstent.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://cbdstent.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://cbdstent.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://cbdstent.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
-<a href="https://cbdstent.com/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-85-9/">why niche blogs still matter a deep dive into web tech conte</a> 
-<a href="https://cbdstent.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 

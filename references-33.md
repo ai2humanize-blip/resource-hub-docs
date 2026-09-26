@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/cyber-safety-guides-worth-bookmarking/">cyber safety guides worth bookmarking</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/digital-productivity-tools-and-habits-that-actually-work/">digital productivity tools and habits that actually work</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/firebase-hub-test-article/">firebase hub test article</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/font-pairing-resources-worth-bookmarking/">font pairing resources worth bookmarking</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-ai-is-transforming-the-global-economy-current-trends-and/">how ai is transforming the global economy current trends and</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
@@ -784,21 +802,3 @@
 <a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-3/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
-<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://madeleine-dore.com/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
-<a href="https://madeleine-dore.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://madeleine-dore.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://madeleine-dore.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://madeleine-dore.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://madeleine-dore.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://madeleine-dore.com/understanding-legal-information-and-news-a-guide-for-the-gen/">understanding legal information and news a guide for the gen</a> 
-<a href="https://madeleine-dore.com/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
-<a href="https://madeleine-dore.com/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://madeleine-dore.com/unlock-the-power-of-niche-communities-a-guide-to-finding-you/">unlock the power of niche communities a guide to finding you</a> 
-<a href="https://madeleine-dore.com/unlocking-the-future-how-ai-is-revolutionizing-everyday-apps/">unlocking the future how ai is revolutionizing everyday apps</a> 
-<a href="https://madeleine-dore.com/unlocking-the-secrets-of-effective-time-management-a-fresh-a/">unlocking the secrets of effective time management a fresh a</a> 
-<a href="https://madeleine-dore.com/unlocking-the-secrets-of-marketing-seo-growth-a-comprehensiv-107-9/">unlocking the secrets of marketing seo growth a comprehensiv</a> 
-<a href="https://madeleine-dore.com/unpacking-the-latest-media-trends-news-analysis-and-what-it/">unpacking the latest media trends news analysis and what it</a> 
-<a href="https://madeleine-dore.com/unpacking-today-s-top-news-expert-analysis-and-insights/">unpacking today s top news expert analysis and insights</a> 
-<a href="https://madeleine-dore.com/web-tech-content-navigating-the-digital-age-with-cutting-edg-107-7/">web tech content navigating the digital age with cutting edg</a> 
-<a href="https://madeleine-dore.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 

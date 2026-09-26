@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cbdstent.com/what-to-know-about-a-simple-framework-for-researching-any-topic-online/">what to know about a simple framework for researching any to</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://cbdstent.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
+<a href="https://cbdstent.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://cbdstent.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://cbdstent.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://cbdstent.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
+<a href="https://cbdstent.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://cbdstent.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cbdstent.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://cbdstent.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cbdstent.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-85-9/">why niche blogs still matter a deep dive into web tech conte</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://cbdstent.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
 <a href="https://cbdstent.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
 <a href="https://cbdstent.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
@@ -784,21 +802,3 @@
 <a href="https://crediblenews24.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
 <a href="https://crediblenews24.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
 <a href="https://crediblenews24.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it-matters/">how to read the news without getting overwhelmed and why it </a> 
-<a href="https://crediblenews24.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://crediblenews24.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://crediblenews24.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
-<a href="https://crediblenews24.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
-<a href="https://crediblenews24.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://crediblenews24.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
-<a href="https://crediblenews24.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://crediblenews24.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://crediblenews24.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://crediblenews24.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
-<a href="https://crediblenews24.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
-<a href="https://crediblenews24.com/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
-<a href="https://crediblenews24.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
-<a href="https://crediblenews24.com/making-sense-of-complex-topics-online-the-basics-2/">making sense of complex topics online the basics 2</a> 
-<a href="https://crediblenews24.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://crediblenews24.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-10/">marketing seo growth 50 resources worth bookmarking 86 10</a> 
-<a href="https://crediblenews24.com/master-digital-tools-online-resources-a-comprehensive-guide-86-7-2/">master digital tools online resources a comprehensive guide </a> 

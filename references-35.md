@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://metromsk.se.net/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://metromsk.se.net/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://metromsk.se.net/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://metromsk.se.net/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://metromsk.se.net/tlt-ng-resource-2/">tlt ng resource 2</a> 
+<a href="https://metromsk.se.net/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
+<a href="https://metromsk.se.net/transfer-money-with-ussd-in-nigeria-2/">transfer money with ussd in nigeria 2</a> 
+<a href="https://metromsk.se.net/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://metromsk.se.net/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://metromsk.se.net/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://metromsk.se.net/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
+<a href="https://metromsk.se.net/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
+<a href="https://metromsk.se.net/understanding-how-search-engines-rank-pages-a-quick-guide-2/">understanding how search engines rank pages a quick guide 2</a> 
+<a href="https://metromsk.se.net/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
+<a href="https://metromsk.se.net/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
+<a href="https://metromsk.se.net/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://metromsk.se.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://metromsk.se.net/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://metromsk.se.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
 <a href="https://metromsk.se.net/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
 <a href="https://metromsk.se.net/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
@@ -784,21 +802,3 @@
 <a href="https://montanagreenpower.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
 <a href="https://montanagreenpower.org/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
 <a href="https://montanagreenpower.org/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://montanagreenpower.org/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://montanagreenpower.org/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://montanagreenpower.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://montanagreenpower.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://montanagreenpower.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://montanagreenpower.org/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://montanagreenpower.org/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
-<a href="https://montanagreenpower.org/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
-<a href="https://montanagreenpower.org/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
-<a href="https://montanagreenpower.org/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
-<a href="https://montanagreenpower.org/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://montanagreenpower.org/boosting-your-business-and-personal-finances-with-strategic/">boosting your business and personal finances with strategic</a> 
-<a href="https://montanagreenpower.org/breaking-down-the-latest-global-news-in-depth-analysis-and-e/">breaking down the latest global news in depth analysis and e</a> 
-<a href="https://montanagreenpower.org/breaking-down-today-s-top-news-in-depth-analysis-and-expert-2/">breaking down today s top news in depth analysis and expert </a> 
-<a href="https://montanagreenpower.org/breaking-down-today-s-top-news-in-depth-analysis-and-expert/">breaking down today s top news in depth analysis and expert</a> 
-<a href="https://montanagreenpower.org/building-a-healthy-daily-reading-habit-a-practical-guide-2/">building a healthy daily reading habit a practical guide 2</a> 
-<a href="https://montanagreenpower.org/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://montanagreenpower.org/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
