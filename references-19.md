@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://ezoterizm.com/how-recent-economic-trends-are-shaping-global-currency-marke/">how recent economic trends are shaping global currency marke</a> 
+<a href="https://ezoterizm.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://ezoterizm.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matters/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide-3/">how to compare sources on the same story a quick guide 3</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-explained-simply-2/">how to compare sources on the same story explained simply 2</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://ezoterizm.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://ezoterizm.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://ezoterizm.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
@@ -784,21 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-curated-resour-27-5/">mastering business finance and productivity a curated resour</a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-guide-to-smart-27-5/">mastering business finance and productivity a guide to smart</a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-essential-insigh-27-5/">mastering business finance and productivity essential insigh</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-essential-tools-27-5/">mastering business finance and productivity essential tools </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-in-book-publishi-27-5/">mastering business finance and productivity in book publishi</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-in-nigeria-a-com-27-5/">mastering business finance and productivity in nigeria a com</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-in-the-crypto-an-27-5/">mastering business finance and productivity in the crypto an</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-in-the-digital-a-27-5-2/">mastering business finance and productivity in the digital a</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-in-the-digital-a-27-5/">mastering business finance and productivity in the digital a</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-10/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-11/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-12/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-13/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-14/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-15/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-16/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-17/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-18/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-19/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-guid-27-5-20/">mastering business finance productivity a comprehensive guid</a> 

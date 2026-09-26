@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://heatherburrisphotography.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://heatherburrisphotography.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
+<a href="https://heatherburrisphotography.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://heatherburrisphotography.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://heatherburrisphotography.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://heatherburrisphotography.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://heatherburrisphotography.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://heatherburrisphotography.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
+<a href="https://heatherburrisphotography.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
 <a href="https://heatherburrisphotography.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://heatherburrisphotography.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
 <a href="https://heatherburrisphotography.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
@@ -784,21 +802,3 @@
 <a href="https://homaryreviews.com/mastering-the-art-of-home-organization-a-room-by-room-guide/">mastering the art of home organization a room by room guide</a> 
 <a href="https://homaryreviews.com/mastering-your-digital-life-top-apps-for-productivity-and-or/">mastering your digital life top apps for productivity and or</a> 
 <a href="https://homaryreviews.com/maximizing-your-time-how-to-plan-the-perfect-day-with-a-dail/">maximizing your time how to plan the perfect day with a dail</a> 
-<a href="https://homaryreviews.com/navigating-business-finance-productivity-in-2026-a-comprehen-101-1/">navigating business finance productivity in 2026 a comprehen</a> 
-<a href="https://homaryreviews.com/navigating-career-growth-essential-strategies-for-marketing-101-10/">navigating career growth essential strategies for marketing </a> 
-<a href="https://homaryreviews.com/navigating-career-transitions-strategies-for-successful-job/">navigating career transitions strategies for successful job</a> 
-<a href="https://homaryreviews.com/navigating-legal-information-how-to-stay-informed-and-unders/">navigating legal information how to stay informed and unders</a> 
-<a href="https://homaryreviews.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://homaryreviews.com/navigating-the-complex-world-of-marketing-seo-growth-strateg-101-10/">navigating the complex world of marketing seo growth strateg</a> 
-<a href="https://homaryreviews.com/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon-101-6/">navigating the crypto landscape bitcoin blockchain and beyon</a> 
-<a href="https://homaryreviews.com/navigating-the-crypto-landscape-bitcoin-blockchain-and-pract/">navigating the crypto landscape bitcoin blockchain and pract</a> 
-<a href="https://homaryreviews.com/navigating-the-crypto-world-bitcoin-blockchain-and-beyond/">navigating the crypto world bitcoin blockchain and beyond</a> 
-<a href="https://homaryreviews.com/navigating-the-crypto-world-business-finance-productivity-es-101-1/">navigating the crypto world business finance productivity es</a> 
-<a href="https://homaryreviews.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a-2/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://homaryreviews.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://homaryreviews.com/navigating-the-digital-landscape-essential-tools-and-resourc-101-7/">navigating the digital landscape essential tools and resourc</a> 
-<a href="https://homaryreviews.com/navigating-the-digital-landscape-leveraging-ai-and-apps-for-101-10/">navigating the digital landscape leveraging ai and apps for </a> 
-<a href="https://homaryreviews.com/navigating-the-evolving-landscape-of-news-consumption-curren/">navigating the evolving landscape of news consumption curren</a> 
-<a href="https://homaryreviews.com/navigating-the-evolving-landscape-of-news-consumption-trends/">navigating the evolving landscape of news consumption trends</a> 
-<a href="https://homaryreviews.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain-2/">navigating the future cryptocurrency bitcoin and blockchain </a> 
-<a href="https://homaryreviews.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://55bmw1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://55bmw1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://55bmw1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://55bmw1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://55bmw1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://55bmw1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
@@ -566,7 +569,9 @@
 <a href="https://agriculture-lawyer.com/common-questions-answered/">common questions answered</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-75-5-2/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-75-5-3/">comprehensive guides in depth reviews and practical how tos </a> 
+<a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-75-5-4/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-75-5/">comprehensive guides in depth reviews and practical how tos </a> 
+<a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-step-by-step-how-t-75-5/">comprehensive guides in depth reviews and step by step how t</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-practical-how-tos-your-75-5/">comprehensive guides in depth reviews practical how tos your</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-75-5/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-effective-onlin-75-5/">comprehensive guides reviews and how tos for effective onlin</a> 
@@ -738,6 +743,7 @@
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5-6/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5-7/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5-8/">mastering guides reviews how tos your ultimate resource roun</a> 
+<a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5-9/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-75-5/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://agriculture-lawyer.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-75-10/">mastering guides reviews how tos your ultimate round up for </a> 
 <a href="https://agriculture-lawyer.com/mastering-information-guides-reviews-how-tos-for-the-modern-75-5/">mastering information guides reviews how tos for the modern </a> 
@@ -796,9 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-and-how-tos-for-75-5-2/">mastering online information guides reviews and how tos for </a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-and-how-tos-for-75-5/">mastering online information guides reviews and how tos for </a> 
 <a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-2/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-3/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-4/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-5/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-6/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5-7/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://agriculture-lawyer.com/mastering-online-information-guides-reviews-how-tos-for-savv-75-5/">mastering online information guides reviews how tos for savv</a> 

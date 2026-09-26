@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://ph444casino.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://ph444casino.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://ph444casino.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ph444casino.xyz/hello-world/">hello world</a> 
+<a href="https://ph444casino.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ph444casino.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://ph444casino.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://ph444casino.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://ph444casino.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://ph444casino.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://ph444casino.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://ph777login.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://ph777login.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://ph777login.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://ph777login.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://ph777login.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://ph777login.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://ph777login.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://ph777login.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://ph777login.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ph777login.xyz/hello-world/">hello world</a> 
 <a href="https://ph777login.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://ph777login.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://ph777login.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -781,24 +802,3 @@
 <a href="https://playboicartinetworth.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://playboicartinetworth.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://playboicartinetworth.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://playboicartinetworth.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://playboicartinetworth.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://playboicartinetworth.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://playboicartinetworth.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://playboicartinetworth.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://playboicartinetworth.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
-<a href="https://playboicartinetworth.com/how-to-get-the-most-out-of-online-guides-a-quick-guide-2/">how to get the most out of online guides a quick guide 2</a> 
-<a href="https://playboicartinetworth.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
-<a href="https://playboicartinetworth.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://playboicartinetworth.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita-2/">how to leverage the latest apps for a more productive digita</a> 
-<a href="https://playboicartinetworth.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita/">how to leverage the latest apps for a more productive digita</a> 
-<a href="https://playboicartinetworth.com/how-to-make-your-home-more-energy-efficient-a-comprehensive/">how to make your home more energy efficient a comprehensive</a> 
-<a href="https://playboicartinetworth.com/how-to-navigate-the-digital-world-essential-apps-for-modern/">how to navigate the digital world essential apps for modern</a> 
-<a href="https://playboicartinetworth.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
-<a href="https://playboicartinetworth.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://playboicartinetworth.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 

@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://ls-boosting-produc-msro9yji.firebaseapp.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/">ls-boosting-produc-msro9yji.web.app</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
@@ -784,21 +802,3 @@
 <a href="https://madeleine-dore.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://madeleine-dore.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://madeleine-dore.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-useful/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://madeleine-dore.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
-<a href="https://madeleine-dore.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://madeleine-dore.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://madeleine-dore.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://madeleine-dore.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://madeleine-dore.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://madeleine-dore.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
-<a href="https://madeleine-dore.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://madeleine-dore.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
