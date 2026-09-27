@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cbdstent.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
+<a href="https://cbdstent.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://cbdstent.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://cbdstent.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://cbdstent.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://cbdstent.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://cbdstent.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
+<a href="https://cbdstent.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
+<a href="https://cbdstent.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
+<a href="https://cbdstent.com/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
+<a href="https://cbdstent.com/leveraging-the-latest-apps-for-a-smarter-more-connected-life/">leveraging the latest apps for a smarter more connected life</a> 
+<a href="https://cbdstent.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
 <a href="https://cbdstent.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
 <a href="https://cbdstent.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cbdstent.com/market-research-reports/">market research reports</a> 
@@ -86,8 +98,10 @@
 <a href="https://cbdstent.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-85-6/">mastering marketing seo growth strategies for success in a c</a> 
 <a href="https://cbdstent.com/mastering-marketing-seo-growth-strategies-for-virginia-child-85-6/">mastering marketing seo growth strategies for virginia child</a> 
 <a href="https://cbdstent.com/mastering-marketing-seo-growth-your-ultimate-guide-85-6/">mastering marketing seo growth your ultimate guide 85 6</a> 
+<a href="https://cbdstent.com/mastering-news-consumption-guides-reviews-how-tos-for-the-mo-85-5/">mastering news consumption guides reviews how tos for the mo</a> 
 <a href="https://cbdstent.com/mastering-online-content-guides-reviews-how-tos-for-savvy-re-85-5/">mastering online content guides reviews how tos for savvy re</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5-2/">mastering online information guides reviews and how tos for </a> 
+<a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5-3/">mastering online information guides reviews and how tos for </a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5/">mastering online information guides reviews and how tos for </a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-3/">mastering online information guides reviews how tos for savv</a> 
@@ -101,6 +115,7 @@
 <a href="https://cbdstent.com/mastering-online-reading-guides-reviews-how-tos-for-smarter-85-5/">mastering online reading guides reviews how tos for smarter </a> 
 <a href="https://cbdstent.com/mastering-online-reading-research-and-digital-literacy-a-com-85-10/">mastering online reading research and digital literacy a com</a> 
 <a href="https://cbdstent.com/mastering-online-reading-research-and-safety-a-comprehensive-85-5/">mastering online reading research and safety a comprehensive</a> 
+<a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-eff-85-5/">mastering online research guides reviews and how tos for eff</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-sma-85-5/">mastering online research guides reviews and how tos for sma</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-the-85-5-2/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-the-85-5/">mastering online research guides reviews and how tos for the</a> 
@@ -787,18 +802,3 @@
 <a href="https://cplemaire.us.org/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
 <a href="https://cplemaire.us.org/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
 <a href="https://cplemaire.us.org/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://cplemaire.us.org/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 
-<a href="https://cplemaire.us.org/consumer-technology-reviews-and-buying-guides-what-to-know/">consumer technology reviews and buying guides what to know</a> 
-<a href="https://cplemaire.us.org/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
-<a href="https://cplemaire.us.org/creating-online-polls-and-surveys-and-reading-results-what-t/">creating online polls and surveys and reading results what t</a> 
-<a href="https://cplemaire.us.org/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://cplemaire.us.org/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://cplemaire.us.org/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://cplemaire.us.org/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://cplemaire.us.org/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://cplemaire.us.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://cplemaire.us.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://cplemaire.us.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
-<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://cplemaire.us.org/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
