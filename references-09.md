@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://bitslots.de.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
 <a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
 <a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
@@ -796,9 +799,6 @@
 <a href="https://captainjackinterview.com/mastering-the-art-of-business-personal-finance-and-marketing-82-4/">mastering the art of business personal finance and marketing</a> 
 <a href="https://captainjackinterview.com/mastering-the-art-of-effective-email-communication-tips-and/">mastering the art of effective email communication tips and</a> 
 <a href="https://captainjackinterview.com/mastering-the-art-of-personal-finance-in-business-a-marketin/">mastering the art of personal finance in business a marketin</a> 
+<a href="https://captainjackinterview.com/mastering-web-tech-and-content-a-comprehensive-guide-for-the-82-2/">mastering web tech and content a comprehensive guide for the</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-2/">mastering web tech content a comprehensive guide 82 2 2</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-3/">mastering web tech content a comprehensive guide 82 2 3</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-4/">mastering web tech content a comprehensive guide 82 2 4</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-5/">mastering web tech content a comprehensive guide 82 2 5</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2/">mastering web tech content a comprehensive guide 82 2</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-82-2/">mastering web tech content a comprehensive guide for modern </a> 
