@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cbdstent.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://cbdstent.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://cbdstent.com/market-research-reports/">market research reports</a> 
+<a href="https://cbdstent.com/marketing-seo-growth-50-resources-worth-bookmarking-85-1/">marketing seo growth 50 resources worth bookmarking 85 1</a> 
+<a href="https://cbdstent.com/marketing-seo-growth-essential-strategies-for-business-succe-85-6/">marketing seo growth essential strategies for business succe</a> 
+<a href="https://cbdstent.com/master-crypto-basics-guides-reviews-safety-tips-for-beginner-85-10/">master crypto basics guides reviews safety tips for beginner</a> 
+<a href="https://cbdstent.com/master-online-guides-reviews-how-tos-a-comprehensive-roundup-85-5/">master online guides reviews how tos a comprehensive roundup</a> 
+<a href="https://cbdstent.com/master-online-research-guides-reviews-how-tos-for-smart-sear-85-5/">master online research guides reviews how tos for smart sear</a> 
+<a href="https://cbdstent.com/master-the-web-guides-reviews-and-how-tos-for-every-learner-85-5/">master the web guides reviews and how tos for every learner </a> 
+<a href="https://cbdstent.com/master-the-web-guides-reviews-how-tos-for-savvy-readers-85-5/">master the web guides reviews how tos for savvy readers 85 5</a> 
+<a href="https://cbdstent.com/master-your-online-experience-guides-reviews-and-how-tos-for-85-5/">master your online experience guides reviews and how tos for</a> 
+<a href="https://cbdstent.com/mastering-app-efficiency-boost-your-digital-experience-with/">mastering app efficiency boost your digital experience with</a> 
 <a href="https://cbdstent.com/mastering-app-overload-how-to-declutter-your-digital-life/">mastering app overload how to declutter your digital life</a> 
 <a href="https://cbdstent.com/mastering-business-finance-and-productivity-editor-s-top-pic-85-7/">mastering business finance and productivity editor s top pic</a> 
 <a href="https://cbdstent.com/mastering-business-finance-and-productivity-in-the-crypto-an-85-7/">mastering business finance and productivity in the crypto an</a> 
@@ -82,12 +94,14 @@
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-4/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-5/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5/">mastering online information guides reviews how tos for savv</a> 
+<a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-smar-85-5/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-the-85-5/">mastering online information guides reviews how tos for the </a> 
 <a href="https://cbdstent.com/mastering-online-learning-guides-reviews-and-how-tos-for-suc-85-5/">mastering online learning guides reviews and how tos for suc</a> 
 <a href="https://cbdstent.com/mastering-online-reading-guides-reviews-how-tos-for-savvy-re-85-5/">mastering online reading guides reviews how tos for savvy re</a> 
 <a href="https://cbdstent.com/mastering-online-reading-guides-reviews-how-tos-for-smarter-85-5/">mastering online reading guides reviews how tos for smarter </a> 
 <a href="https://cbdstent.com/mastering-online-reading-research-and-digital-literacy-a-com-85-10/">mastering online reading research and digital literacy a com</a> 
 <a href="https://cbdstent.com/mastering-online-reading-research-and-safety-a-comprehensive-85-5/">mastering online reading research and safety a comprehensive</a> 
+<a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-sma-85-5/">mastering online research guides reviews and how tos for sma</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-the-85-5-2/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-and-how-tos-for-the-85-5/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-effecti-85-5/">mastering online research guides reviews how tos for effecti</a> 
@@ -98,6 +112,7 @@
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-85-5/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-smarter-85-5/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://cbdstent.com/mastering-online-resources-guides-reviews-how-tos-for-savvy-85-5/">mastering online resources guides reviews how tos for savvy </a> 
+<a href="https://cbdstent.com/mastering-online-safety-literacy-and-credibility-a-comprehen-85-5/">mastering online safety literacy and credibility a comprehen</a> 
 <a href="https://cbdstent.com/mastering-personal-finance-a-business-and-marketing-perspect/">mastering personal finance a business and marketing perspect</a> 
 <a href="https://cbdstent.com/mastering-personal-finance-a-strategic-approach-to-business-2/">mastering personal finance a strategic approach to business </a> 
 <a href="https://cbdstent.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
@@ -787,18 +802,3 @@
 <a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
 <a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
 <a href="https://cplemaire.us.org/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://cplemaire.us.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://cplemaire.us.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://cplemaire.us.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://cplemaire.us.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://cplemaire.us.org/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
-<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
-<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://cplemaire.us.org/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
-<a href="https://cplemaire.us.org/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://cplemaire.us.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
