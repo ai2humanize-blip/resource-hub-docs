@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cbdstent.com/mastering-app-overload-how-to-declutter-your-digital-life/">mastering app overload how to declutter your digital life</a> 
+<a href="https://cbdstent.com/mastering-business-finance-and-productivity-editor-s-top-pic-85-7/">mastering business finance and productivity editor s top pic</a> 
+<a href="https://cbdstent.com/mastering-business-finance-and-productivity-in-the-crypto-an-85-7/">mastering business finance and productivity in the crypto an</a> 
+<a href="https://cbdstent.com/mastering-business-finance-and-productivity-in-the-digital-a-85-7/">mastering business finance and productivity in the digital a</a> 
+<a href="https://cbdstent.com/mastering-business-finance-productivity-a-comprehensive-guid-85-7-2/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://cbdstent.com/mastering-business-finance-productivity-a-comprehensive-guid-85-7-3/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://cbdstent.com/mastering-business-finance-productivity-a-comprehensive-guid-85-7-4/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://cbdstent.com/mastering-business-finance-productivity-a-comprehensive-guid-85-7/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://cbdstent.com/mastering-business-finance-productivity-essential-online-ski-85-7/">mastering business finance productivity essential online ski</a> 
+<a href="https://cbdstent.com/mastering-business-finance-productivity-essential-resources-85-7/">mastering business finance productivity essential resources </a> 
+<a href="https://cbdstent.com/mastering-business-finance-productivity-essential-web-skills-85-7/">mastering business finance productivity essential web skills</a> 
+<a href="https://cbdstent.com/mastering-business-finance-productivity-travel-savings-strat-85-7/">mastering business finance productivity travel savings strat</a> 
 <a href="https://cbdstent.com/mastering-crypto-guides-reviews-and-how-tos-for-bitcoin-and-85-5/">mastering crypto guides reviews and how tos for bitcoin and </a> 
 <a href="https://cbdstent.com/mastering-cryptocurrency-bitcoin-and-blockchain-comprehensiv-85-5/">mastering cryptocurrency bitcoin and blockchain comprehensiv</a> 
 <a href="https://cbdstent.com/mastering-cryptocurrency-bitcoin-and-blockchain-guides-revie-85-5/">mastering cryptocurrency bitcoin and blockchain guides revie</a> 
@@ -62,6 +74,7 @@
 <a href="https://cbdstent.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-85-6/">mastering marketing seo growth strategies for success in a c</a> 
 <a href="https://cbdstent.com/mastering-marketing-seo-growth-strategies-for-virginia-child-85-6/">mastering marketing seo growth strategies for virginia child</a> 
 <a href="https://cbdstent.com/mastering-marketing-seo-growth-your-ultimate-guide-85-6/">mastering marketing seo growth your ultimate guide 85 6</a> 
+<a href="https://cbdstent.com/mastering-online-content-guides-reviews-how-tos-for-savvy-re-85-5/">mastering online content guides reviews how tos for savvy re</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5-2/">mastering online information guides reviews and how tos for </a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5/">mastering online information guides reviews and how tos for </a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-2/">mastering online information guides reviews how tos for savv</a> 
@@ -83,6 +96,8 @@
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-85-5-2/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-85-5-3/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-85-5/">mastering online research guides reviews how tos for smart r</a> 
+<a href="https://cbdstent.com/mastering-online-research-guides-reviews-how-tos-for-smarter-85-5/">mastering online research guides reviews how tos for smarter</a> 
+<a href="https://cbdstent.com/mastering-online-resources-guides-reviews-how-tos-for-savvy-85-5/">mastering online resources guides reviews how tos for savvy </a> 
 <a href="https://cbdstent.com/mastering-personal-finance-a-business-and-marketing-perspect/">mastering personal finance a business and marketing perspect</a> 
 <a href="https://cbdstent.com/mastering-personal-finance-a-strategic-approach-to-business-2/">mastering personal finance a strategic approach to business </a> 
 <a href="https://cbdstent.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
@@ -787,18 +802,3 @@
 <a href="https://cplemaire.us.org/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
 <a href="https://cplemaire.us.org/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
 <a href="https://cplemaire.us.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://cplemaire.us.org/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://cplemaire.us.org/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
-<a href="https://cplemaire.us.org/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://cplemaire.us.org/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://cplemaire.us.org/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
-<a href="https://cplemaire.us.org/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://cplemaire.us.org/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://cplemaire.us.org/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://cplemaire.us.org/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://cplemaire.us.org/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://cplemaire.us.org/how-to-keep-clean-auditable-cryptocurrency-transaction-recor/">how to keep clean auditable cryptocurrency transaction recor</a> 
-<a href="https://cplemaire.us.org/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
