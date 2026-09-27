@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
+<a href="https://bitslots.de.com/responsible-gambling-tools-limits-and-where-to-get-help/">responsible gambling tools limits and where to get help</a> 
+<a href="https://bitslots.de.com/robthecoins-xyz-resource-3/">robthecoins xyz resource 3</a> 
 <a href="https://bitslots.de.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://bitslots.de.com/techvantor-xyz-resource-3-2/">techvantor xyz resource 3 2</a> 
 <a href="https://bitslots.de.com/techvantor-xyz-resource-3/">techvantor xyz resource 3</a> 
@@ -792,13 +795,10 @@
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-82-2-3/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-82-2-4/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-82-2-5/">mastering web tech content a comprehensive guide for the mod</a> 
+<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-82-2-6/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-82-2/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-82-7/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-evaluati-82-2/">mastering web tech content a comprehensive guide to evaluati</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-82-2-2/">mastering web tech content a comprehensive guide to navigati</a> 
+<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-82-2-3/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-82-2/">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-online-e-82-2/">mastering web tech content a comprehensive guide to online e</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-online-k-82-2/">mastering web tech content a comprehensive guide to online k</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-82-2/">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-82-2/">mastering web tech content a comprehensive guide to reliable</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-crypto-a-comprehensive-guide-for-beginner-82-7/">mastering web tech crypto a comprehensive guide for beginner</a> 
