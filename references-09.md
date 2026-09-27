@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
+<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
 <a href="https://bitslots.de.com/open-a-nigerian-bank-account-online/">open a nigerian bank account online</a> 
 <a href="https://bitslots.de.com/oxpoll-cc-resource-3-2/">oxpoll cc resource 3 2</a> 
 <a href="https://bitslots.de.com/oxpoll-cc-resource-3-3/">oxpoll cc resource 3 3</a> 
@@ -633,6 +636,9 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-savvy-readers-a-82-6/">essential digital tools online resources for savvy readers a</a> 
 <a href="https://captainjackinterview.com/essential-guides-and-tips-for-staying-safe-from-online-scams-82-3/">essential guides and tips for staying safe from online scams</a> 
 <a href="https://captainjackinterview.com/essential-independent-web-tech-and-crypto-resources-you-shou-82-7/">essential independent web tech and crypto resources you shou</a> 
+<a href="https://captainjackinterview.com/essential-web-tech-content-resources-for-designers-and-devel-82-2/">essential web tech content resources for designers and devel</a> 
+<a href="https://captainjackinterview.com/essential-web-tech-content-resources-for-filipinos-a-compreh-82-2/">essential web tech content resources for filipinos a compreh</a> 
+<a href="https://captainjackinterview.com/essential-web-tech-content-tips-for-modern-living-82-2/">essential web tech content tips for modern living 82 2</a> 
 <a href="https://captainjackinterview.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://captainjackinterview.com/expert-guides-reviews-and-how-tos-to-transform-your-life-and-82-3/">expert guides reviews and how tos to transform your life and</a> 
 <a href="https://captainjackinterview.com/exploring-crypto-guides-reviews-how-tos-from-blockchain-to-s-82-3/">exploring crypto guides reviews how tos from blockchain to s</a> 
@@ -796,9 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-5/">mastering web tech content a comprehensive guide 82 2 5</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2/">mastering web tech content a comprehensive guide 82 2</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-82-2/">mastering web tech content a comprehensive guide for modern </a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-82-2-2/">mastering web tech content a comprehensive guide for savvy r</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-82-2/">mastering web tech content a comprehensive guide for savvy r</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-u-82-2/">mastering web tech content a comprehensive guide for savvy u</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-82-2-2/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-82-2/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-82-7/">mastering web tech content a comprehensive guide for smart r</a> 
