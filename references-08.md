@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autumnfallsinterview.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
@@ -231,6 +232,7 @@
 <a href="https://bandemusic.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://bandemusic.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-81-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
 <a href="https://bandemusic.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://bandemusic.com/master-digital-tools-online-resources-a-comprehensive-guide-81-2-2/">master digital tools online resources a comprehensive guide </a> 
 <a href="https://bandemusic.com/master-digital-tools-online-resources-a-comprehensive-guide-81-2/">master digital tools online resources a comprehensive guide </a> 
 <a href="https://bandemusic.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-81-3/">master the art of budget travel find cheap flights and save </a> 
 <a href="https://bandemusic.com/master-the-web-essential-digital-tools-online-resources-for-81-2/">master the web essential digital tools online resources for </a> 
@@ -259,12 +261,14 @@
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-1/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-6-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-6/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-read-81-1/">mastering business finance productivity a comprehensive read</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-roun-81-1-2/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-roun-81-1/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-multi-topic-blog-g-81-6/">mastering business finance productivity a multi topic blog g</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-online-rea-81-1/">mastering business finance productivity essential online rea</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-online-ski-81-1/">mastering business finance productivity essential online ski</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-online-str-81-1/">mastering business finance productivity essential online str</a> 
+<a href="https://bandemusic.com/mastering-business-finance-productivity-essential-reading-an-81-1-2/">mastering business finance productivity essential reading an</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-reading-an-81-1/">mastering business finance productivity essential reading an</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-skills-for-81-1-2/">mastering business finance productivity essential skills for</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-essential-skills-for-81-1-3/">mastering business finance productivity essential skills for</a> 
@@ -798,7 +802,3 @@
 <a href="https://bitslots.de.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
 <a href="https://bitslots.de.com/responsible-gambling-tools-limits-and-where-to-get-help/">responsible gambling tools limits and where to get help</a> 
 <a href="https://bitslots.de.com/robthecoins-xyz-resource-3/">robthecoins xyz resource 3</a> 
-<a href="https://bitslots.de.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://bitslots.de.com/techvantor-xyz-resource-3-2/">techvantor xyz resource 3 2</a> 
-<a href="https://bitslots.de.com/techvantor-xyz-resource-3/">techvantor xyz resource 3</a> 
-<a href="https://bitslots.de.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
