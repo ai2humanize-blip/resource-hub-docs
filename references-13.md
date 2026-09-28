@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://competitorscreenshots.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://competitorscreenshots.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://competitorscreenshots.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide-2/">how to tell if a website is trustworthy a quick guide 2</a> 
+<a href="https://competitorscreenshots.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://competitorscreenshots.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://competitorscreenshots.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
+<a href="https://competitorscreenshots.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://competitorscreenshots.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://competitorscreenshots.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://competitorscreenshots.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://competitorscreenshots.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://competitorscreenshots.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://competitorscreenshots.com/oxpoll-cc-resource-1-2/">oxpoll cc resource 1 2</a> 
+<a href="https://competitorscreenshots.com/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
+<a href="https://competitorscreenshots.com/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
 <a href="https://competitorscreenshots.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
 <a href="https://competitorscreenshots.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
 <a href="https://competitorscreenshots.com/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
@@ -431,6 +446,7 @@
 <a href="https://crediblenews24.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-86-8/">master the art of budget travel find cheap flights and save </a> 
 <a href="https://crediblenews24.com/mastering-app-mastery-navigating-the-digital-world-with-conf/">mastering app mastery navigating the digital world with conf</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-2/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-deep-dive-into-86-6/">mastering business finance and productivity a deep dive into</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-in-the-digital-a-86-6/">mastering business finance and productivity in the digital a</a> 
@@ -451,6 +467,7 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-23/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-24/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-25/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-26/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-5/">mastering business finance productivity a comprehensive guid</a> 
@@ -460,6 +477,7 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-9/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-read-86-6/">mastering business finance productivity a comprehensive read</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-roun-86-6-2/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-roun-86-6/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-guide-to-effective-86-6/">mastering business finance productivity a guide to effective</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-reading-st-86-6/">mastering business finance productivity essential reading st</a> 
@@ -784,21 +802,3 @@
 <a href="https://croginalcats.xyz/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
 <a href="https://croginalcats.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
 <a href="https://croginalcats.xyz/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
-<a href="https://croginalcats.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://croyale88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://croyale88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://croyale88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://croyale88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://croyale88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://croyale88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://croyale88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://croyale88.xyz/hello-world/">hello world</a> 
-<a href="https://croyale88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://croyale88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://croyale88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://croyale88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://croyale88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 

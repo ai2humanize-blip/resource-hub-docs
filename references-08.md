@@ -243,6 +243,7 @@
 <a href="https://bandemusic.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://bandemusic.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-81-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
 <a href="https://bandemusic.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://bandemusic.com/master-business-finance-productivity-essential-online-skills-81-1/">master business finance productivity essential online skills</a> 
 <a href="https://bandemusic.com/master-digital-tools-online-resources-a-comprehensive-guide-81-2-2/">master digital tools online resources a comprehensive guide </a> 
 <a href="https://bandemusic.com/master-digital-tools-online-resources-a-comprehensive-guide-81-2/">master digital tools online resources a comprehensive guide </a> 
 <a href="https://bandemusic.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-81-3/">master the art of budget travel find cheap flights and save </a> 
@@ -252,6 +253,7 @@
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-10/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-11/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-12/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-13/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-2/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-4/">mastering business finance and productivity a comprehensive </a> 
@@ -281,6 +283,7 @@
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-1-24/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-1-25/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-1-26/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-1-27/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-1-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-1-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://bandemusic.com/mastering-business-finance-productivity-a-comprehensive-guid-81-1-5/">mastering business finance productivity a comprehensive guid</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://bitslots.de.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
-<a href="https://bitslots.de.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://bitslots.de.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 

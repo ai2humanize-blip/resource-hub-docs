@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://croginalcats.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://croyale88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://croyale88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://croyale88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://croyale88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://croyale88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://croyale88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://croyale88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://croyale88.xyz/hello-world/">hello world</a> 
+<a href="https://croyale88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://croyale88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://croyale88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://croyale88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://croyale88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://croyale88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://croyale88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://cup88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -784,21 +802,3 @@
 <a href="https://cyberkannadig.it.com/mastering-the-art-of-mindful-eating-a-guide-to-healthier-hab/">mastering the art of mindful eating a guide to healthier hab</a> 
 <a href="https://cyberkannadig.it.com/mastering-the-art-of-online-music-discovery-a-practical-guid-26-4/">mastering the art of online music discovery a practical guid</a> 
 <a href="https://cyberkannadig.it.com/mastering-the-curated-web-guides-reviews-how-tos-26-4/">mastering the curated web guides reviews how tos 26 4</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-web-a-comprehensive-guide-to-guides-reviews-ho-26-4-2/">mastering the web a comprehensive guide to guides reviews ho</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-web-a-comprehensive-guide-to-guides-reviews-ho-26-4/">mastering the web a comprehensive guide to guides reviews ho</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-web-guides-reviews-and-how-tos-for-every-need-26-4/">mastering the web guides reviews and how tos for every need </a> 
-<a href="https://cyberkannadig.it.com/mastering-the-web-guides-reviews-how-tos-for-every-online-ne-26-4/">mastering the web guides reviews how tos for every online ne</a> 
-<a href="https://cyberkannadig.it.com/mastering-turf-betting-guides-reviews-and-how-tos-for-succes-26-4/">mastering turf betting guides reviews and how tos for succes</a> 
-<a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-u-26-3/">mastering web tech content a comprehensive guide for savvy u</a> 
-<a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-26-3/">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-26-3/">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-to-smarter-26-3/">mastering web tech content a comprehensive guide to smarter </a> 
-<a href="https://cyberkannadig.it.com/mastering-web-tech-crypto-a-comprehensive-guide-for-beginner-26-3/">mastering web tech crypto a comprehensive guide for beginner</a> 
-<a href="https://cyberkannadig.it.com/maximizing-your-online-experience-guides-reviews-and-how-tos-26-4/">maximizing your online experience guides reviews and how tos</a> 
-<a href="https://cyberkannadig.it.com/maximizing-your-website-s-potential-a-comprehensive-guide-to-26-3/">maximizing your website s potential a comprehensive guide to</a> 
-<a href="https://cyberkannadig.it.com/navigating-career-transitions-and-legal-news-strategies-for-26-3/">navigating career transitions and legal news strategies for </a> 
-<a href="https://cyberkannadig.it.com/navigating-casino-utan-spelpaus-a-player-s-honest-field-guid/">navigating casino utan spelpaus a player s honest field guid</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-complexities-of-today-s-news-landscape-analys/">navigating the complexities of today s news landscape analys</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-crypto-world-understanding-bitcoin-blockchain/">navigating the crypto world understanding bitcoin blockchain</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-digital-world-guides-reviews-how-tos-for-info-26-4/">navigating the digital world guides reviews how tos for info</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-digital-world-guides-reviews-how-tos-for-smar-26-4/">navigating the digital world guides reviews how tos for smar</a> 
