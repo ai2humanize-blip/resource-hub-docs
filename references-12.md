@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cbdstent.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://cbdstent.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://cbdstent.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://cbdstent.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://cbdstent.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://cbdstent.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://cbdstent.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://cbdstent.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://cbdstent.com/how-to-evaluate-online-reviews-and-recommendations-the-basics/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-the-basics-2/">how to fact check something in five minutes the basics 2</a> 
+<a href="https://cbdstent.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://cbdstent.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://cbdstent.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
 <a href="https://cbdstent.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
 <a href="https://cbdstent.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
@@ -787,18 +802,3 @@
 <a href="https://competitorscreenshots.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://competitorscreenshots.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://competitorscreenshots.com/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
-<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://competitorscreenshots.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://contact--53b86390917111f180301607ee4eb77e.web.val.run">contact--53b86390917111f180301607ee4eb77e.web.val.run</a> 
-<a href="https://contact--aaf73658923011f1877b1607ee4eb77e.web.val.run">contact--aaf73658923011f1877b1607ee4eb77e.web.val.run</a> 
-<a href="https://contact--cd64b29e93c311f18c2e1607ee4eb77e.web.val.run">contact--cd64b29e93c311f18c2e1607ee4eb77e.web.val.run</a> 
-<a href="https://contact--da593ad2922511f1a26f1607ee4eb77e.web.val.run">contact--da593ad2922511f1a26f1607ee4eb77e.web.val.run</a> 
-<a href="https://convergence-london.com/gindex.html">gindex</a> 
-<a href="https://convergence-london.com/picks.html">picks</a> 
-<a href="https://cool-bunny-8cff3e.netlify.app/mastering-personal-finance-a-guide-to-budgeting-investing-an.html">mastering personal finance a guide to budgeting investing an</a> 
-<a href="https://cool-cactus-4ab040.netlify.app/how-to-spot-low-quality-content-online-and-why-it-matters.html">how to spot low quality content online and why it matters</a> 

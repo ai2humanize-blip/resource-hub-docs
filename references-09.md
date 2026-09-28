@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-3/">making sense of complex topics online 3</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-the-art-of-business-personal-finance-and-marketing-82-4/">mastering the art of business personal finance and marketing</a> 
 <a href="https://captainjackinterview.com/mastering-the-art-of-effective-email-communication-tips-and/">mastering the art of effective email communication tips and</a> 
 <a href="https://captainjackinterview.com/mastering-the-art-of-personal-finance-in-business-a-marketin/">mastering the art of personal finance in business a marketin</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-and-content-a-comprehensive-guide-for-the-82-2/">mastering web tech and content a comprehensive guide for the</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-2/">mastering web tech content a comprehensive guide 82 2 2</a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-3/">mastering web tech content a comprehensive guide 82 2 3</a> 
