@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://croginalcats.xyz/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
+<a href="https://croginalcats.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://croginalcats.xyz/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
+<a href="https://croginalcats.xyz/techvantor/">techvantor</a> 
+<a href="https://croginalcats.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://croginalcats.xyz/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
+<a href="https://croginalcats.xyz/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://croginalcats.xyz/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://croginalcats.xyz/tlt-ng-resource-2/">tlt ng resource 2</a> 
+<a href="https://croginalcats.xyz/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
+<a href="https://croginalcats.xyz/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://croginalcats.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://croginalcats.xyz/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://croginalcats.xyz/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
+<a href="https://croginalcats.xyz/what-makes-an-explainer-article-genuinely-useful-a-practical-guide/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://croginalcats.xyz/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://croginalcats.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://croginalcats.xyz/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
 <a href="https://croginalcats.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
 <a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
@@ -784,21 +802,3 @@
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4-3/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4-4/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4/">mastering online research guides reviews how tos for savvy r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-26-4/">mastering online research guides reviews how tos for smart i</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-26-4/">mastering online research guides reviews how tos for smart l</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-26-4-2/">mastering online research guides reviews how tos for smart r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-26-4-3/">mastering online research guides reviews how tos for smart r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-26-4/">mastering online research guides reviews how tos for smart r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smarter-26-4/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-success-26-4/">mastering online research guides reviews how tos for success</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-the-sav-26-4/">mastering online research guides reviews how tos for the sav</a> 
-<a href="https://cyberkannadig.it.com/mastering-personal-finance-a-business-owner-s-guide-to-finan/">mastering personal finance a business owner s guide to finan</a> 
-<a href="https://cyberkannadig.it.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-art-of-app-navigation-boosting-productivity-in/">mastering the art of app navigation boosting productivity in</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-art-of-app-recommendations-navigating-the-digi/">mastering the art of app recommendations navigating the digi</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-art-of-business-finance-personal-wealth-and-ma-26-3/">mastering the art of business finance personal wealth and ma</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-art-of-business-growth-personal-finance-market/">mastering the art of business growth personal finance market</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-art-of-link-building-a-practical-guide-for-beg-26-4/">mastering the art of link building a practical guide for beg</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-art-of-mindful-eating-a-guide-to-healthier-hab/">mastering the art of mindful eating a guide to healthier hab</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-art-of-online-music-discovery-a-practical-guid-26-4/">mastering the art of online music discovery a practical guid</a> 
-<a href="https://cyberkannadig.it.com/mastering-the-curated-web-guides-reviews-how-tos-26-4/">mastering the curated web guides reviews how tos 26 4</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://bitslots.de.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://bitslots.de.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
 <a href="https://bitslots.de.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
@@ -683,6 +686,8 @@
 <a href="https://captainjackinterview.com/exploring-the-dynamic-world-of-web-tech-and-content-82-2/">exploring the dynamic world of web tech and content 82 2</a> 
 <a href="https://captainjackinterview.com/exploring-the-dynamic-world-of-web-tech-content-a-comprehens-82-2/">exploring the dynamic world of web tech content a comprehens</a> 
 <a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2-2/">exploring the interconnected world of web tech content 82 2 </a> 
+<a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2-3/">exploring the interconnected world of web tech content 82 2 </a> 
+<a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2-4/">exploring the interconnected world of web tech content 82 2 </a> 
 <a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2/">exploring the interconnected world of web tech content 82 2</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-2/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-3/">exploring the intersection of web tech and content a compreh</a> 
@@ -797,8 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-marketing-seo-growth-essential-strategies-for-succ-82-4-3/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://captainjackinterview.com/mastering-marketing-seo-growth-essential-strategies-for-succ-82-4/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://captainjackinterview.com/mastering-marketing-seo-growth-strategies-for-modern-success-82-4/">mastering marketing seo growth strategies for modern success</a> 
-<a href="https://captainjackinterview.com/mastering-marketing-seo-growth-strategies-for-success-82-4/">mastering marketing seo growth strategies for success 82 4</a> 
-<a href="https://captainjackinterview.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-82-4-2/">mastering marketing seo growth strategies for success in a c</a> 
-<a href="https://captainjackinterview.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-82-4/">mastering marketing seo growth strategies for success in a c</a> 
-<a href="https://captainjackinterview.com/mastering-modern-topics-guides-reviews-and-how-tos-for-today-82-3/">mastering modern topics guides reviews and how tos for today</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-and-how-tos-for-82-3-2/">mastering online information guides reviews and how tos for </a> 
