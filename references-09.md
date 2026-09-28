@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
+<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
 <a href="https://bitslots.de.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online-3/">making sense of complex topics online 3</a> 
@@ -727,6 +730,7 @@
 <a href="https://captainjackinterview.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
 <a href="https://captainjackinterview.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
 <a href="https://captainjackinterview.com/le-quint-comprendre-le-pari-hippique-le-plus-suivi/">le quint comprendre le pari hippique le plus suivi</a> 
+<a href="https://captainjackinterview.com/leveraging-online-resources-for-personal-and-professional-gr-82-2/">leveraging online resources for personal and professional gr</a> 
 <a href="https://captainjackinterview.com/leveraging-the-latest-apps-for-a-more-productive-digital-lif/">leveraging the latest apps for a more productive digital lif</a> 
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
@@ -798,7 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-the-art-of-app-management-boost-productivity-with/">mastering the art of app management boost productivity with</a> 
 <a href="https://captainjackinterview.com/mastering-the-art-of-business-and-personal-finance-a-marketi/">mastering the art of business and personal finance a marketi</a> 
 <a href="https://captainjackinterview.com/mastering-the-art-of-business-and-personal-finance-in-the-di/">mastering the art of business and personal finance in the di</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-finance-personal-wealth-and-ma-82-2/">mastering the art of business finance personal wealth and ma</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-personal-finance-and-marketing-82-4/">mastering the art of business personal finance and marketing</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-effective-email-communication-tips-and/">mastering the art of effective email communication tips and</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-personal-finance-in-business-a-marketin/">mastering the art of personal finance in business a marketin</a> 

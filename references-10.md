@@ -2,11 +2,16 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/mastering-the-art-of-business-finance-personal-wealth-and-ma-82-2/">mastering the art of business finance personal wealth and ma</a> 
+<a href="https://captainjackinterview.com/mastering-the-art-of-business-personal-finance-and-marketing-82-4/">mastering the art of business personal finance and marketing</a> 
+<a href="https://captainjackinterview.com/mastering-the-art-of-effective-email-communication-tips-and/">mastering the art of effective email communication tips and</a> 
+<a href="https://captainjackinterview.com/mastering-the-art-of-personal-finance-in-business-a-marketin/">mastering the art of personal finance in business a marketin</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-and-content-a-comprehensive-guide-for-the-82-2/">mastering web tech and content a comprehensive guide for the</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-2/">mastering web tech content a comprehensive guide 82 2 2</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-3/">mastering web tech content a comprehensive guide 82 2 3</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-4/">mastering web tech content a comprehensive guide 82 2 4</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-5/">mastering web tech content a comprehensive guide 82 2 5</a> 
+<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-6/">mastering web tech content a comprehensive guide 82 2 6</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2/">mastering web tech content a comprehensive guide 82 2</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-82-2/">mastering web tech content a comprehensive guide for modern </a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-82-2-2/">mastering web tech content a comprehensive guide for savvy r</a> 
@@ -34,6 +39,7 @@
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-online-k-82-2/">mastering web tech content a comprehensive guide to online k</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-82-2-2/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-82-2/">mastering web tech content a comprehensive guide to online r</a> 
+<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-reading-82-2/">mastering web tech content a comprehensive guide to reading </a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-82-2/">mastering web tech content a comprehensive guide to reliable</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-crypto-a-comprehensive-guide-for-beginner-82-7/">mastering web tech crypto a comprehensive guide for beginner</a> 
 <a href="https://captainjackinterview.com/mastering-your-digital-life-top-apps-for-productivity-and-or/">mastering your digital life top apps for productivity and or</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-a-83-4/">mastering business finance productivity in the digital age a</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-with-ai-art-prompt-g-83-4/">mastering business finance productivity with ai art prompt g</a> 
 <a href="https://cbd-stone.com/mastering-crypto-essential-terms-news-interpretation-and-wal-83-8/">mastering crypto essential terms news interpretation and wal</a> 
-<a href="https://cbd-stone.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-83-7/">mastering digital literacy guides reviews and how tos for th</a> 
-<a href="https://cbd-stone.com/mastering-digital-skills-top-online-resources-professional-c-83-5/">mastering digital skills top online resources professional c</a> 
-<a href="https://cbd-stone.com/mastering-digital-tools-online-resources-a-comprehensive-gui-83-5-2/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbd-stone.com/mastering-digital-tools-online-resources-a-comprehensive-gui-83-5/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-83-3/">mastering marketing seo and growth a comprehensive guide 83 </a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-for-83-3/">mastering marketing seo and growth a comprehensive guide for</a> 
