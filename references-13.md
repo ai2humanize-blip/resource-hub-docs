@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://competitorscreenshots.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
+<a href="https://competitorscreenshots.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
+<a href="https://competitorscreenshots.com/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
+<a href="https://competitorscreenshots.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://competitorscreenshots.com/rep-res-pour-s-informer-sereinement-sur-les-courses/">rep res pour s informer sereinement sur les courses</a> 
+<a href="https://competitorscreenshots.com/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
+<a href="https://competitorscreenshots.com/techvantor-xyz-resource-1-2/">techvantor xyz resource 1 2</a> 
+<a href="https://competitorscreenshots.com/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
+<a href="https://competitorscreenshots.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://competitorscreenshots.com/the-difference-between-skimming-and-deep-reading-online-expl-2/">the difference between skimming and deep reading online expl</a> 
+<a href="https://competitorscreenshots.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://competitorscreenshots.com/the-teen-patti-terms-glossary/">the teen patti terms glossary</a> 
+<a href="https://competitorscreenshots.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
+<a href="https://competitorscreenshots.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
+<a href="https://competitorscreenshots.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
 <a href="https://competitorscreenshots.com/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
 <a href="https://competitorscreenshots.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
 <a href="https://competitorscreenshots.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
@@ -418,6 +433,7 @@
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-2/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-deep-dive-into-86-6/">mastering business finance and productivity a deep dive into</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-in-the-digital-a-86-6/">mastering business finance and productivity in the digital a</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-10/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-11/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-12/">mastering business finance productivity a comprehensive guid</a> 
@@ -452,6 +468,7 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-4/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-5/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-6/">mastering business finance productivity essential skills for</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-7/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-web-skills-86-6/">mastering business finance productivity essential web skills</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-2/">mastering business finance productivity in the digital age 8</a> 
@@ -459,6 +476,7 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-4/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-5/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-6/">mastering business finance productivity in the digital age 8</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-7/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-2/">mastering business finance productivity in the digital age a</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-3/">mastering business finance productivity in the digital age a</a> 
@@ -784,21 +802,3 @@
 <a href="https://croyale88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://croyale88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://croyale88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://croyale88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://croyale88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://cup88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://cup88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://cup88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://cup88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://cup88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://cup88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://cup88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://cup88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://cup88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://cup88.xyz/hello-world/">hello world</a> 
-<a href="https://cup88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cup88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://cup88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://cup88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://cup88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cup88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 

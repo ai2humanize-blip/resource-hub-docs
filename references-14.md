@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://croyale88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://croyale88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cup88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cup88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cup88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cup88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cup88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cup88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cup88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cup88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cup88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cup88.xyz/hello-world/">hello world</a> 
+<a href="https://cup88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cup88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://cup88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://cup88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://cup88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://cup88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://cup88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
 <a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
@@ -784,21 +802,3 @@
 <a href="https://cyberkannadig.it.com/navigating-the-crypto-world-understanding-bitcoin-blockchain/">navigating the crypto world understanding bitcoin blockchain</a> 
 <a href="https://cyberkannadig.it.com/navigating-the-digital-world-guides-reviews-how-tos-for-info-26-4/">navigating the digital world guides reviews how tos for info</a> 
 <a href="https://cyberkannadig.it.com/navigating-the-digital-world-guides-reviews-how-tos-for-smar-26-4/">navigating the digital world guides reviews how tos for smar</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-ever-changing-landscape-of-news-consumption-i/">navigating the ever changing landscape of news consumption i</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-evolving-landscape-of-news-consumption-in-202-26-3/">navigating the evolving landscape of news consumption in 202</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-evolving-news-landscape-ai-trends-and-indepen-26-3/">navigating the evolving news landscape ai trends and indepen</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-future-how-ai-driven-apps-are-transforming-ou/">navigating the future how ai driven apps are transforming ou</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-future-of-digital-currency-a-deep-dive-into-w-26-3/">navigating the future of digital currency a deep dive into w</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-future-of-media-trends-ai-impact-and-expert-a-26-3/">navigating the future of media trends ai impact and expert a</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-future-of-virginia-childhood-education-2026-i-26-3/">navigating the future of virginia childhood education 2026 i</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-future-web-tech-content-in-the-age-of-bitcoin-26-3/">navigating the future web tech content in the age of bitcoin</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-intersection-of-web-tech-and-content-a-modern-26-3/">navigating the intersection of web tech and content a modern</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-intersection-of-web-tech-and-content-in-today-26-3/">navigating the intersection of web tech and content in today</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-intersection-of-web-tech-content-a-comprehens-26-3/">navigating the intersection of web tech content a comprehens</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-modern-news-landscape-ai-trends-and-reliable-26-3/">navigating the modern news landscape ai trends and reliable </a> 
-<a href="https://cyberkannadig.it.com/navigating-the-modern-news-landscape-web-tech-content-insigh-26-3/">navigating the modern news landscape web tech content insigh</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-new-era-of-news-understanding-today-s-media-l/">navigating the new era of news understanding today s media l</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-shifting-landscape-of-2023-news-media-trends/">navigating the shifting landscape of 2023 news media trends</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-shifting-landscape-of-global-news-consumption/">navigating the shifting landscape of global news consumption</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-web-a-comprehensive-guide-to-guides-reviews-a-26-4/">navigating the web a comprehensive guide to guides reviews a</a> 
-<a href="https://cyberkannadig.it.com/navigating-the-web-a-comprehensive-guide-to-guides-reviews-h-26-4/">navigating the web a comprehensive guide to guides reviews h</a> 

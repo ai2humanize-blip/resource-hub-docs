@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://bitslots.de.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
@@ -676,8 +679,10 @@
 <a href="https://captainjackinterview.com/exploring-the-best-independent-web-tech-content-resources-in-82-7/">exploring the best independent web tech content resources in</a> 
 <a href="https://captainjackinterview.com/exploring-the-dynamic-world-of-web-tech-and-content-82-2/">exploring the dynamic world of web tech and content 82 2</a> 
 <a href="https://captainjackinterview.com/exploring-the-dynamic-world-of-web-tech-content-a-comprehens-82-2/">exploring the dynamic world of web tech content a comprehens</a> 
+<a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2-2/">exploring the interconnected world of web tech content 82 2 </a> 
 <a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2/">exploring the interconnected world of web tech content 82 2</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-2/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-3/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-7/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-content-a-comprehensi-82-2/">exploring the intersection of web tech content a comprehensi</a> 
@@ -797,8 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3-4/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3-5/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-savv-82-3/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-3-2/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-3/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-smar-82-8/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3-2/">mastering online information guides reviews how tos for the </a> 
-<a href="https://captainjackinterview.com/mastering-online-information-guides-reviews-how-tos-for-the-82-3-3/">mastering online information guides reviews how tos for the </a> 
