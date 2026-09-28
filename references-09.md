@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://bitslots.de.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
+<a href="https://bitslots.de.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://bitslots.de.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-82-9-2/">mastering marketing seo growth a comprehensive guide 82 9 2</a> 
 <a href="https://captainjackinterview.com/mastering-marketing-seo-growth-building-digital-skills-for-c-82-4/">mastering marketing seo growth building digital skills for c</a> 
 <a href="https://captainjackinterview.com/mastering-marketing-seo-growth-essential-strategies-for-succ-82-4-2/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://captainjackinterview.com/mastering-marketing-seo-growth-essential-strategies-for-succ-82-4-3/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://captainjackinterview.com/mastering-marketing-seo-growth-essential-strategies-for-succ-82-4/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://captainjackinterview.com/mastering-marketing-seo-growth-strategies-for-modern-success-82-4/">mastering marketing seo growth strategies for modern success</a> 
