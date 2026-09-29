@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/mastering-business-finance-a-marketing-strategy-for-financia/">mastering business finance a marketing strategy for financia</a> 
+<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-5-2/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://captainjackinterview.com/mastering-business-personal-finance-and-marketing-a-comprehe/">mastering business personal finance and marketing a comprehe</a> 
 <a href="https://captainjackinterview.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-82-3/">mastering digital literacy guides reviews and how tos for th</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-6/">mastering digital tools online resources a comprehensive gui</a> 
@@ -138,9 +141,12 @@
 <a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-essential-online-resou-82-2/">navigating the web a curated guide to essential online resou</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-essential-tech-content-82-2-2/">navigating the web a curated guide to essential tech content</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-essential-tech-content-82-2/">navigating the web a curated guide to essential tech content</a> 
+<a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-tech-content-and-relia-82-2/">navigating the web a curated guide to tech content and relia</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-essential-online-res-82-2-2/">navigating the web a practical guide to essential online res</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-essential-online-res-82-2/">navigating the web a practical guide to essential online res</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-reliable-tech-conten-82-2/">navigating the web a practical guide to reliable tech conten</a> 
+<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-useful-online-resour-82-2-2/">navigating the web a practical guide to useful online resour</a> 
+<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-useful-online-resour-82-2-3/">navigating the web a practical guide to useful online resour</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-useful-online-resour-82-2/">navigating the web a practical guide to useful online resour</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-valuable-online-reso-82-2/">navigating the web a practical guide to valuable online reso</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-tech-content-and-staying-safe-online-82-2/">navigating the web tech content and staying safe online 82 2</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
 <a href="https://cbd-stone.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://cbd-stone.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://cbd-stone.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://cbd-stone.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
-<a href="https://cbd-stone.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
-<a href="https://cbd-stone.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://cbd-stone.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://cbd-stone.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
