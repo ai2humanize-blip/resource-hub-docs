@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cbdstent.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cbdstent.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cbdstent.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cbdstent.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cbdstent.com/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
+<a href="https://cbdstent.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cbdstent.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cbdstent.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
 <a href="https://cbdstent.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
 <a href="https://cbdstent.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://cbdstent.com/boost-your-local-seo-proven-strategies-for-small-business-su/">boost your local seo proven strategies for small business su</a> 
@@ -21,6 +33,7 @@
 <a href="https://cbdstent.com/comprehensive-guides-reviews-and-how-tos-the-ultimate-roundu-85-10/">comprehensive guides reviews and how tos the ultimate roundu</a> 
 <a href="https://cbdstent.com/comprehensive-guides-reviews-how-tos-mastering-cryptocurrenc-85-5/">comprehensive guides reviews how tos mastering cryptocurrenc</a> 
 <a href="https://cbdstent.com/comprehensive-guides-reviews-how-tos-navigating-the-digital-85-5/">comprehensive guides reviews how tos navigating the digital </a> 
+<a href="https://cbdstent.com/comprehensive-guides-reviews-how-tos-your-go-to-resource-rou-85-5-2/">comprehensive guides reviews how tos your go to resource rou</a> 
 <a href="https://cbdstent.com/comprehensive-guides-reviews-how-tos-your-go-to-resource-rou-85-5/">comprehensive guides reviews how tos your go to resource rou</a> 
 <a href="https://cbdstent.com/comprehensive-guides-reviews-how-tos-your-ultimate-resource-85-5/">comprehensive guides reviews how tos your ultimate resource </a> 
 <a href="https://cbdstent.com/comprehensive-roundup-guides-reviews-how-tos-for-every-enthu-85-5/">comprehensive roundup guides reviews how tos for every enthu</a> 
@@ -155,6 +168,7 @@
 <a href="https://cbdstent.com/marketing-seo-growth-essential-strategies-for-business-succe-85-6/">marketing seo growth essential strategies for business succe</a> 
 <a href="https://cbdstent.com/master-crypto-basics-guides-reviews-safety-tips-for-beginner-85-10/">master crypto basics guides reviews safety tips for beginner</a> 
 <a href="https://cbdstent.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-85-5-2/">master guides reviews how tos your ultimate resource roundup</a> 
+<a href="https://cbdstent.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-85-5-3/">master guides reviews how tos your ultimate resource roundup</a> 
 <a href="https://cbdstent.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-85-5/">master guides reviews how tos your ultimate resource roundup</a> 
 <a href="https://cbdstent.com/master-online-guides-reviews-how-tos-a-comprehensive-roundup-85-5/">master online guides reviews how tos a comprehensive roundup</a> 
 <a href="https://cbdstent.com/master-online-reading-guides-reviews-and-how-tos-for-savvy-i-85-5/">master online reading guides reviews and how tos for savvy i</a> 
@@ -191,6 +205,7 @@
 <a href="https://cbdstent.com/mastering-guides-reviews-and-how-tos-your-ultimate-resource-85-5/">mastering guides reviews and how tos your ultimate resource </a> 
 <a href="https://cbdstent.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-85-5-2/">mastering guides reviews how tos a comprehensive roundup 85 </a> 
 <a href="https://cbdstent.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-85-5/">mastering guides reviews how tos a comprehensive roundup 85 </a> 
+<a href="https://cbdstent.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-85-5-2/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://cbdstent.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-85-5/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://cbdstent.com/mastering-information-guides-reviews-and-how-tos-for-smarter-85-10/">mastering information guides reviews and how tos for smarter</a> 
 <a href="https://cbdstent.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-85-6-2/">mastering marketing seo and growth a comprehensive guide 85 </a> 
@@ -787,18 +802,3 @@
 <a href="https://competitorscreenshots.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
 <a href="https://competitorscreenshots.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://competitorscreenshots.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://competitorscreenshots.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
-<a href="https://competitorscreenshots.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
-<a href="https://competitorscreenshots.com/crypto-taxes-explained-records-events-and-reporting-basics/">crypto taxes explained records events and reporting basics</a> 
-<a href="https://competitorscreenshots.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://competitorscreenshots.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://competitorscreenshots.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://competitorscreenshots.com/getting-how-to-find-reliable-how-to-guides-right-2/">getting how to find reliable how to guides right 2</a> 
-<a href="https://competitorscreenshots.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://competitorscreenshots.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
-<a href="https://competitorscreenshots.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://competitorscreenshots.com/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
-<a href="https://competitorscreenshots.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://competitorscreenshots.com/getting-how-to-tell-explainer-journalism-from-opinion-right-2/">getting how to tell explainer journalism from opinion right </a> 
-<a href="https://competitorscreenshots.com/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://competitorscreenshots.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
