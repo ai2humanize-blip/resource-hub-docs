@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/leveraging-online-resources-for-personal-and-professional-gr-82-2/">leveraging online resources for personal and professional gr</a> 
+<a href="https://captainjackinterview.com/leveraging-the-latest-apps-for-a-more-productive-digital-lif/">leveraging the latest apps for a more productive digital lif</a> 
+<a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-the-basics-2/">making sense of complex topics online the basics 2</a> 
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
@@ -170,6 +174,7 @@
 <a href="https://captainjackinterview.com/navigating-web-tech-and-content-a-comprehensive-roundup-for-82-2/">navigating web tech and content a comprehensive roundup for </a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-82-2-2/">navigating web tech content a comprehensive guide 82 2 2</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-82-2/">navigating web tech content a comprehensive guide 82 2</a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-2023-82-2/">navigating web tech content a comprehensive guide for 2023 8</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-inform-82-2/">navigating web tech content a comprehensive guide for inform</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-modern-82-2/">navigating web tech content a comprehensive guide for modern</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-82-2-2/">navigating web tech content a comprehensive guide for savvy </a> 
@@ -198,6 +203,7 @@
 <a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
 <a href="https://captainjackinterview.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://captainjackinterview.com/staying-informed-and-competitive-in-web-tech-and-content-a-c-82-2/">staying informed and competitive in web tech and content a c</a> 
 <a href="https://captainjackinterview.com/staying-safe-and-informed-a-guide-to-online-casino-news-and-82-3/">staying safe and informed a guide to online casino news and </a> 
 <a href="https://captainjackinterview.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
 <a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-in-online-casino-and/">staying safe and responsible the latest in online casino and</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
 <a href="https://cbd-stone.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
 <a href="https://cbd-stone.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-the-basics-2/">how to avoid misinformation and hype the basics 2</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://cbd-stone.com/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 

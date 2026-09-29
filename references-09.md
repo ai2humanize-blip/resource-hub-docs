@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/common-questions-answered-16/">common questions answered 16</a> 
+<a href="https://bitslots.de.com/common-questions-answered-17/">common questions answered 17</a> 
+<a href="https://bitslots.de.com/common-questions-answered-18/">common questions answered 18</a> 
 <a href="https://bitslots.de.com/common-questions-answered-19/">common questions answered 19</a> 
 <a href="https://bitslots.de.com/common-questions-answered-2/">common questions answered 2</a> 
 <a href="https://bitslots.de.com/common-questions-answered-20/">common questions answered 20</a> 
@@ -732,6 +735,7 @@
 <a href="https://captainjackinterview.com/exploring-the-web-tech-and-content-a-deep-dive-into-cryptocu-82-2/">exploring the web tech and content a deep dive into cryptocu</a> 
 <a href="https://captainjackinterview.com/exploring-the-world-of-ai-generated-art-creation-selection-a-82-2/">exploring the world of ai generated art creation selection a</a> 
 <a href="https://captainjackinterview.com/exploring-the-world-of-online-casinos-business-finance-and-p-82-5/">exploring the world of online casinos business finance and p</a> 
+<a href="https://captainjackinterview.com/exploring-web-tech-content-a-comprehensive-roundup-82-2/">exploring web tech content a comprehensive roundup 82 2</a> 
 <a href="https://captainjackinterview.com/exploring-web-tech-content-a-comprehensive-roundup-82-7/">exploring web tech content a comprehensive roundup 82 7</a> 
 <a href="https://captainjackinterview.com/exploring-web-tech-content-a-comprehensive-roundup-for-knowl-82-7/">exploring web tech content a comprehensive roundup for knowl</a> 
 <a href="https://captainjackinterview.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
@@ -798,7 +802,3 @@
 <a href="https://captainjackinterview.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
 <a href="https://captainjackinterview.com/keeping-your-phone-speaker-clean-and-clear-essential-tips-an-82-2/">keeping your phone speaker clean and clear essential tips an</a> 
 <a href="https://captainjackinterview.com/le-quint-comprendre-le-pari-hippique-le-plus-suivi/">le quint comprendre le pari hippique le plus suivi</a> 
-<a href="https://captainjackinterview.com/leveraging-online-resources-for-personal-and-professional-gr-82-2/">leveraging online resources for personal and professional gr</a> 
-<a href="https://captainjackinterview.com/leveraging-the-latest-apps-for-a-more-productive-digital-lif/">leveraging the latest apps for a more productive digital lif</a> 
-<a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
