@@ -417,6 +417,7 @@
 <a href="https://agenciainmobiliaria.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://agenciainmobiliaria.xyz/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://agenciainmobiliaria.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://agenciainmobiliaria.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
 <a href="https://agenciainmobiliaria.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://agenciainmobiliaria.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://agenciainmobiliaria.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
@@ -424,13 +425,16 @@
 <a href="https://agenciainmobiliaria.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://agenciainmobiliaria.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://agenciainmobiliaria.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://agenciainmobiliaria.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
 <a href="https://agenciainmobiliaria.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://agenciainmobiliaria.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://agenciainmobiliaria.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://agenciainmobiliaria.xyz/finding-the-right-outlet-for-your-announcement/">finding the right outlet for your announcement</a> 
 <a href="https://agenciainmobiliaria.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
 <a href="https://agenciainmobiliaria.xyz/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://agenciainmobiliaria.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://agenciainmobiliaria.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://agenciainmobiliaria.xyz/how-digital-pr-and-sponsored-content-actually-work/">how digital pr and sponsored content actually work</a> 
 <a href="https://agenciainmobiliaria.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://agenciainmobiliaria.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://agenciainmobiliaria.xyz/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
@@ -798,7 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-essential-strategies-for-succ-75-6-2/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-essential-strategies-for-succ-75-6-3/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-essential-strategies-for-succ-75-6/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-essential-tools-and-strategie-75-6/">mastering marketing seo growth essential tools and strategie</a> 
-<a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-in-2026-a-comprehensive-guide-75-6/">mastering marketing seo growth in 2026 a comprehensive guide</a> 
-<a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-strategies-for-business-succe-75-6/">mastering marketing seo growth strategies for business succe</a> 
-<a href="https://agriculture-lawyer.com/mastering-marketing-seo-growth-strategies-for-success-75-6-2/">mastering marketing seo growth strategies for success 75 6 2</a> 
