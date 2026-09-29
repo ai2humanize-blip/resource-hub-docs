@@ -374,6 +374,9 @@
 <a href="https://bandemusic.com/navigating-business-finance-and-productivity-a-comprehensive-81-1/">navigating business finance and productivity a comprehensive</a> 
 <a href="https://bandemusic.com/navigating-business-finance-and-productivity-in-the-age-of-c-81-1/">navigating business finance and productivity in the age of c</a> 
 <a href="https://bandemusic.com/navigating-business-finance-productivity-a-comprehensive-gui-81-1/">navigating business finance productivity a comprehensive gui</a> 
+<a href="https://bandemusic.com/navigating-business-finance-productivity-a-curated-guide-to-81-1-2/">navigating business finance productivity a curated guide to </a> 
+<a href="https://bandemusic.com/navigating-business-finance-productivity-a-curated-guide-to-81-1/">navigating business finance productivity a curated guide to </a> 
+<a href="https://bandemusic.com/navigating-business-finance-productivity-a-guide-to-trustwor-81-1/">navigating business finance productivity a guide to trustwor</a> 
 <a href="https://bandemusic.com/navigating-business-finance-productivity-a-practical-guide-t-81-1/">navigating business finance productivity a practical guide t</a> 
 <a href="https://bandemusic.com/navigating-business-finance-productivity-in-the-digital-age-81-1/">navigating business finance productivity in the digital age </a> 
 <a href="https://bandemusic.com/navigating-modern-careers-strategies-for-growth-success-and-81-5/">navigating modern careers strategies for growth success and </a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/common-questions-answered/">common questions answered</a> 
 <a href="https://bitslots.de.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
 <a href="https://bitslots.de.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://bitslots.de.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
-<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 

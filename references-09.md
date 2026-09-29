@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
+<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
 <a href="https://bitslots.de.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://bitslots.de.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://bitslots.de.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-82-8/">mastering guides reviews how tos your ultimate round up for </a> 
 <a href="https://captainjackinterview.com/mastering-indian-legal-news-guides-reviews-and-how-tos-for-e-82-3/">mastering indian legal news guides reviews and how tos for e</a> 
 <a href="https://captainjackinterview.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-82-4/">mastering marketing seo and growth a comprehensive guide 82 </a> 
-<a href="https://captainjackinterview.com/mastering-marketing-seo-and-growth-in-the-crypto-and-web3-sp-82-4/">mastering marketing seo and growth in the crypto and web3 sp</a> 
-<a href="https://captainjackinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-82-4-2/">mastering marketing seo growth a comprehensive guide 82 4 2</a> 
-<a href="https://captainjackinterview.com/mastering-marketing-seo-growth-a-comprehensive-guide-82-4-3/">mastering marketing seo growth a comprehensive guide 82 4 3</a> 

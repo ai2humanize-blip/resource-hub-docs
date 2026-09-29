@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://cbdstent.com/5-proven-strategies-to-skyrocket-your-website-s-organic-traf/">5 proven strategies to skyrocket your website s organic traf</a> 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://cbdstent.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://cbdstent.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cbdstent.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://cbdstent.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cbdstent.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cbdstent.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://cbdstent.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cbdstent.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cbdstent.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -174,6 +186,7 @@
 <a href="https://cbdstent.com/master-online-reading-guides-reviews-and-how-tos-for-savvy-i-85-5/">master online reading guides reviews and how tos for savvy i</a> 
 <a href="https://cbdstent.com/master-online-research-guides-reviews-how-tos-for-smart-sear-85-5/">master online research guides reviews how tos for smart sear</a> 
 <a href="https://cbdstent.com/master-the-web-guides-reviews-and-how-tos-for-every-learner-85-5/">master the web guides reviews and how tos for every learner </a> 
+<a href="https://cbdstent.com/master-the-web-guides-reviews-and-how-tos-for-savvy-internet-85-5/">master the web guides reviews and how tos for savvy internet</a> 
 <a href="https://cbdstent.com/master-the-web-guides-reviews-how-tos-for-savvy-readers-85-5/">master the web guides reviews how tos for savvy readers 85 5</a> 
 <a href="https://cbdstent.com/master-your-online-experience-guides-reviews-and-how-tos-for-85-5/">master your online experience guides reviews and how tos for</a> 
 <a href="https://cbdstent.com/mastering-app-efficiency-boost-your-digital-experience-with/">mastering app efficiency boost your digital experience with</a> 
@@ -261,6 +274,7 @@
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5-3/">mastering online information guides reviews and how tos for </a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5-4/">mastering online information guides reviews and how tos for </a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5-5/">mastering online information guides reviews and how tos for </a> 
+<a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5-6/">mastering online information guides reviews and how tos for </a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-and-how-tos-for-85-5/">mastering online information guides reviews and how tos for </a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-3/">mastering online information guides reviews how tos for savv</a> 
@@ -268,6 +282,7 @@
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-5/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-6/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-7/">mastering online information guides reviews how tos for savv</a> 
+<a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5-8/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-savv-85-5/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-smar-85-5/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://cbdstent.com/mastering-online-information-guides-reviews-how-tos-for-the-85-5-2/">mastering online information guides reviews how tos for the </a> 
@@ -787,18 +802,3 @@
 <a href="https://competitorscreenshots.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://competitorscreenshots.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://competitorscreenshots.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://competitorscreenshots.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
-<a href="https://competitorscreenshots.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://competitorscreenshots.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
-<a href="https://competitorscreenshots.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://competitorscreenshots.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://competitorscreenshots.com/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
-<a href="https://competitorscreenshots.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
-<a href="https://competitorscreenshots.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
-<a href="https://competitorscreenshots.com/blueflamepublishingblog-xyz-resource-1-2/">blueflamepublishingblog xyz resource 1 2</a> 
-<a href="https://competitorscreenshots.com/blueflamepublishingblog-xyz-resource-1/">blueflamepublishingblog xyz resource 1</a> 
-<a href="https://competitorscreenshots.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
-<a href="https://competitorscreenshots.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://competitorscreenshots.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
