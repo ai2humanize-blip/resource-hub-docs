@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/common-questions-answered-21/">common questions answered 21</a> 
+<a href="https://bitslots.de.com/common-questions-answered-22/">common questions answered 22</a> 
+<a href="https://bitslots.de.com/common-questions-answered-23/">common questions answered 23</a> 
 <a href="https://bitslots.de.com/common-questions-answered-24/">common questions answered 24</a> 
 <a href="https://bitslots.de.com/common-questions-answered-25/">common questions answered 25</a> 
 <a href="https://bitslots.de.com/common-questions-answered-26/">common questions answered 26</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/making-sense-of-web-tech-content-a-comprehensive-guide-82-2/">making sense of web tech content a comprehensive guide 82 2</a> 
 <a href="https://captainjackinterview.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://captainjackinterview.com/master-marketing-seo-growth-your-guide-to-online-success-82-4/">master marketing seo growth your guide to online success 82 </a> 
-<a href="https://captainjackinterview.com/master-the-art-of-cheap-flight-booking-tips-tools-and-timing-82-4/">master the art of cheap flight booking tips tools and timing</a> 
-<a href="https://captainjackinterview.com/master-the-art-of-online-reading-guides-reviews-how-tos-82-3/">master the art of online reading guides reviews how tos 82 3</a> 
-<a href="https://captainjackinterview.com/mastering-app-organization-boost-productivity-with-smart-dig/">mastering app organization boost productivity with smart dig</a> 
