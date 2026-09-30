@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy-2/">how to tell if a website is trustworthy 2</a> 
+<a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters-2/">how to tell if a website is trustworthy and why it matters 2</a> 
+<a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://captainjackinterview.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://captainjackinterview.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
 <a href="https://captainjackinterview.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
 <a href="https://captainjackinterview.com/keeping-your-phone-speaker-clean-and-clear-essential-tips-an-82-2/">keeping your phone speaker clean and clear essential tips an</a> 
@@ -181,6 +186,7 @@
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-82-2/">navigating web tech content a comprehensive guide 82 2</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-2023-82-2/">navigating web tech content a comprehensive guide for 2023 8</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-inform-82-2/">navigating web tech content a comprehensive guide for inform</a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-job-se-82-2/">navigating web tech content a comprehensive guide for job se</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-modern-82-2/">navigating web tech content a comprehensive guide for modern</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-82-2-2/">navigating web tech content a comprehensive guide for savvy </a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-82-2/">navigating web tech content a comprehensive guide for savvy </a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
 <a href="https://cbd-stone.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://cbd-stone.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://cbd-stone.com/getting-simple-habits-of-a-smart-internet-reader-right-2/">getting simple habits of a smart internet reader right 2</a> 
-<a href="https://cbd-stone.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
-<a href="https://cbd-stone.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://cbd-stone.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://cbd-stone.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
-<a href="https://cbd-stone.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
