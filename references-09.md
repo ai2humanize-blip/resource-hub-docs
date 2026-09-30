@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/common-questions-answered-13/">common questions answered 13</a> 
+<a href="https://bitslots.de.com/common-questions-answered-14/">common questions answered 14</a> 
+<a href="https://bitslots.de.com/common-questions-answered-15/">common questions answered 15</a> 
 <a href="https://bitslots.de.com/common-questions-answered-16/">common questions answered 16</a> 
 <a href="https://bitslots.de.com/common-questions-answered-17/">common questions answered 17</a> 
 <a href="https://bitslots.de.com/common-questions-answered-18/">common questions answered 18</a> 
@@ -726,6 +729,7 @@
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-3/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-4/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-5/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-6/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-7/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-content-a-comprehensi-82-2-2/">exploring the intersection of web tech content a comprehensi</a> 
@@ -798,7 +802,3 @@
 <a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
 <a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
 <a href="https://captainjackinterview.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://captainjackinterview.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
-<a href="https://captainjackinterview.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://captainjackinterview.com/keeping-your-phone-speaker-clean-and-clear-essential-tips-an-82-2/">keeping your phone speaker clean and clear essential tips an</a> 
-<a href="https://captainjackinterview.com/le-quint-comprendre-le-pari-hippique-le-plus-suivi/">le quint comprendre le pari hippique le plus suivi</a> 

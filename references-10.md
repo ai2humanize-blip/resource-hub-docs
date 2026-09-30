@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
+<a href="https://captainjackinterview.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://captainjackinterview.com/keeping-your-phone-speaker-clean-and-clear-essential-tips-an-82-2/">keeping your phone speaker clean and clear essential tips an</a> 
+<a href="https://captainjackinterview.com/le-quint-comprendre-le-pari-hippique-le-plus-suivi/">le quint comprendre le pari hippique le plus suivi</a> 
 <a href="https://captainjackinterview.com/leveraging-online-resources-for-personal-and-professional-gr-82-2/">leveraging online resources for personal and professional gr</a> 
 <a href="https://captainjackinterview.com/leveraging-the-latest-apps-for-a-more-productive-digital-lif/">leveraging the latest apps for a more productive digital lif</a> 
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
@@ -85,6 +89,7 @@
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-4/">mastering web tech content a comprehensive guide 82 2 4</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-5/">mastering web tech content a comprehensive guide 82 2 5</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-6/">mastering web tech content a comprehensive guide 82 2 6</a> 
+<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-7/">mastering web tech content a comprehensive guide 82 2 7</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2/">mastering web tech content a comprehensive guide 82 2</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-82-2-2/">mastering web tech content a comprehensive guide for modern </a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-82-2/">mastering web tech content a comprehensive guide for modern </a> 
@@ -310,6 +315,7 @@
 <a href="https://captainjackinterview.com/virginia-childhood-education-what-to-know-in-2026-82-3/">virginia childhood education what to know in 2026 82 3</a> 
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
+<a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-82-2/">web tech content a comprehensive guide to navigating the dig</a> 
 <a href="https://captainjackinterview.com/web-tech-content-navigating-the-digital-landscape-for-succes-82-2/">web tech content navigating the digital landscape for succes</a> 
 <a href="https://captainjackinterview.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
 <a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://cbd-stone.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
 <a href="https://cbd-stone.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://cbd-stone.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://cbd-stone.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://cbd-stone.com/how-ai-driven-apps-are-transforming-our-daily-digital-lives/">how ai driven apps are transforming our daily digital lives</a> 
-<a href="https://cbd-stone.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://cbd-stone.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://cbd-stone.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
