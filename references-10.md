@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://captainjackinterview.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://captainjackinterview.com/how-to-spot-low-quality-content-online-explained-simply-2/">how to spot low quality content online explained simply 2</a> 
+<a href="https://captainjackinterview.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
+<a href="https://captainjackinterview.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://captainjackinterview.com/how-to-stay-informed-navigating-current-news-explainers-and/">how to stay informed navigating current news explainers and</a> 
 <a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy-2/">how to tell if a website is trustworthy 2</a> 
 <a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters-2/">how to tell if a website is trustworthy and why it matters 2</a> 
 <a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
 <a href="https://cbd-stone.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
 <a href="https://cbd-stone.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
-<a href="https://cbd-stone.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://cbd-stone.com/getting-how-to-find-balanced-coverage-of-a-topic-right-2/">getting how to find balanced coverage of a topic right 2</a> 
-<a href="https://cbd-stone.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
-<a href="https://cbd-stone.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://cbd-stone.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://cbd-stone.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 

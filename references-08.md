@@ -271,7 +271,10 @@
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-15/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-16/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-17/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-18/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-19/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-2/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-20/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-4/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-business-finance-and-productivity-a-comprehensive-81-1-5/">mastering business finance and productivity a comprehensive </a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
 <a href="https://bitslots.de.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
 <a href="https://bitslots.de.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://bitslots.de.com/common-questions-about-daily-prayer-times-answered/">common questions about daily prayer times answered</a> 
-<a href="https://bitslots.de.com/common-questions-about-indonesian-documents-and-services-ans/">common questions about indonesian documents and services ans</a> 
-<a href="https://bitslots.de.com/common-questions-about-the-air-quality-index-answered/">common questions about the air quality index answered</a> 
