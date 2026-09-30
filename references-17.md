@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run">debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--ed851c8897d511f183d11607ee4eb77e.web.val.run">debra--ed851c8897d511f183d11607ee4eb77e.web.val.run</a> 
+<a href="https://decentralwatch.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://decentralwatch.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://decentralwatch.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://decentralwatch.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://decentralwatch.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://decentralwatch.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://decentralwatch.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://decentralwatch.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://decentralwatch.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://decentralwatch.xyz/hello-world/">hello world</a> 
+<a href="https://decentralwatch.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://decentralwatch.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://decentralwatch.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://decentralwatch.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://decentralwatch.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
@@ -291,6 +305,7 @@
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-for-smarter-reading-89-9/">mastering digital tools online resources for smarter reading</a> 
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-for-smarter-researc-89-9/">mastering digital tools online resources for smarter researc</a> 
+<a href="https://dellywoodfilms.com/mastering-marketing-seo-growth-a-comprehensive-guide-89-7/">mastering marketing seo growth a comprehensive guide 89 7</a> 
 <a href="https://dellywoodfilms.com/mastering-marketing-seo-growth-strategies-for-business-succe-89-2/">mastering marketing seo growth strategies for business succe</a> 
 <a href="https://dellywoodfilms.com/mastering-marketing-seo-growth-strategies-for-success-89-2-2/">mastering marketing seo growth strategies for success 89 2 2</a> 
 <a href="https://dellywoodfilms.com/mastering-marketing-seo-growth-strategies-for-success-89-2/">mastering marketing seo growth strategies for success 89 2</a> 
@@ -322,6 +337,7 @@
 <a href="https://dellywoodfilms.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-89-10/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://dellywoodfilms.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-89-10-2/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://dellywoodfilms.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-89-10/">mastering web tech content a comprehensive guide to online r</a> 
+<a href="https://dellywoodfilms.com/mastering-web-tech-content-a-comprehensive-guide-to-seo-and-89-5/">mastering web tech content a comprehensive guide to seo and </a> 
 <a href="https://dellywoodfilms.com/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-89-10/">mastering web tech content a comprehensive guide to smart on</a> 
 <a href="https://dellywoodfilms.com/mastering-web-tech-content-a-comprehensive-guide-to-smarter-89-10/">mastering web tech content a comprehensive guide to smarter </a> 
 <a href="https://dellywoodfilms.com/mastering-web-tech-crypto-a-comprehensive-guide-for-beginner-89-5/">mastering web tech crypto a comprehensive guide for beginner</a> 
@@ -419,6 +435,7 @@
 <a href="https://dellywoodfilms.com/the-rise-of-ai-powered-apps-transforming-the-digital-landsca/">the rise of ai powered apps transforming the digital landsca</a> 
 <a href="https://dellywoodfilms.com/the-ultimate-guide-to-boosting-your-website-s-seo-with-inter/">the ultimate guide to boosting your website s seo with inter</a> 
 <a href="https://dellywoodfilms.com/the-ultimate-guide-to-choosing-the-perfect-coffee-maker-for/">the ultimate guide to choosing the perfect coffee maker for</a> 
+<a href="https://dellywoodfilms.com/the-ultimate-guide-to-web-tech-content-finding-guest-posting-89-5/">the ultimate guide to web tech content finding guest posting</a> 
 <a href="https://dellywoodfilms.com/the-ultimate-watch-buying-guide-choosing-the-perfect-timepie/">the ultimate watch buying guide choosing the perfect timepie</a> 
 <a href="https://dellywoodfilms.com/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
 <a href="https://dellywoodfilms.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
@@ -785,20 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-digital-literacy-6mo">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-digital-proficiency-57a6">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-digital-skills-and-certifications-484o">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-digital-success-2pp6">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-evaluating-online-information-2k60">mastering web tech content a comprehensive guide to evaluati</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-learning-and-evaluation-3hb1">mastering web tech content a comprehensive guide to learning</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-navigating-online-information-3mbp">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-navigating-the-digital-landscape-33jm">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-navigating-the-digital-world-3670">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-navigating-the-digital-world-37j1">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-navigating-the-digital-world-4kn">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-navigating-the-digital-world-59lc">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-navigating-the-digital-world-5hjb">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-online-knowledge-5173">mastering web tech content a comprehensive guide to online k</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-online-literacy-2gom">mastering web tech content a comprehensive guide to online l</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-online-reading-and-research-2md">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-online-research-and-consumption-4eee">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-online-research-and-evaluation-57o6">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-online-research-and-evaluation-59d">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-to-organizing-evaluating-and-reading-online-5118">mastering web tech content a comprehensive guide to organizi</a> 

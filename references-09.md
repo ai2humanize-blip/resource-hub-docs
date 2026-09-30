@@ -712,6 +712,7 @@
 <a href="https://captainjackinterview.com/discover-the-best-no-download-web-games-the-tech-behind-them-82-7/">discover the best no download web games the tech behind them</a> 
 <a href="https://captainjackinterview.com/embrace-organic-living-health-and-wellness-tips-for-a-balanc/">embrace organic living health and wellness tips for a balanc</a> 
 <a href="https://captainjackinterview.com/enhancing-your-digital-life-top-apps-for-privacy-and-product/">enhancing your digital life top apps for privacy and product</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-everyday-use-82-1/">essential digital tools online resources for everyday use 82</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-6/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-savvy-readers-a-82-6/">essential digital tools online resources for savvy readers a</a> 
@@ -801,4 +802,3 @@
 <a href="https://captainjackinterview.com/how-to-evaluate-online-reviews-and-recommendations-the-basics/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://captainjackinterview.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
 <a href="https://captainjackinterview.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
-<a href="https://captainjackinterview.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
