@@ -2,6 +2,36 @@
 
 [index](README.md) · [‹ prev](references-51.md)
 
+<a href="https://vipjili.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://vipjili.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://vipjili.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://vipjili.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://visionary-douhua-23676e.netlify.app/the-montserrat-and-merriweather-pairing.html">the montserrat and merriweather pairing</a> 
+<a href="https://vocal-maamoul-7f2b87.netlify.app/staying-safe-and-informed-the-latest-in-online-casino-and-ga.html">staying safe and informed the latest in online casino and ga</a> 
+<a href="https://voluble-cucurucho-78c424.netlify.app/a-closer-look-at-how-to-fact-check-something-in-five-minutes.html">a closer look at how to fact check something in five minutes</a> 
+<a href="https://voluble-phoenix-ea17d0.netlify.app/a-closer-look-at-why-primary-sources-matter-and-how-to-find-.html">a closer look at why primary sources matter and how to find</a> 
+<a href="https://voslot777.xyz/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://voslot777.xyz/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://voslot777.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://voslot777.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://voslot777.xyz/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://voslot777.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://voslot777.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
+<a href="https://voslot777.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://voslot777.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://voslot777.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
+<a href="https://voslot777.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://voslot777.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://voslot777.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://voslot777.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://voslot777.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://voslot777.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
+<a href="https://voslot777.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://voslot777.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://voslot777.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://voslot777.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://voslot777.xyz/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://voslot777.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://voslot777.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://voslot777.xyz/how-digital-pr-and-sponsored-content-actually-work/">how digital pr and sponsored content actually work</a> 
 <a href="https://voslot777.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
