@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://cnlawblog.jpn.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cnlawblog.jpn.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://cnlawblog.jpn.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cnlawblog.jpn.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cnlawblog.jpn.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cnlawblog.jpn.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://cnlawblog.jpn.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://cnlawblog.jpn.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cnlawblog.jpn.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://cnlawblog.jpn.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://cnlawblog.jpn.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://cnlawblog.jpn.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
@@ -731,6 +747,8 @@
 <a href="https://crediblenews24.com/master-digital-tools-online-resources-a-comprehensive-guide-86-7/">master digital tools online resources a comprehensive guide </a> 
 <a href="https://crediblenews24.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-86-8/">master the art of budget travel find cheap flights and save </a> 
 <a href="https://crediblenews24.com/mastering-app-mastery-navigating-the-digital-world-with-conf/">mastering app mastery navigating the digital world with conf</a> 
+<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-10/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-11/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-2/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-4/">mastering business finance and productivity a comprehensive </a> 
@@ -784,21 +802,3 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-2/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-3/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-4/">mastering business finance productivity essential skills for</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-5/">mastering business finance productivity essential skills for</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-6/">mastering business finance productivity essential skills for</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6-7/">mastering business finance productivity essential skills for</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6/">mastering business finance productivity essential skills for</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-tips-and-i-86-6/">mastering business finance productivity essential tips and i</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-web-skills-86-6/">mastering business finance productivity essential web skills</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-2/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-3/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-4/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-5/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-6/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-7/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-2/">mastering business finance productivity in the digital age a</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-3/">mastering business finance productivity in the digital age a</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-4/">mastering business finance productivity in the digital age a</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-5/">mastering business finance productivity in the digital age a</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6/">mastering business finance productivity in the digital age a</a> 

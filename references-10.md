@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://captainjackinterview.com/how-ai-powered-apps-are-transforming-everyday-life-and-work/">how ai powered apps are transforming everyday life and work</a> 
+<a href="https://captainjackinterview.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://captainjackinterview.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://captainjackinterview.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
+<a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
 <a href="https://captainjackinterview.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
 <a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
@@ -792,13 +802,3 @@
 <a href="https://cbd-stone.com/discover-top-digital-tools-online-resources-for-news-finance-83-5/">discover top digital tools online resources for news finance</a> 
 <a href="https://cbd-stone.com/discover-unique-event-ideas-and-expert-planning-tips-for-mem/">discover unique event ideas and expert planning tips for mem</a> 
 <a href="https://cbd-stone.com/discovering-the-art-of-home-coffee-brewing-a-beginner-s-guid/">discovering the art of home coffee brewing a beginner s guid</a> 
-<a href="https://cbd-stone.com/embracing-timeless-fashion-how-to-incorporate-classic-styles/">embracing timeless fashion how to incorporate classic styles</a> 
-<a href="https://cbd-stone.com/essential-digital-tools-online-resources-a-comprehensive-rou-83-5/">essential digital tools online resources a comprehensive rou</a> 
-<a href="https://cbd-stone.com/essential-digital-tools-online-resources-for-crypto-and-bloc-83-5/">essential digital tools online resources for crypto and bloc</a> 
-<a href="https://cbd-stone.com/essential-digital-tools-online-resources-for-everyday-life-83-5/">essential digital tools online resources for everyday life 8</a> 
-<a href="https://cbd-stone.com/essential-digital-tools-online-resources-for-informed-citize-83-5/">essential digital tools online resources for informed citize</a> 
-<a href="https://cbd-stone.com/essential-digital-tools-online-resources-for-modern-living-83-5/">essential digital tools online resources for modern living 8</a> 
-<a href="https://cbd-stone.com/essential-digital-tools-online-resources-for-smarter-interne-83-10/">essential digital tools online resources for smarter interne</a> 
-<a href="https://cbd-stone.com/essential-digital-tools-online-resources-for-staying-informe-83-5/">essential digital tools online resources for staying informe</a> 
-<a href="https://cbd-stone.com/essential-online-resources-for-business-finance-and-producti-83-4/">essential online resources for business finance and producti</a> 
-<a href="https://cbd-stone.com/essential-online-resources-for-marketing-seo-growth-83-3/">essential online resources for marketing seo growth 83 3</a> 
