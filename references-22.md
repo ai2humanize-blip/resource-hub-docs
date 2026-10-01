@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://feetfinder.uk.net/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://feetfinder.uk.net/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
+<a href="https://feetfinder.uk.net/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://feetfinder.uk.net/common-questions-about-daily-prayer-times-answered/">common questions about daily prayer times answered</a> 
+<a href="https://feetfinder.uk.net/common-questions-about-indonesian-documents-and-services-ans/">common questions about indonesian documents and services ans</a> 
+<a href="https://feetfinder.uk.net/common-questions-about-the-air-quality-index-answered/">common questions about the air quality index answered</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-10/">common questions answered 10</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-11/">common questions answered 11</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-12/">common questions answered 12</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-13/">common questions answered 13</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-14/">common questions answered 14</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-16/">common questions answered 16</a> 
 <a href="https://feetfinder.uk.net/common-questions-answered-17/">common questions answered 17</a> 
 <a href="https://feetfinder.uk.net/common-questions-answered-18/">common questions answered 18</a> 
 <a href="https://feetfinder.uk.net/common-questions-answered-19/">common questions answered 19</a> 
@@ -790,15 +802,3 @@
 <a href="https://financieelveiligouderworden.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
 <a href="https://financieelveiligouderworden.com/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
 <a href="https://financieelveiligouderworden.com/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
-<a href="https://financieelveiligouderworden.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://financieelveiligouderworden.com/getting-the-basics-of-staying-safe-while-browsing-right-2/">getting the basics of staying safe while browsing right 2</a> 
-<a href="https://financieelveiligouderworden.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://financieelveiligouderworden.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://financieelveiligouderworden.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://financieelveiligouderworden.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://financieelveiligouderworden.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
-<a href="https://financieelveiligouderworden.com/how-ai-driven-apps-are-transforming-our-daily-lives-and-work/">how ai driven apps are transforming our daily lives and work</a> 
-<a href="https://financieelveiligouderworden.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
-<a href="https://financieelveiligouderworden.com/how-ai-is-transforming-news-reporting-current-trends-and-fut/">how ai is transforming news reporting current trends and fut</a> 
-<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-revolutionizing-daily-life-in-the-di/">how ai powered apps are revolutionizing daily life in the di</a> 
-<a href="https://financieelveiligouderworden.com/how-ai-powered-apps-are-transforming-daily-life-for-the-bett/">how ai powered apps are transforming daily life for the bett</a> 
