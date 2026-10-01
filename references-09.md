@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bitslots.de.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://bitslots.de.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://bitslots.de.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://bitslots.de.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://bitslots.de.com/arcenturf-co-resource-3-2/">arcenturf co resource 3 2</a> 
+<a href="https://bitslots.de.com/arcenturf-co-resource-3-3/">arcenturf co resource 3 3</a> 
 <a href="https://bitslots.de.com/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
 <a href="https://bitslots.de.com/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
 <a href="https://bitslots.de.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
@@ -794,11 +802,3 @@
 <a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
 <a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
 <a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://captainjackinterview.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
-<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://captainjackinterview.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
-<a href="https://captainjackinterview.com/how-to-evaluate-online-reviews-and-recommendations-the-basics/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://captainjackinterview.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
-<a href="https://captainjackinterview.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 

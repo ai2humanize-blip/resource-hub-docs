@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cnlawblog.jpn.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cnlawblog.jpn.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cnlawblog.jpn.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cnlawblog.jpn.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-organize-the-information-you-find-online-right/">getting how to organize the information you find online righ</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
@@ -794,11 +802,3 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-4/">mastering business finance productivity in the digital age a</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6-5/">mastering business finance productivity in the digital age a</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-a-86-6/">mastering business finance productivity in the digital age a</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-top-online-resources-86-6/">mastering business finance productivity top online resources</a> 
-<a href="https://crediblenews24.com/mastering-business-growth-integrating-personal-finance-and-m/">mastering business growth integrating personal finance and m</a> 
-<a href="https://crediblenews24.com/mastering-career-changes-job-searches-and-legal-knowledge-es-86-9/">mastering career changes job searches and legal knowledge es</a> 
-<a href="https://crediblenews24.com/mastering-communication-home-upgrades-and-digital-privacy-a-86-9/">mastering communication home upgrades and digital privacy a </a> 
-<a href="https://crediblenews24.com/mastering-crypto-essential-terms-news-reading-and-wallet-saf-86-2/">mastering crypto essential terms news reading and wallet saf</a> 
-<a href="https://crediblenews24.com/mastering-crypto-guides-reviews-and-how-tos-for-bitcoin-and-86-9/">mastering crypto guides reviews and how tos for bitcoin and </a> 
-<a href="https://crediblenews24.com/mastering-digital-literacy-essential-tools-online-resources-86-7/">mastering digital literacy essential tools online resources </a> 
-<a href="https://crediblenews24.com/mastering-digital-literacy-essential-tools-resources-for-the-86-7/">mastering digital literacy essential tools resources for the</a> 

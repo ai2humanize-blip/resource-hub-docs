@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://captainjackinterview.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://captainjackinterview.com/how-to-evaluate-online-reviews-and-recommendations-the-basics/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://captainjackinterview.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
+<a href="https://captainjackinterview.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://captainjackinterview.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://captainjackinterview.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
 <a href="https://captainjackinterview.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
@@ -794,11 +802,3 @@
 <a href="https://cbd-stone.com/essential-digital-tools-online-resources-for-staying-informe-83-5/">essential digital tools online resources for staying informe</a> 
 <a href="https://cbd-stone.com/essential-online-resources-for-business-finance-and-producti-83-4/">essential online resources for business finance and producti</a> 
 <a href="https://cbd-stone.com/essential-online-resources-for-marketing-seo-growth-83-3/">essential online resources for marketing seo growth 83 3</a> 
-<a href="https://cbd-stone.com/essential-strategies-for-business-finance-productivity-in-th-83-4/">essential strategies for business finance productivity in th</a> 
-<a href="https://cbd-stone.com/essential-tips-for-cleaning-fixing-and-protecting-your-phone-83-3/">essential tips for cleaning fixing and protecting your phone</a> 
-<a href="https://cbd-stone.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://cbd-stone.com/expert-guides-reviews-and-how-tos-transform-your-life-with-i-83-7/">expert guides reviews and how tos transform your life with i</a> 
-<a href="https://cbd-stone.com/exploring-digital-tools-online-resources-transforming-sports-83-5/">exploring digital tools online resources transforming sports</a> 
-<a href="https://cbd-stone.com/exploring-essential-digital-tools-online-resources-for-every-83-5/">exploring essential digital tools online resources for every</a> 
-<a href="https://cbd-stone.com/exploring-essential-digital-tools-online-resources-for-moder-83-5/">exploring essential digital tools online resources for moder</a> 
-<a href="https://cbd-stone.com/exploring-informative-websites-guides-reviews-and-how-tos-fo-83-2/">exploring informative websites guides reviews and how tos fo</a> 
