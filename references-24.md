@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://getolive.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://getolive.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://getolive.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine-2/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://getolive.org/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
+<a href="https://getolive.org/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://getolive.org/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
+<a href="https://getolive.org/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://getolive.org/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
+<a href="https://getolive.org/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://getolive.org/boosting-business-mastering-finance-and-amplifying-productiv-97-5/">boosting business mastering finance and amplifying productiv</a> 
+<a href="https://getolive.org/boosting-your-business-and-personal-finances-smart-marketing/">boosting your business and personal finances smart marketing</a> 
+<a href="https://getolive.org/breaking-down-the-latest-sports-news-and-in-depth-analysis-f/">breaking down the latest sports news and in depth analysis f</a> 
+<a href="https://getolive.org/breaking-down-today-s-top-news-in-depth-analysis-and-expert/">breaking down today s top news in depth analysis and expert</a> 
+<a href="https://getolive.org/building-a-healthy-daily-reading-habit-the-basics-2/">building a healthy daily reading habit the basics 2</a> 
+<a href="https://getolive.org/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
 <a href="https://getolive.org/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
 <a href="https://getolive.org/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://getolive.org/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
@@ -153,11 +171,14 @@
 <a href="https://getolive.org/mastering-the-art-of-personal-finance-for-business-growth-an/">mastering the art of personal finance for business growth an</a> 
 <a href="https://getolive.org/mastering-turf-betting-guides-reviews-and-how-tos-for-succes-97-3/">mastering turf betting guides reviews and how tos for succes</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-97-7/">mastering web tech content a comprehensive guide 97 7</a> 
+<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-97-7/">mastering web tech content a comprehensive guide for savvy r</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-97-7-2/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-97-7-3/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-97-7/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-97-7-2/">mastering web tech content a comprehensive guide for the mod</a> 
+<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-97-7-3/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-97-7/">mastering web tech content a comprehensive guide for the mod</a> 
+<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-digital-97-7-2/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-digital-97-7/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-navigati-97-7-2/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-navigati-97-7-3/">mastering web tech content a comprehensive guide to navigati</a> 
@@ -781,24 +802,3 @@
 <a href="https://globespro.it.com/navigating-online-casino-news-safety-trends-and-responsible/">navigating online casino news safety trends and responsible</a> 
 <a href="https://globespro.it.com/navigating-the-complex-world-of-legal-news-and-general-legal/">navigating the complex world of legal news and general legal</a> 
 <a href="https://globespro.it.com/navigating-the-complexities-of-today-s-news-landscape-an-in/">navigating the complexities of today s news landscape an in</a> 
-<a href="https://globespro.it.com/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon-2/">navigating the crypto landscape bitcoin blockchain and beyon</a> 
-<a href="https://globespro.it.com/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon/">navigating the crypto landscape bitcoin blockchain and beyon</a> 
-<a href="https://globespro.it.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://globespro.it.com/navigating-the-digital-landscape-a-comprehensive-guide-to-ma-29-7/">navigating the digital landscape a comprehensive guide to ma</a> 
-<a href="https://globespro.it.com/navigating-the-digital-landscape-how-apps-are-transforming-o/">navigating the digital landscape how apps are transforming o</a> 
-<a href="https://globespro.it.com/navigating-the-ever-changing-media-landscape-a-deep-dive-int/">navigating the ever changing media landscape a deep dive int</a> 
-<a href="https://globespro.it.com/navigating-the-evolving-news-landscape-in-depth-analysis-rev-29-6/">navigating the evolving news landscape in depth analysis rev</a> 
-<a href="https://globespro.it.com/navigating-the-future-bitcoin-blockchain-and-the-latest-cryp/">navigating the future bitcoin blockchain and the latest cryp</a> 
-<a href="https://globespro.it.com/navigating-the-future-how-blockchain-and-bitcoin-are-shaping/">navigating the future how blockchain and bitcoin are shaping</a> 
-<a href="https://globespro.it.com/navigating-the-future-how-blockchain-and-bitcoin-are-transfo-2/">navigating the future how blockchain and bitcoin are transfo</a> 
-<a href="https://globespro.it.com/navigating-the-future-how-blockchain-and-bitcoin-are-transfo/">navigating the future how blockchain and bitcoin are transfo</a> 
-<a href="https://globespro.it.com/navigating-the-future-of-finance-cryptocurrency-bitcoin-and/">navigating the future of finance cryptocurrency bitcoin and</a> 
-<a href="https://globespro.it.com/navigating-the-future-of-news-ai-misinformation-and-the-ques/">navigating the future of news ai misinformation and the ques</a> 
-<a href="https://globespro.it.com/navigating-the-future-of-news-emerging-trends-and-insights-f/">navigating the future of news emerging trends and insights f</a> 
-<a href="https://globespro.it.com/navigating-the-future-of-news-guides-reviews-and-how-tos-for-29-6/">navigating the future of news guides reviews and how tos for</a> 
-<a href="https://globespro.it.com/navigating-the-news-landscape-in-2023-guides-reviews-and-how-29-6/">navigating the news landscape in 2023 guides reviews and how</a> 
-<a href="https://globespro.it.com/navigating-the-shifting-currents-of-breaking-news-an-in-dept/">navigating the shifting currents of breaking news an in dept</a> 
-<a href="https://globespro.it.com/navigating-the-shifting-landscape-of-2023-news-consumption-t/">navigating the shifting landscape of 2023 news consumption t</a> 
-<a href="https://globespro.it.com/navigating-the-web-for-marketing-seo-growth-a-curated-resour-29-7/">navigating the web for marketing seo growth a curated resour</a> 
-<a href="https://globespro.it.com/navigating-today-s-news-and-emerging-trends-a-comprehensive-29-6/">navigating today s news and emerging trends a comprehensive </a> 
-<a href="https://globespro.it.com/navigating-today-s-news-landscape-comprehensive-guides-revie-29-6/">navigating today s news landscape comprehensive guides revie</a> 
