@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://fil7771.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://fil7771.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://fil7771.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://fil7771.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://fil7771.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://fil7771.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://fil7771.xyz/hello-world/">hello world</a> 
+<a href="https://fil7771.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://fil7771.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://fil7771.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://fil7771.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://fil7771.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://fil7771.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://fil7771.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
@@ -158,6 +169,7 @@
 <a href="https://financieelveiligouderworden.com/master-crypto-basics-guides-reviews-safety-tips-for-beginner-95-10/">master crypto basics guides reviews safety tips for beginner</a> 
 <a href="https://financieelveiligouderworden.com/master-guides-reviews-how-tos-your-ultimate-resource-for-lea-95-10/">master guides reviews how tos your ultimate resource for lea</a> 
 <a href="https://financieelveiligouderworden.com/master-marketing-seo-growth-your-guide-to-online-success-95-6/">master marketing seo growth your guide to online success 95 </a> 
+<a href="https://financieelveiligouderworden.com/master-online-learning-reviews-safety-a-comprehensive-guide-95-5/">master online learning reviews safety a comprehensive guide </a> 
 <a href="https://financieelveiligouderworden.com/master-smart-reading-guides-reviews-how-tos-for-savvy-intern-95-5/">master smart reading guides reviews how tos for savvy intern</a> 
 <a href="https://financieelveiligouderworden.com/master-the-art-of-cheap-flight-booking-tips-tools-and-timing-95-6/">master the art of cheap flight booking tips tools and timing</a> 
 <a href="https://financieelveiligouderworden.com/master-the-web-guides-reviews-how-tos-for-digital-proficienc-95-5/">master the web guides reviews how tos for digital proficienc</a> 
@@ -195,6 +207,7 @@
 <a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-and-how-tos-for-95-5/">mastering online information guides reviews and how tos for </a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-how-tos-for-savv-95-5-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-how-tos-for-savv-95-5-3/">mastering online information guides reviews how tos for savv</a> 
+<a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-how-tos-for-savv-95-5-4/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-how-tos-for-savv-95-5/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-how-tos-for-smar-95-5/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-how-tos-for-the-95-5/">mastering online information guides reviews how tos for the </a> 
@@ -226,6 +239,7 @@
 <a href="https://financieelveiligouderworden.com/mastering-the-art-of-personal-finance-for-small-business-suc/">mastering the art of personal finance for small business suc</a> 
 <a href="https://financieelveiligouderworden.com/mastering-turf-betting-guides-reviews-and-how-tos-for-succes-95-10/">mastering turf betting guides reviews and how tos for succes</a> 
 <a href="https://financieelveiligouderworden.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-95-9/">mastering web tech content a comprehensive guide for the mod</a> 
+<a href="https://financieelveiligouderworden.com/mastering-web-tech-content-a-comprehensive-guide-to-bookmark-95-4/">mastering web tech content a comprehensive guide to bookmark</a> 
 <a href="https://financieelveiligouderworden.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-95-9/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://financieelveiligouderworden.com/navigating-career-and-legal-transitions-strategies-for-succe-95-7/">navigating career and legal transitions strategies for succe</a> 
 <a href="https://financieelveiligouderworden.com/navigating-marketing-seo-growth-essential-resources-for-succ-95-6/">navigating marketing seo growth essential resources for succ</a> 
@@ -556,6 +570,7 @@
 <a href="https://forotesis.com/mastering-app-overload-how-to-streamline-your-digital-life/">mastering app overload how to streamline your digital life</a> 
 <a href="https://forotesis.com/mastering-business-finance-and-productivity-a-comprehensive-96-6/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-a-comprehensive-guid-96-6-10/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://forotesis.com/mastering-business-finance-productivity-a-comprehensive-guid-96-6-11/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-a-comprehensive-guid-96-6-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-a-comprehensive-guid-96-6-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-a-comprehensive-guid-96-6-4/">mastering business finance productivity a comprehensive guid</a> 
@@ -575,6 +590,7 @@
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-online-ski-96-6/">mastering business finance productivity essential online ski</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-reading-an-96-6/">mastering business finance productivity essential reading an</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-skills-for-96-6-2/">mastering business finance productivity essential skills for</a> 
+<a href="https://forotesis.com/mastering-business-finance-productivity-essential-skills-for-96-6-3/">mastering business finance productivity essential skills for</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-skills-for-96-6/">mastering business finance productivity essential skills for</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-web-skills-96-6/">mastering business finance productivity essential web skills</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-in-the-digital-age-96-6-2/">mastering business finance productivity in the digital age 9</a> 
@@ -588,6 +604,7 @@
 <a href="https://forotesis.com/mastering-digital-tools-online-resources-a-comprehensive-gui-96-7/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://forotesis.com/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
 <a href="https://forotesis.com/mastering-marketing-seo-growth-a-comprehensive-guide-96-10/">mastering marketing seo growth a comprehensive guide 96 10</a> 
+<a href="https://forotesis.com/mastering-marketing-seo-growth-a-comprehensive-guide-96-5-2/">mastering marketing seo growth a comprehensive guide 96 5 2</a> 
 <a href="https://forotesis.com/mastering-marketing-seo-growth-a-comprehensive-guide-96-5/">mastering marketing seo growth a comprehensive guide 96 5</a> 
 <a href="https://forotesis.com/mastering-marketing-seo-growth-essential-strategies-for-succ-96-10/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://forotesis.com/mastering-marketing-seo-growth-strategies-for-business-succe-96-5/">mastering marketing seo growth strategies for business succe</a> 
@@ -785,20 +802,3 @@
 <a href="https://forotesis.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://forotesis.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://forotesis.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://forotesis.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://forotesis.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://forotesis.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://frabjous-zabaione-7b8404.netlify.app/casino-utan-spelpaus-explained-a-practical-guide-for-players.html">casino utan spelpaus explained a practical guide for players</a> 
-<a href="https://fujigrouphk.com/gindex.html">gindex</a> 
-<a href="https://fujigrouphk.com/picks.html">picks</a> 
-<a href="https://gbetlogin.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://gbetlogin.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://gbetlogin.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://gbetlogin.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://gbetlogin.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://gbetlogin.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://gbetlogin.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://gbetlogin.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://gbetlogin.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://gbetlogin.xyz/hello-world/">hello world</a> 
-<a href="https://gbetlogin.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 

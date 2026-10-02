@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://forotesis.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://forotesis.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://forotesis.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://frabjous-zabaione-7b8404.netlify.app/casino-utan-spelpaus-explained-a-practical-guide-for-players.html">casino utan spelpaus explained a practical guide for players</a> 
+<a href="https://fujigrouphk.com/gindex.html">gindex</a> 
+<a href="https://fujigrouphk.com/picks.html">picks</a> 
+<a href="https://gbetlogin.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://gbetlogin.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://gbetlogin.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://gbetlogin.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://gbetlogin.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://gbetlogin.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://gbetlogin.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://gbetlogin.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://gbetlogin.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://gbetlogin.xyz/hello-world/">hello world</a> 
+<a href="https://gbetlogin.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://gbetlogin.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://gbetlogin.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://gbetlogin.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
@@ -179,6 +196,7 @@
 <a href="https://getolive.org/mastering-crypto-blockchain-guides-reviews-and-how-tos-for-s-97-8/">mastering crypto blockchain guides reviews and how tos for s</a> 
 <a href="https://getolive.org/mastering-digital-organization-top-apps-for-a-clutter-free-l/">mastering digital organization top apps for a clutter free l</a> 
 <a href="https://getolive.org/mastering-digital-skills-guides-reviews-how-tos-for-online-l-97-8/">mastering digital skills guides reviews how tos for online l</a> 
+<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://getolive.org/mastering-marketing-seo-growth-a-comprehensive-guide-for-suc-97-9/">mastering marketing seo growth a comprehensive guide for suc</a> 
 <a href="https://getolive.org/mastering-marketing-seo-growth-strategies-for-success-97-9/">mastering marketing seo growth strategies for success 97 9</a> 
 <a href="https://getolive.org/mastering-news-consumption-guides-reviews-how-tos-for-smart-97-8/">mastering news consumption guides reviews how tos for smart </a> 
@@ -200,11 +218,13 @@
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-digital-97-7/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-navigati-97-7-2/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-navigati-97-7-3/">mastering web tech content a comprehensive guide to navigati</a> 
+<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-navigati-97-7-4/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-navigati-97-7/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-online-r-97-7-2/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-online-r-97-7/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-97-7/">mastering web tech content a comprehensive guide to smart on</a> 
 <a href="https://getolive.org/mastering-web-tech-content-your-guide-to-reliable-online-res-97-7/">mastering web tech content your guide to reliable online res</a> 
+<a href="https://getolive.org/mastering-web-tech-content-your-ultimate-guide-to-navigating-97-7/">mastering web tech content your ultimate guide to navigating</a> 
 <a href="https://getolive.org/mastering-your-digital-life-top-apps-for-productivity-and-or/">mastering your digital life top apps for productivity and or</a> 
 <a href="https://getolive.org/maximizing-business-finance-and-productivity-with-thedigital-97-10/">maximizing business finance and productivity with thedigital</a> 
 <a href="https://getolive.org/maximizing-your-business-growth-a-deep-dive-into-marketing-s-97-9/">maximizing your business growth a deep dive into marketing s</a> 
@@ -782,23 +802,3 @@
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-20/">mastering marketing seo growth strategies for success 29 7 2</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-3/">mastering marketing seo growth strategies for success 29 7 3</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-4/">mastering marketing seo growth strategies for success 29 7 4</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-5/">mastering marketing seo growth strategies for success 29 7 5</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-6/">mastering marketing seo growth strategies for success 29 7 6</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-7/">mastering marketing seo growth strategies for success 29 7 7</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-8/">mastering marketing seo growth strategies for success 29 7 8</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-9/">mastering marketing seo growth strategies for success 29 7 9</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7/">mastering marketing seo growth strategies for success 29 7</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-in-202-29-7/">mastering marketing seo growth strategies for success in 202</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-29-7/">mastering marketing seo growth strategies for success in a c</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-in-the-29-7/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-the-practical-guide-to-breaki-29-7/">mastering marketing seo growth the practical guide to breaki</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-the-ultimate-guide-to-startin-29-7/">mastering marketing seo growth the ultimate guide to startin</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-your-ultimate-guide-to-online-29-7/">mastering marketing seo growth your ultimate guide to online</a> 
-<a href="https://globespro.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-29-6/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://globespro.it.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-29-6/">mastering online resources guides reviews how tos for smarte</a> 
-<a href="https://globespro.it.com/mastering-personal-finance-a-strategic-approach-to-business-2/">mastering personal finance a strategic approach to business </a> 
-<a href="https://globespro.it.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
-<a href="https://globespro.it.com/mastering-personal-finance-business-and-marketing-a-comprehe-29-6/">mastering personal finance business and marketing a comprehe</a> 
-<a href="https://globespro.it.com/mastering-personal-finance-economic-trends-marketing-a-compr-29-6/">mastering personal finance economic trends marketing a compr</a> 
-<a href="https://globespro.it.com/mastering-personal-finance-for-small-business-owners-a-marke/">mastering personal finance for small business owners a marke</a> 
-<a href="https://globespro.it.com/mastering-personal-finance-how-business-principles-can-trans/">mastering personal finance how business principles can trans</a> 
