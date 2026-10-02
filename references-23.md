@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://fil7771.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://fil7771.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://fil7771.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://financieelveiligouderworden.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://financieelveiligouderworden.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://financieelveiligouderworden.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://financieelveiligouderworden.com/a-href-https-areyoufashion-com-write-for-us-areyoufashion-co/">a href https areyoufashion com write for us areyoufashion co</a> 
@@ -179,6 +191,7 @@
 <a href="https://financieelveiligouderworden.com/mastering-modern-life-business-finance-and-productivity-esse-95-7/">mastering modern life business finance and productivity esse</a> 
 <a href="https://financieelveiligouderworden.com/mastering-modern-topics-guides-reviews-and-how-tos-for-today-95-5/">mastering modern topics guides reviews and how tos for today</a> 
 <a href="https://financieelveiligouderworden.com/mastering-news-consumption-guides-reviews-how-tos-for-smart-95-10/">mastering news consumption guides reviews how tos for smart </a> 
+<a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-and-how-tos-for-95-5-2/">mastering online information guides reviews and how tos for </a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-and-how-tos-for-95-5/">mastering online information guides reviews and how tos for </a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-how-tos-for-savv-95-5-2/">mastering online information guides reviews how tos for savv</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-information-guides-reviews-how-tos-for-savv-95-5-3/">mastering online information guides reviews how tos for savv</a> 
@@ -194,9 +207,11 @@
 <a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-and-how-tos-for-sma-95-5/">mastering online research guides reviews and how tos for sma</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-how-tos-for-better-95-5/">mastering online research guides reviews how tos for better </a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-how-tos-for-reliabl-95-5/">mastering online research guides reviews how tos for reliabl</a> 
+<a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-95-5-2/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-95-5/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-95-5/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-how-tos-for-smarter-95-5-2/">mastering online research guides reviews how tos for smarter</a> 
+<a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-how-tos-for-smarter-95-5-3/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-how-tos-for-smarter-95-5/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-research-guides-reviews-how-tos-for-the-sav-95-5/">mastering online research guides reviews how tos for the sav</a> 
 <a href="https://financieelveiligouderworden.com/mastering-online-resources-guides-reviews-and-how-tos-for-ef-95-5/">mastering online resources guides reviews and how tos for ef</a> 
@@ -556,10 +571,13 @@
 <a href="https://forotesis.com/mastering-business-finance-productivity-a-guide-to-smarter-o-96-6/">mastering business finance productivity a guide to smarter o</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-online-rea-96-6/">mastering business finance productivity essential online rea</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-online-ski-96-6-2/">mastering business finance productivity essential online ski</a> 
+<a href="https://forotesis.com/mastering-business-finance-productivity-essential-online-ski-96-6-3/">mastering business finance productivity essential online ski</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-online-ski-96-6/">mastering business finance productivity essential online ski</a> 
+<a href="https://forotesis.com/mastering-business-finance-productivity-essential-reading-an-96-6/">mastering business finance productivity essential reading an</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-skills-for-96-6-2/">mastering business finance productivity essential skills for</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-skills-for-96-6/">mastering business finance productivity essential skills for</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-essential-web-skills-96-6/">mastering business finance productivity essential web skills</a> 
+<a href="https://forotesis.com/mastering-business-finance-productivity-in-the-digital-age-96-6-2/">mastering business finance productivity in the digital age 9</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-in-the-digital-age-96-6/">mastering business finance productivity in the digital age 9</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-in-the-digital-age-a-96-6/">mastering business finance productivity in the digital age a</a> 
 <a href="https://forotesis.com/mastering-business-finance-productivity-with-ai-art-prompt-g-96-6/">mastering business finance productivity with ai art prompt g</a> 
@@ -784,21 +802,3 @@
 <a href="https://gbetlogin.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://gbetlogin.xyz/hello-world/">hello world</a> 
 <a href="https://gbetlogin.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://gbetlogin.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://gbetlogin.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://gbetlogin.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://gbetlogin.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://gbetlogin.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://gbetlogin.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://gentle-kitten-b6b885.netlify.app/why-primary-sources-matter-and-how-to-find-them-a-quick-guid.html">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://genuine-nougat-24966b.netlify.app/discover-the-transformative-power-of-music-education-for-chi.html">discover the transformative power of music education for chi</a> 
-<a href="https://getolive.org/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://getolive.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://getolive.org/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://getolive.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opinion/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy-2/">a closer look at how to tell if a website is trustworthy 2</a> 
-<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://getolive.org/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://getolive.org/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://getolive.org/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://getolive.org/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
