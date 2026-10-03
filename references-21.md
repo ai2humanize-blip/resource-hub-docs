@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://fabbusinesssolutions.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://fabbusinesssolutions.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://fabbusinesssolutions.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://fabbusinesssolutions.com/how-to-fact-check-something-in-five-minutes-explained-simply-2/">how to fact check something in five minutes explained simply</a> 
+<a href="https://fabbusinesssolutions.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://fabbusinesssolutions.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
 <a href="https://fabbusinesssolutions.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://fabbusinesssolutions.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
 <a href="https://fabbusinesssolutions.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
@@ -41,6 +47,9 @@
 <a href="https://fabbusinesssolutions.com/mastering-app-overload-how-to-organize-your-digital-life-for/">mastering app overload how to organize your digital life for</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-and-productivity-a-deep-dive-into-94-3/">mastering business finance and productivity a deep dive into</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-and-productivity-essential-insigh-94-8/">mastering business finance and productivity essential insigh</a> 
+<a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-3-2/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-3-3/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-3-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-8/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-roun-94-3/">mastering business finance productivity a comprehensive roun</a> 
@@ -793,12 +802,3 @@
 <a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://fabulouspoetry.it.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://fabulouspoetry.it.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://fabulouspoetry.it.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://fabulouspoetry.it.com/understanding-idiominsider-a-practical-guide/">understanding idiominsider a practical guide</a> 

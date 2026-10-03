@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://fabulouspoetry.it.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://fabulouspoetry.it.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
+<a href="https://fabulouspoetry.it.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
+<a href="https://fabulouspoetry.it.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
+<a href="https://fabulouspoetry.it.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
+<a href="https://fabulouspoetry.it.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
+<a href="https://fabulouspoetry.it.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
+<a href="https://fabulouspoetry.it.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
+<a href="https://fabulouspoetry.it.com/understanding-idiominsider-a-practical-guide/">understanding idiominsider a practical guide</a> 
 <a href="https://fabulouspoetry.it.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
 <a href="https://fabulouspoetry.it.com/understanding-legal-news-a-guide-to-staying-informed-and-mak/">understanding legal news a guide to staying informed and mak</a> 
 <a href="https://fabulouspoetry.it.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
@@ -793,12 +802,3 @@
 <a href="https://fideleturfturf.it.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
 <a href="https://fideleturfturf.it.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
 <a href="https://fideleturfturf.it.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://fideleturfturf.it.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://fideleturfturf.it.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://fideleturfturf.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://fideleturfturf.it.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://fideleturfturf.it.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
-<a href="https://fideleturfturf.it.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://fideleturfturf.it.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://fideleturfturf.it.com/why-niche-blogs-still-matter-in-the-web-tech-content-landsca-28-6/">why niche blogs still matter in the web tech content landsca</a> 

@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://forotesis.com/what-makes-a-website-easy-and-pleasant-to-read/">what makes a website easy and pleasant to read</a> 
+<a href="https://forotesis.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui-2/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://forotesis.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui-3/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://forotesis.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://forotesis.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://forotesis.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://forotesis.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
 <a href="https://forotesis.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://forotesis.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://forotesis.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
@@ -213,6 +228,9 @@
 <a href="https://getolive.org/mastering-digital-skills-guides-reviews-how-tos-for-online-l-97-8/">mastering digital skills guides reviews how tos for online l</a> 
 <a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-3/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-4/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-5/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://getolive.org/mastering-marketing-seo-growth-a-comprehensive-guide-for-suc-97-9/">mastering marketing seo growth a comprehensive guide for suc</a> 
 <a href="https://getolive.org/mastering-marketing-seo-growth-strategies-for-success-97-9/">mastering marketing seo growth strategies for success 97 9</a> 
@@ -784,21 +802,3 @@
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-digi-29-7/">mastering marketing seo growth essential strategies for digi</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-onli-29-7/">mastering marketing seo growth essential strategies for onli</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-10/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-11/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-12/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-13/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-14/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-15/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-16/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-2/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-3/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-4/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-5/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-6/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-7/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-8/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-9/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-leveraging-online-resources-f-29-7/">mastering marketing seo growth leveraging online resources f</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-navigating-the-best-online-re-29-7-2/">mastering marketing seo growth navigating the best online re</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-navigating-the-best-online-re-29-7/">mastering marketing seo growth navigating the best online re</a> 
