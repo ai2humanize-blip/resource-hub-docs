@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://fabbusinesssolutions.com/how-recent-economic-trends-are-shaping-global-markets/">how recent economic trends are shaping global markets</a> 
+<a href="https://fabbusinesssolutions.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://fabbusinesssolutions.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://fabbusinesssolutions.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://fabbusinesssolutions.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://fabbusinesssolutions.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
 <a href="https://fabbusinesssolutions.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
 <a href="https://fabbusinesssolutions.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
 <a href="https://fabbusinesssolutions.com/how-to-build-a-personal-reading-list-explained-simply-3/">how to build a personal reading list explained simply 3</a> 
@@ -59,11 +65,14 @@
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-3-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-3-5/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-3-6/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-3-7/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-guid-94-8/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-roun-94-3/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-a-comprehensive-roun-94-8/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-essential-online-res-94-3/">mastering business finance productivity essential online res</a> 
+<a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-essential-reading-an-94-3/">mastering business finance productivity essential reading an</a> 
+<a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-essential-skills-for-94-3-2/">mastering business finance productivity essential skills for</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-essential-skills-for-94-3/">mastering business finance productivity essential skills for</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-in-the-digital-age-94-3/">mastering business finance productivity in the digital age 9</a> 
 <a href="https://fabbusinesssolutions.com/mastering-business-finance-productivity-in-the-digital-age-a-94-8/">mastering business finance productivity in the digital age a</a> 
@@ -793,12 +802,3 @@
 <a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-27-4-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-27-4-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-27-4-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
