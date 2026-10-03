@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-blocklist-kr-news">on our radar blocklist kr news</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-cryptonewsus-com">on our radar cryptonewsus com</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-cubednews-com">on our radar cubednews com</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-dailywatchreports-com">on our radar dailywatchreports com</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-fullimedia-com">on our radar fullimedia com</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-getcryptomedia-com">on our radar getcryptomedia com</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-getjobsnews-com">on our radar getjobsnews com</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-hogatoga-com">on our radar hogatoga com</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-mycoinpartner-com">on our radar mycoinpartner com</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-roo2ya-roo2ya-com-digital-news-and-online-updates">on our radar roo2ya roo2ya com digital news and online updat</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/on-our-radar-stnews-live">on our radar stnews live</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-advantagebizmarketing-com">recommended reading advantagebizmarketing com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-artpromptgenerator-org">recommended reading artpromptgenerator org</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-beauty-tips-well-health-organic">recommended reading beauty tips well health organic</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-bitjackpot-de-com">recommended reading bitjackpot de com</a> 
@@ -77,6 +89,7 @@
 <a href="https://alcobar85.xyz/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://alcobar85.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://alcobar85.xyz/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
+<a href="https://alcobar85.xyz/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
 <a href="https://alcobar85.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://alcobar85.xyz/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
 <a href="https://alcobar85.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
@@ -169,6 +182,8 @@
 <a href="https://alcobar85.xyz/update-your-philhealth-member-data/">update your philhealth member data</a> 
 <a href="https://alcobar85.xyz/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
 <a href="https://alcobar85.xyz/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
+<a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
+<a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
 <a href="https://alcobar85.xyz/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
@@ -327,6 +342,7 @@
 <a href="https://algiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-77-3/">guides reviews how tos 50 resources worth bookmarking 77 3</a> 
 <a href="https://algiamedical.com/guides-reviews-how-tos-navigating-online-casinos-and-crypto-77-8/">guides reviews how tos navigating online casinos and crypto </a> 
 <a href="https://algiamedical.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://algiamedical.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
 <a href="https://algiamedical.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://algiamedical.com/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
 <a href="https://algiamedical.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
@@ -709,6 +725,7 @@
 <a href="https://algiamedical.com/web-tech-content-your-ultimate-guide-to-online-resources-and-77-7/">web tech content your ultimate guide to online resources and</a> 
 <a href="https://algiamedical.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
 <a href="https://algiamedical.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
+<a href="https://algiamedical.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
 <a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
 <a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
@@ -785,20 +802,3 @@
 <a href="https://alientapereviews.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
 <a href="https://alientapereviews.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-78-2/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-78-2/">comprehensive guides reviews and how tos for every interest </a> 
-<a href="https://alientapereviews.com/comprehensive-guides-reviews-how-tos-and-key-crypto-concepts-78-2/">comprehensive guides reviews how tos and key crypto concepts</a> 
-<a href="https://alientapereviews.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-78-2/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
-<a href="https://alientapereviews.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://alientapereviews.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://alientapereviews.com/discover-the-art-of-event-planning-ideas-and-tips-for-memora/">discover the art of event planning ideas and tips for memora</a> 
-<a href="https://alientapereviews.com/discover-the-best-digital-tools-online-resources-for-every-n-78-10/">discover the best digital tools online resources for every n</a> 
-<a href="https://alientapereviews.com/discover-the-best-digital-tools-online-resources-for-your-ne-78-10/">discover the best digital tools online resources for your ne</a> 
-<a href="https://alientapereviews.com/discover-the-best-no-download-browser-games-for-casual-fun-a-78-3/">discover the best no download browser games for casual fun a</a> 
-<a href="https://alientapereviews.com/discover-the-power-of-diy-home-security-systems-a-comprehens/">discover the power of diy home security systems a comprehens</a> 
-<a href="https://alientapereviews.com/discover-top-digital-tools-online-resources-for-news-finance-78-10/">discover top digital tools online resources for news finance</a> 
-<a href="https://alientapereviews.com/discovering-the-vibrant-world-of-independent-music-culture/">discovering the vibrant world of independent music culture</a> 
-<a href="https://alientapereviews.com/essential-digital-tools-online-resources-for-2026-a-comprehe-78-10/">essential digital tools online resources for 2026 a comprehe</a> 
-<a href="https://alientapereviews.com/essential-digital-tools-online-resources-for-career-and-lega-78-10/">essential digital tools online resources for career and lega</a> 
-<a href="https://alientapereviews.com/essential-digital-tools-online-resources-for-crypto-and-bloc-78-10/">essential digital tools online resources for crypto and bloc</a> 
-<a href="https://alientapereviews.com/essential-digital-tools-online-resources-for-everyday-life-78-10/">essential digital tools online resources for everyday life 7</a> 
-<a href="https://alientapereviews.com/essential-digital-tools-online-resources-for-informed-citize-78-10/">essential digital tools online resources for informed citize</a> 
-<a href="https://alientapereviews.com/essential-digital-tools-online-resources-for-modern-life-78-10/">essential digital tools online resources for modern life 78 </a> 

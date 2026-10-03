@@ -81,6 +81,7 @@
 <a href="https://123angelnumber.com/comprehensive-guides-reviews-how-tos-and-key-crypto-concepts-76-9/">comprehensive guides reviews how tos and key crypto concepts</a> 
 <a href="https://123angelnumber.com/comprehensive-roundup-guides-reviews-how-tos-for-cryptocurre-76-4/">comprehensive roundup guides reviews how tos for cryptocurre</a> 
 <a href="https://123angelnumber.com/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 
+<a href="https://123angelnumber.com/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
 <a href="https://123angelnumber.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-76-6/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://123angelnumber.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-p/">demystifying cryptocurrency bitcoin and blockchain a fresh p</a> 
 <a href="https://123angelnumber.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-76-6/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
@@ -544,6 +545,7 @@
 <a href="https://123angelnumber.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://123angelnumber.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://123angelnumber.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://123angelnumber.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
 <a href="https://188jili1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://188jili1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://188jili1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
@@ -800,5 +802,3 @@
 <a href="https://358casino.co.bz/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
 <a href="https://358casino.co.bz/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://358casino.co.bz/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://358casino.co.bz/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://358casino.co.bz/why-niche-blogs-still-matter/">why niche blogs still matter</a> 

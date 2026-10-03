@@ -134,6 +134,10 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://dailyaqi.com/">dailyaqi.com</a> 
 <a href="https://dailynamaz.com/">dailynamaz.com</a> 
 <a href="https://urusid.com/">urusid.com</a> 
+<a href="https://cryptocardscout.com/">cryptocardscout.com</a> 
+<a href="https://thezakatcalculator.com/">thezakatcalculator.com</a> 
+<a href="https://storkworld.net/">storkworld.net</a> 
+<a href="https://urducentral.com/">urducentral.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -190,4 +194,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 52](references-52.md)
 - [Reference set 53](references-53.md)
 
-_42,117 curated references across 53 sets._
+_42,339 curated references across 53 sets._
