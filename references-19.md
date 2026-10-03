@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://earnmoneyplayinggames.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-digital-pr-and-sponsored-content-actually-work/">how digital pr and sponsored content actually work</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list-2/">how to build a personal reading list 2</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-organize-the-information-you-find-online-a-practical-guide/">how to organize the information you find online a practical </a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://earnmoneyplayinggames.xyz/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://earnmoneyplayinggames.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://earnmoneyplayinggames.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://earnmoneyplayinggames.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://earnmoneyplayinggames.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
+<a href="https://earnmoneyplayinggames.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
 <a href="https://earnmoneyplayinggames.xyz/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
 <a href="https://earnmoneyplayinggames.xyz/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
 <a href="https://earnmoneyplayinggames.xyz/recognizing-credible-experts-online/">recognizing credible experts online</a> 
@@ -117,6 +140,7 @@
 <a href="https://ecomhuntreviews.com/common-questions-answered-8/">common questions answered 8</a> 
 <a href="https://ecomhuntreviews.com/common-questions-answered-9/">common questions answered 9</a> 
 <a href="https://ecomhuntreviews.com/common-questions-answered/">common questions answered</a> 
+<a href="https://ecomhuntreviews.com/comprehensive-guide-to-crypto-cards-reviews-how-tos-and-comp-90-10/">comprehensive guide to crypto cards reviews how tos and comp</a> 
 <a href="https://ecomhuntreviews.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-90-10/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://ecomhuntreviews.com/comprehensive-guides-reviews-and-how-tos-for-effective-onlin-90-10/">comprehensive guides reviews and how tos for effective onlin</a> 
 <a href="https://ecomhuntreviews.com/comprehensive-guides-reviews-and-how-tos-for-lottery-results-90-10/">comprehensive guides reviews and how tos for lottery results</a> 
@@ -778,27 +802,3 @@
 <a href="https://emiamedical.com/mastering-digital-tools-online-resources-a-comprehensive-gui-92-1-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://emiamedical.com/mastering-digital-tools-online-resources-a-comprehensive-gui-92-1/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://emiamedical.com/mastering-digital-tools-online-resources-for-smarter-researc-92-1-2/">mastering digital tools online resources for smarter researc</a> 
-<a href="https://emiamedical.com/mastering-digital-tools-online-resources-for-smarter-researc-92-1/">mastering digital tools online resources for smarter researc</a> 
-<a href="https://emiamedical.com/mastering-local-seo-a-step-by-step-guide-for-small-business/">mastering local seo a step by step guide for small business</a> 
-<a href="https://emiamedical.com/mastering-marketing-seo-growth-strategies-for-success-92-4/">mastering marketing seo growth strategies for success 92 4</a> 
-<a href="https://emiamedical.com/mastering-modern-life-business-finance-and-productivity-esse-92-5/">mastering modern life business finance and productivity esse</a> 
-<a href="https://emiamedical.com/mastering-online-information-guides-reviews-and-how-tos-for-92-3/">mastering online information guides reviews and how tos for </a> 
-<a href="https://emiamedical.com/mastering-online-information-guides-reviews-how-tos-for-savv-92-3/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://emiamedical.com/mastering-online-learning-and-reading-guides-reviews-how-tos-92-3/">mastering online learning and reading guides reviews how tos</a> 
-<a href="https://emiamedical.com/mastering-online-research-essential-digital-tools-resources-92-6/">mastering online research essential digital tools resources </a> 
-<a href="https://emiamedical.com/mastering-online-resources-guides-reviews-and-how-tos-for-ef-92-3/">mastering online resources guides reviews and how tos for ef</a> 
-<a href="https://emiamedical.com/mastering-personal-finance-a-guide-to-business-growth-and-ef/">mastering personal finance a guide to business growth and ef</a> 
-<a href="https://emiamedical.com/mastering-the-art-of-business-finance-a-marketing-perspectiv/">mastering the art of business finance a marketing perspectiv</a> 
-<a href="https://emiamedical.com/mastering-the-art-of-business-finance-and-marketing-synergy-4/">mastering the art of business finance and marketing synergy </a> 
-<a href="https://emiamedical.com/mastering-the-art-of-business-finance-and-marketing-synergy/">mastering the art of business finance and marketing synergy</a> 
-<a href="https://emiamedical.com/mastering-the-art-of-business-personal-finance-and-marketing-92-4/">mastering the art of business personal finance and marketing</a> 
-<a href="https://emiamedical.com/mastering-the-digital-landscape-essential-tools-resources-fo-92-1/">mastering the digital landscape essential tools resources fo</a> 
-<a href="https://emiamedical.com/mastering-the-digital-world-essential-tools-online-resources-92-1/">mastering the digital world essential tools online resources</a> 
-<a href="https://emiamedical.com/mastering-web-tech-content-a-comprehensive-guide-92-2-2/">mastering web tech content a comprehensive guide 92 2 2</a> 
-<a href="https://emiamedical.com/mastering-web-tech-content-a-comprehensive-guide-92-2/">mastering web tech content a comprehensive guide 92 2</a> 
-<a href="https://emiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-92-2/">mastering web tech content a comprehensive guide for modern </a> 
-<a href="https://emiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-92-2/">mastering web tech content a comprehensive guide for savvy r</a> 
-<a href="https://emiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-92-2-2/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://emiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-92-2/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://emiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-the-dig-92-2/">mastering web tech content a comprehensive guide for the dig</a> 
-<a href="https://emiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-92-2-2/">mastering web tech content a comprehensive guide for the mod</a> 
