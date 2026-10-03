@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cmdslot.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cmdslot.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://cmdslot.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://cmdslot.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://cmdslot.xyz/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://cmdslot.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://cmdslot.xyz/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cmdslot.xyz/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://cmdslot.xyz/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cmdslot.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://cmdslot.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
+<a href="https://cmdslot.xyz/how-small-publishers-keep-advertising-transparent/">how small publishers keep advertising transparent</a> 
+<a href="https://cmdslot.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cmdslot.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://cmdslot.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
 <a href="https://cmdslot.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
 <a href="https://cmdslot.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
@@ -788,17 +802,3 @@
 <a href="https://crediblenews24.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
 <a href="https://crediblenews24.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
 <a href="https://crediblenews24.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
-<a href="https://crediblenews24.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
-<a href="https://crediblenews24.com/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
-<a href="https://crediblenews24.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
-<a href="https://crediblenews24.com/making-sense-of-complex-topics-online-the-basics-2/">making sense of complex topics online the basics 2</a> 
-<a href="https://crediblenews24.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://crediblenews24.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-10/">marketing seo growth 50 resources worth bookmarking 86 10</a> 
-<a href="https://crediblenews24.com/master-business-finance-productivity-essential-online-guides-86-6/">master business finance productivity essential online guides</a> 
-<a href="https://crediblenews24.com/master-business-finance-productivity-essential-online-skills-86-6-2/">master business finance productivity essential online skills</a> 
-<a href="https://crediblenews24.com/master-business-finance-productivity-essential-online-skills-86-6/">master business finance productivity essential online skills</a> 
-<a href="https://crediblenews24.com/master-business-finance-productivity-top-online-resources-to-86-6-2/">master business finance productivity top online resources to</a> 
-<a href="https://crediblenews24.com/master-business-finance-productivity-top-online-resources-to-86-6/">master business finance productivity top online resources to</a> 
-<a href="https://crediblenews24.com/master-digital-tools-online-resources-a-comprehensive-guide-86-7-2/">master digital tools online resources a comprehensive guide </a> 
-<a href="https://crediblenews24.com/master-digital-tools-online-resources-a-comprehensive-guide-86-7/">master digital tools online resources a comprehensive guide </a> 

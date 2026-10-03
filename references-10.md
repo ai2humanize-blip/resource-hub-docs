@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2-4/">exploring the interconnected world of web tech content 82 2 </a> 
+<a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2/">exploring the interconnected world of web tech content 82 2</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-2/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-3/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-4/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-5/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-6/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-7/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-8/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-7/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-content-a-comprehensi-82-2-2/">exploring the intersection of web tech content a comprehensi</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-content-a-comprehensi-82-2/">exploring the intersection of web tech content a comprehensi</a> 
+<a href="https://captainjackinterview.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-82-2-2/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://captainjackinterview.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-82-2-3/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://captainjackinterview.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-82-2/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://captainjackinterview.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-82-2-2/">exploring the synergy of web tech content a comprehensive ro</a> 
@@ -788,17 +802,3 @@
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://cbd-stone.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://cbd-stone.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
-<a href="https://cbd-stone.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://cbd-stone.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://cbd-stone.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://cbd-stone.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://cbd-stone.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://cbd-stone.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://cbd-stone.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
-<a href="https://cbd-stone.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://cbd-stone.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://cbd-stone.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://cbd-stone.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://cbd-stone.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 

@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://cbd-stone.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://cbd-stone.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cbd-stone.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cbd-stone.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cbd-stone.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cbd-stone.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cbd-stone.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://cbd-stone.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://cbd-stone.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cbd-stone.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cbd-stone.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cbd-stone.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
 <a href="https://cbd-stone.com/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
 <a href="https://cbd-stone.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
 <a href="https://cbd-stone.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -788,17 +802,3 @@
 <a href="https://cbdpuffbars.com/mastering-marketing-seo-growth-a-comprehensive-guide-84-2/">mastering marketing seo growth a comprehensive guide 84 2</a> 
 <a href="https://cbdpuffbars.com/mastering-marketing-seo-growth-a-comprehensive-guide-for-suc-84-7/">mastering marketing seo growth a comprehensive guide for suc</a> 
 <a href="https://cbdpuffbars.com/mastering-marketing-seo-growth-strategies-for-success-84-7/">mastering marketing seo growth strategies for success 84 7</a> 
-<a href="https://cbdpuffbars.com/mastering-online-content-guides-reviews-how-tos-for-savvy-re-84-6/">mastering online content guides reviews how tos for savvy re</a> 
-<a href="https://cbdpuffbars.com/mastering-online-information-guides-reviews-how-tos-for-savv-84-6/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://cbdpuffbars.com/mastering-online-research-guides-reviews-how-tos-for-smarter-84-6/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://cbdpuffbars.com/mastering-personal-finance-and-marketing-for-business-growth/">mastering personal finance and marketing for business growth</a> 
-<a href="https://cbdpuffbars.com/mastering-the-art-of-business-finance-and-marketing-integrat/">mastering the art of business finance and marketing integrat</a> 
-<a href="https://cbdpuffbars.com/mastering-the-art-of-business-growth-personal-finance-and-ma/">mastering the art of business growth personal finance and ma</a> 
-<a href="https://cbdpuffbars.com/mastering-the-art-of-home-coffee-brewing-a-comprehensive-gui/">mastering the art of home coffee brewing a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-the-digital-landscape-essential-tools-resources-fo-84-4-2/">mastering the digital landscape essential tools resources fo</a> 
-<a href="https://cbdpuffbars.com/mastering-the-digital-landscape-essential-tools-resources-fo-84-4-3/">mastering the digital landscape essential tools resources fo</a> 
-<a href="https://cbdpuffbars.com/mastering-the-digital-landscape-essential-tools-resources-fo-84-4/">mastering the digital landscape essential tools resources fo</a> 
-<a href="https://cbdpuffbars.com/mastering-the-digital-landscape-how-technology-and-apps-shap/">mastering the digital landscape how technology and apps shap</a> 
-<a href="https://cbdpuffbars.com/mastering-the-digital-world-essential-tools-online-resources-84-4/">mastering the digital world essential tools online resources</a> 
-<a href="https://cbdpuffbars.com/mastering-the-digital-world-essential-tools-resources-for-le-84-4/">mastering the digital world essential tools resources for le</a> 
-<a href="https://cbdpuffbars.com/mastering-the-intersection-of-business-personal-finance-and/">mastering the intersection of business personal finance and</a> 

@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://endearing-truffle-d89cbb.netlify.app/the-elearning-trends-reshaping-how-we-teach-and-learn.html">the elearning trends reshaping how we teach and learn</a> 
+<a href="https://epicwin1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://epicwin1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://epicwin1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://epicwin1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://epicwin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://epicwin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://epicwin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://epicwin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://epicwin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://epicwin1.xyz/hello-world/">hello world</a> 
+<a href="https://epicwin1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://epicwin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://epicwin1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://epicwin1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://epicwin1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://epicwin1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://epicwin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
@@ -787,18 +802,3 @@
 <a href="https://fabbusinesssolutions.com/breaking-down-today-s-top-news-in-depth-analysis-and-expert/">breaking down today s top news in depth analysis and expert</a> 
 <a href="https://fabbusinesssolutions.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
 <a href="https://fabbusinesssolutions.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://fabbusinesssolutions.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://fabbusinesssolutions.com/checking-driving-licence-smart-card-status/">checking driving licence smart card status</a> 
-<a href="https://fabbusinesssolutions.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-about-daily-prayer-times-answered/">common questions about daily prayer times answered</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-about-indonesian-documents-and-services-ans/">common questions about indonesian documents and services ans</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-about-the-air-quality-index-answered/">common questions about the air quality index answered</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-answered-10/">common questions answered 10</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-answered-11/">common questions answered 11</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-answered-12/">common questions answered 12</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-answered-13/">common questions answered 13</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-answered-14/">common questions answered 14</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-answered-15/">common questions answered 15</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-answered-16/">common questions answered 16</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-answered-17/">common questions answered 17</a> 
-<a href="https://fabbusinesssolutions.com/common-questions-answered-18/">common questions answered 18</a> 

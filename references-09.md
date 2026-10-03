@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://betjili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://betjili1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://betjili1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://betjili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://better1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://better1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://better1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://better1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://better1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://better1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://better1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://better1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://better1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://better1.xyz/hello-world/">hello world</a> 
 <a href="https://better1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://better1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://better1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -788,17 +802,3 @@
 <a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-and-content-82-2/">exploring the interconnected world of web tech and content 8</a> 
 <a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2-2/">exploring the interconnected world of web tech content 82 2 </a> 
 <a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2-3/">exploring the interconnected world of web tech content 82 2 </a> 
-<a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2-4/">exploring the interconnected world of web tech content 82 2 </a> 
-<a href="https://captainjackinterview.com/exploring-the-interconnected-world-of-web-tech-content-82-2/">exploring the interconnected world of web tech content 82 2</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-2/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-3/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-4/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-5/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-6/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-7/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-8/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-7/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-content-a-comprehensi-82-2-2/">exploring the intersection of web tech content a comprehensi</a> 
-<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-content-a-comprehensi-82-2/">exploring the intersection of web tech content a comprehensi</a> 
-<a href="https://captainjackinterview.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-82-2-2/">exploring the synergy of web tech and content a comprehensiv</a> 
