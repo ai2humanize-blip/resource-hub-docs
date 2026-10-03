@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://be1.ru/stat/janibd.com">janibd.com</a> 
+<a href="https://be1.ru/stat/kexartcom.in">kexartcom.in</a> 
+<a href="https://be1.ru/stat/litigationlawyer.in">litigationlawyer.in</a> 
+<a href="https://be1.ru/stat/marketcapitalize.com">marketcapitalize.com</a> 
+<a href="https://be1.ru/stat/micannamarketing.com">micannamarketing.com</a> 
+<a href="https://be1.ru/stat/mycoinpartner.com">mycoinpartner.com</a> 
+<a href="https://be1.ru/stat/newsrealtors.xyz">newsrealtors.xyz</a> 
+<a href="https://be1.ru/stat/newsreverse.xyz">newsreverse.xyz</a> 
 <a href="https://be1.ru/stat/newzcryptos.com">newzcryptos.com</a> 
 <a href="https://be1.ru/stat/optimistindia.co">optimistindia.co</a> 
 <a href="https://be1.ru/stat/oxpoll.cc">oxpoll.cc</a> 
@@ -794,11 +802,3 @@
 <a href="https://capable-kelpie-04ab5e.netlify.app/navigating-the-future-how-bitcoin-blockchain-and-cryptocurre.html">navigating the future how bitcoin blockchain and cryptocurre</a> 
 <a href="https://captainjackinterview.com/a-2023-fall-fashion-trends-elevate-your-style-with-these-fre/">a 2023 fall fashion trends elevate your style with these fre</a> 
 <a href="https://captainjackinterview.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwhelmed/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 

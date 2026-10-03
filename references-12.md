@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cbdpuffbars.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://cbdpuffbars.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype-2/">how to avoid misinformation and hype 2</a> 
+<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://cbdpuffbars.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://cbdpuffbars.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://cbdpuffbars.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://cbdpuffbars.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://cbdpuffbars.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
 <a href="https://cbdpuffbars.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
@@ -794,11 +802,3 @@
 <a href="https://cbdstent.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
 <a href="https://cbdstent.com/turf-pour-d-butants-par-o-commencer/">turf pour d butants par o commencer</a> 
 <a href="https://cbdstent.com/ultimate-guide-to-browser-games-reviews-how-tos-why-they-re-85-10/">ultimate guide to browser games reviews how tos why they re </a> 
-<a href="https://cbdstent.com/ultimate-guide-to-independent-crypto-finance-and-news-resour-85-10/">ultimate guide to independent crypto finance and news resour</a> 
-<a href="https://cbdstent.com/ultimate-roundup-guides-reviews-how-tos-for-job-seekers-and-85-5/">ultimate roundup guides reviews how tos for job seekers and </a> 
-<a href="https://cbdstent.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://cbdstent.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://cbdstent.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbdstent.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbdstent.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbdstent.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

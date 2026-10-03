@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-areyoufashion-com">a closer look at areyoufashion com</a> 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-baginda168">a closer look at baginda168</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-bitcoinlogical-com">a closer look at bitcoinlogical com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-btccasinonews-com">a closer look at btccasinonews com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-coinnews-de-com">a closer look at coinnews de com</a> 
@@ -556,6 +558,7 @@
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-77-7-3/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-77-7-4/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-77-7/">mastering web tech content a comprehensive guide to navigati</a> 
+<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-off-page-77-7/">mastering web tech content a comprehensive guide to off page</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-77-7-2/">mastering web tech content a comprehensive guide to online l</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-77-7/">mastering web tech content a comprehensive guide to online l</a> 
 <a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-77-7-2/">mastering web tech content a comprehensive guide to online r</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://algiamedical.com/why-your-phone-charges-slowly/">why your phone charges slowly</a> 
 <a href="https://alientapereviews.com/5-expert-tips-for-boosting-your-website-s-seo-performance/">5 expert tips for boosting your website s seo performance</a> 
-<a href="https://alientapereviews.com/a-beginner-s-guide-to-navigating-the-world-of-bitcoin-essent-78-10/">a beginner s guide to navigating the world of bitcoin essent</a> 
-<a href="https://alientapereviews.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://alientapereviews.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
