@@ -138,6 +138,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://thezakatcalculator.com/">thezakatcalculator.com</a> 
 <a href="https://storkworld.net/">storkworld.net</a> 
 <a href="https://urducentral.com/">urducentral.com</a> 
+<a href="https://newsgiga.co/">newsgiga.co</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -196,4 +197,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 54](references-54.md)
 - [Reference set 55](references-55.md)
 
-_43,466 curated references across 55 sets._
+_43,716 curated references across 55 sets._
