@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
+<a href="https://bandemusic.com/understanding-how-search-engines-rank-pages-2/">understanding how search engines rank pages 2</a> 
+<a href="https://bandemusic.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://bandemusic.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
 <a href="https://bandemusic.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
 <a href="https://bandemusic.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogoxsouu2x">3muogoxsouu2x</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogqf4sgq2i">3muogqf4sgq2i</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogrnr5652x">3muogrnr5652x</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogsy473r2i">3muogsy473r2i</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoguciwj52x">3muoguciwj52x</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogwkerxl2g">3muogwkerxl2g</a> 
