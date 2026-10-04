@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://cplemaire.us.org/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cplemaire.us.org/a-short-introduction-to-urdu-poetry-and-its-major-poets-2/">a short introduction to urdu poetry and its major poets 2</a> 
+<a href="https://cplemaire.us.org/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://cplemaire.us.org/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cplemaire.us.org/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cplemaire.us.org/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cplemaire.us.org/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
+<a href="https://cplemaire.us.org/arcenturf-co-resource-2-3/">arcenturf co resource 2 3</a> 
+<a href="https://cplemaire.us.org/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://cplemaire.us.org/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://cplemaire.us.org/blueflamepublishingblog-xyz-resource-2-2/">blueflamepublishingblog xyz resource 2 2</a> 
 <a href="https://cplemaire.us.org/blueflamepublishingblog-xyz-resource-2/">blueflamepublishingblog xyz resource 2</a> 
 <a href="https://cplemaire.us.org/book-publishing-and-the-business-of-being-an-author-what-to/">book publishing and the business of being an author what to</a> 
 <a href="https://cplemaire.us.org/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
@@ -787,18 +802,3 @@
 <a href="https://croginalcats.xyz/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
 <a href="https://croginalcats.xyz/what-makes-an-explainer-article-genuinely-useful-a-practical-guide/">what makes an explainer article genuinely useful a practical</a> 
 <a href="https://croginalcats.xyz/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
-<a href="https://croginalcats.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
-<a href="https://croginalcats.xyz/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
-<a href="https://croginalcats.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://croginalcats.xyz/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
-<a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://croyale88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://croyale88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://croyale88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://croyale88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://croyale88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://croyale88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://croyale88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 

@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://croginalcats.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://croginalcats.xyz/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
+<a href="https://croginalcats.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://croginalcats.xyz/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://croginalcats.xyz/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
+<a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://croyale88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://croyale88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://croyale88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://croyale88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://croyale88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://croyale88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://croyale88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://croyale88.xyz/hello-world/">hello world</a> 
 <a href="https://croyale88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://croyale88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
@@ -787,18 +802,3 @@
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-and-how-tos-for-the-26-4-3/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-and-how-tos-for-the-26-4/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-digital-26-4/">mastering online research guides reviews how tos for digital</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-effecti-26-4-2/">mastering online research guides reviews how tos for effecti</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-effecti-26-4/">mastering online research guides reviews how tos for effecti</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4-2/">mastering online research guides reviews how tos for savvy r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4-3/">mastering online research guides reviews how tos for savvy r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4-4/">mastering online research guides reviews how tos for savvy r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-26-4/">mastering online research guides reviews how tos for savvy r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-26-4/">mastering online research guides reviews how tos for smart i</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-26-4/">mastering online research guides reviews how tos for smart l</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-26-4-2/">mastering online research guides reviews how tos for smart r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-26-4-3/">mastering online research guides reviews how tos for smart r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-26-4/">mastering online research guides reviews how tos for smart r</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-smarter-26-4/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-success-26-4/">mastering online research guides reviews how tos for success</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-research-guides-reviews-how-tos-for-the-sav-26-4/">mastering online research guides reviews how tos for the sav</a> 
-<a href="https://cyberkannadig.it.com/mastering-personal-finance-a-business-owner-s-guide-to-finan/">mastering personal finance a business owner s guide to finan</a> 

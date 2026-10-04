@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://casacours.uk.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://casacours.uk.com/understanding-baby-name-origins-across-cultures-and-language-2/">understanding baby name origins across cultures and language</a> 
+<a href="https://casacours.uk.com/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
+<a href="https://casacours.uk.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://casacours.uk.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
+<a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
+<a href="https://casacours.uk.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
+<a href="https://casacours.uk.com/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
+<a href="https://casacours.uk.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
+<a href="https://casacours.uk.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
+<a href="https://casacours.uk.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
+<a href="https://casacours.uk.com/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
+<a href="https://casacours.uk.com/what-makes-a-website-easy-and-pleasant-to-read/">what makes a website easy and pleasant to read</a> 
+<a href="https://casacours.uk.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
 <a href="https://casacours.uk.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://casacours.uk.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
 <a href="https://casacours.uk.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
@@ -787,18 +802,3 @@
 <a href="https://cbdpuffbars.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cbdpuffbars.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cbdpuffbars.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
-<a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
-<a href="https://cbdpuffbars.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://cbdpuffbars.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://cbdpuffbars.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://cbdpuffbars.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://cbdpuffbars.com/avoid-online-loan-and-text-scams/">avoid online loan and text scams</a> 
-<a href="https://cbdpuffbars.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://cbdpuffbars.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://cbdpuffbars.com/boosting-your-business-and-personal-finances-a-marketing-per/">boosting your business and personal finances a marketing per</a> 
-<a href="https://cbdpuffbars.com/breaking-down-today-s-top-news-expert-analysis-and-key-insig/">breaking down today s top news expert analysis and key insig</a> 
-<a href="https://cbdpuffbars.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://cbdpuffbars.com/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
-<a href="https://cbdpuffbars.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://cbdpuffbars.com/building-your-personal-toolkit-essential-digital-tools-onlin-84-4/">building your personal toolkit essential digital tools onlin</a> 

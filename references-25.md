@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://getolive.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opinion/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy-2/">a closer look at how to tell if a website is trustworthy 2</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://getolive.org/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://getolive.org/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://getolive.org/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://getolive.org/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://getolive.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://getolive.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://getolive.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine-2/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://getolive.org/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
+<a href="https://getolive.org/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://getolive.org/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
 <a href="https://getolive.org/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://getolive.org/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
 <a href="https://getolive.org/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -784,21 +802,3 @@
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7-9/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-29-7/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://globespro.it.com/mastering-marketing-seo-growth-leveraging-online-resources-f-29-7/">mastering marketing seo growth leveraging online resources f</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-navigating-the-best-online-re-29-7-2/">mastering marketing seo growth navigating the best online re</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-navigating-the-best-online-re-29-7/">mastering marketing seo growth navigating the best online re</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-navigating-the-web-for-succes-29-7/">mastering marketing seo growth navigating the web for succes</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-business-succe-29-7-2/">mastering marketing seo growth strategies for business succe</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-business-succe-29-7/">mastering marketing seo growth strategies for business succe</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-digital-succes-29-7/">mastering marketing seo growth strategies for digital succes</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-10/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-11/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-12/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-13/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-14/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-15/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-16/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-17/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-18/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-19/">mastering marketing seo growth strategies for success 29 7 1</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-2/">mastering marketing seo growth strategies for success 29 7 2</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-growth-strategies-for-success-29-7-20/">mastering marketing seo growth strategies for success 29 7 2</a> 

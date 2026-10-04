@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://feetfinder.uk.net/common-questions-answered-6/">common questions answered 6</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-8/">common questions answered 8</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered-9/">common questions answered 9</a> 
+<a href="https://feetfinder.uk.net/common-questions-answered/">common questions answered</a> 
+<a href="https://feetfinder.uk.net/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
+<a href="https://feetfinder.uk.net/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://feetfinder.uk.net/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
+<a href="https://feetfinder.uk.net/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
+<a href="https://feetfinder.uk.net/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://feetfinder.uk.net/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://feetfinder.uk.net/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://feetfinder.uk.net/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://feetfinder.uk.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://feetfinder.uk.net/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://feetfinder.uk.net/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype-2/">how to avoid misinformation and hype 2</a> 
 <a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
@@ -139,6 +156,7 @@
 <a href="https://fideleturfturf.it.com/discover-the-best-digital-tools-online-resources-for-every-n-28-5-8/">discover the best digital tools online resources for every n</a> 
 <a href="https://fideleturfturf.it.com/discover-the-best-digital-tools-online-resources-for-every-n-28-5-9/">discover the best digital tools online resources for every n</a> 
 <a href="https://fideleturfturf.it.com/discover-the-best-digital-tools-online-resources-for-every-n-28-5/">discover the best digital tools online resources for every n</a> 
+<a href="https://fideleturfturf.it.com/discover-the-best-digital-tools-online-resources-for-movie-t-28-5/">discover the best digital tools online resources for movie t</a> 
 <a href="https://fideleturfturf.it.com/discover-the-best-digital-tools-online-resources-for-product-28-5-2/">discover the best digital tools online resources for product</a> 
 <a href="https://fideleturfturf.it.com/discover-the-best-digital-tools-online-resources-for-product-28-5-3/">discover the best digital tools online resources for product</a> 
 <a href="https://fideleturfturf.it.com/discover-the-best-digital-tools-online-resources-for-product-28-5-4/">discover the best digital tools online resources for product</a> 
@@ -784,21 +802,3 @@
 <a href="https://financieelveiligouderworden.com/exploring-the-web-tech-and-content-a-deep-dive-into-cryptocu-95-4/">exploring the web tech and content a deep dive into cryptocu</a> 
 <a href="https://financieelveiligouderworden.com/exploring-the-web-tech-content-landscape-a-comprehensive-gui-95-4/">exploring the web tech content landscape a comprehensive gui</a> 
 <a href="https://financieelveiligouderworden.com/exploring-the-world-of-online-casinos-digital-tools-resource-95-8/">exploring the world of online casinos digital tools resource</a> 
-<a href="https://financieelveiligouderworden.com/exploring-thedigitalweekly-latest-updates-in-web-tech-conten-95-9/">exploring thedigitalweekly latest updates in web tech conten</a> 
-<a href="https://financieelveiligouderworden.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://financieelveiligouderworden.com/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
-<a href="https://financieelveiligouderworden.com/free-art-prompt-generator/">free art prompt generator</a> 
-<a href="https://financieelveiligouderworden.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://financieelveiligouderworden.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://financieelveiligouderworden.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://financieelveiligouderworden.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
-<a href="https://financieelveiligouderworden.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://financieelveiligouderworden.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://financieelveiligouderworden.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://financieelveiligouderworden.com/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://financieelveiligouderworden.com/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
-<a href="https://financieelveiligouderworden.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://financieelveiligouderworden.com/getting-the-basics-of-staying-safe-while-browsing-right-2/">getting the basics of staying safe while browsing right 2</a> 
-<a href="https://financieelveiligouderworden.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://financieelveiligouderworden.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://financieelveiligouderworden.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 

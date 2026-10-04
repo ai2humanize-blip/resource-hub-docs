@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://dellywoodfilms.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://dellywoodfilms.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://dellywoodfilms.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://dellywoodfilms.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://dellywoodfilms.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://dellywoodfilms.com/how-to-effectively-use-social-media-for-small-business-growt/">how to effectively use social media for small business growt</a> 
+<a href="https://dellywoodfilms.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://dellywoodfilms.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://dellywoodfilms.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide-2/">how to find balanced coverage of a topic a practical guide 2</a> 
+<a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
 <a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://dellywoodfilms.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://dellywoodfilms.com/how-to-find-reliable-how-to-guides-2/">how to find reliable how to guides 2</a> 
@@ -786,19 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-14oo">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-1bee">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-27bk">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-2b5e">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-2e39">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-4jdd">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-53pk">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-5998">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-65">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-fml">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-perspective-4jfd">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners-2kd4">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners-54ak">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-data-privacy-a-practical-guide-for-everyday-users-1p4d">understanding data privacy a practical guide for everyday us</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-digital-literacy-23g5">understanding digital literacy 23g5</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-digital-literacy-a-quick-guide-1n68">understanding digital literacy a quick guide 1n68</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-digital-literacy-and-why-it-matters-47pd">understanding digital literacy and why it matters 47pd</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-digital-literacy-the-basics-20da">understanding digital literacy the basics 20da</a> 
-<a href="https://dev.to/ai2humanizeblip/understanding-digital-literacy-the-basics-a2m">understanding digital literacy the basics a2m</a> 
