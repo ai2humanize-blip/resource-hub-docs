@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://grouperfishingsecrets.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://grouperfishingsecrets.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://grouperfishingsecrets.com/expert-guides-reviews-and-how-tos-to-transform-your-life-and-98-7/">expert guides reviews and how tos to transform your life and</a> 
+<a href="https://grouperfishingsecrets.com/exploring-cryptocurrency-blockchain-and-online-gambling-guid-98-7/">exploring cryptocurrency blockchain and online gambling guid</a> 
+<a href="https://grouperfishingsecrets.com/exploring-essential-digital-tools-online-resources-for-every-98-10/">exploring essential digital tools online resources for every</a> 
+<a href="https://grouperfishingsecrets.com/exploring-independent-business-finance-productivity-resource-98-9/">exploring independent business finance productivity resource</a> 
+<a href="https://grouperfishingsecrets.com/exploring-the-crypto-universe-guides-reviews-and-how-tos-for-98-7/">exploring the crypto universe guides reviews and how tos for</a> 
+<a href="https://grouperfishingsecrets.com/exploring-the-digital-frontier-guides-reviews-how-tos-for-th-98-7/">exploring the digital frontier guides reviews how tos for th</a> 
+<a href="https://grouperfishingsecrets.com/exploring-the-interconnected-world-of-web-tech-content-98-1/">exploring the interconnected world of web tech content 98 1</a> 
+<a href="https://grouperfishingsecrets.com/exploring-the-intersection-of-web-tech-and-content-for-moder-98-1/">exploring the intersection of web tech and content for moder</a> 
+<a href="https://grouperfishingsecrets.com/exploring-the-world-of-online-casinos-web-tech-and-content-i-98-1/">exploring the world of online casinos web tech and content i</a> 
+<a href="https://grouperfishingsecrets.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://grouperfishingsecrets.com/fix-a-stuck-windows-update/">fix a stuck windows update</a> 
+<a href="https://grouperfishingsecrets.com/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
+<a href="https://grouperfishingsecrets.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://grouperfishingsecrets.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://grouperfishingsecrets.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://grouperfishingsecrets.com/getting-how-to-fact-check-something-in-five-minutes-right-2/">getting how to fact check something in five minutes right 2</a> 
+<a href="https://grouperfishingsecrets.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://grouperfishingsecrets.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://grouperfishingsecrets.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://grouperfishingsecrets.com/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://grouperfishingsecrets.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
 <a href="https://grouperfishingsecrets.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://grouperfishingsecrets.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
 <a href="https://grouperfishingsecrets.com/getting-what-to-look-for-in-a-good-news-website-right-2/">getting what to look for in a good news website right 2</a> 
@@ -779,26 +802,3 @@
 <a href="https://heatherburrisphotography.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://heatherburrisphotography.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://heatherburrisphotography.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://heatherburrisphotography.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://heatherburrisphotography.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-99-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://heatherburrisphotography.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://heatherburrisphotography.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-2/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
-<a href="https://heatherburrisphotography.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://heatherburrisphotography.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://heatherburrisphotography.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://heatherburrisphotography.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://heatherburrisphotography.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://heatherburrisphotography.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-legal-news-a-guide-to-navigating-legal-informa/">understanding legal news a guide to navigating legal informa</a> 
-<a href="https://heatherburrisphotography.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://heatherburrisphotography.com/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 

@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoipih6jt2i">3muoipih6jt2i</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoiqulwgb2i">3muoiqulwgb2i</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muois62ioc2e">3muois62ioc2e</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoitfjwps2l">3muoitfjwps2l</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoiunbmp22e">3muoiunbmp22e</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoivw7xi22l">3muoivw7xi22l</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutrguvbys26">3mutrguvbys26</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutrncolsz2t">3mutrncolsz2t</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutrtojuzu2n">3mutrtojuzu2n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muts4c3mvl2q">3muts4c3mvl2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutschvxzi2z">3mutschvxzi2z</a> 
@@ -142,6 +150,7 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-6/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-savvy-readers-a-82-6/">essential digital tools online resources for savvy readers a</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-understanding-z-82-1/">essential digital tools online resources for understanding z</a> 
 <a href="https://captainjackinterview.com/essential-guides-and-tips-for-staying-safe-from-online-scams-82-3/">essential guides and tips for staying safe from online scams</a> 
 <a href="https://captainjackinterview.com/essential-independent-web-tech-and-crypto-resources-you-shou-82-7/">essential independent web tech and crypto resources you shou</a> 
 <a href="https://captainjackinterview.com/essential-web-tech-content-resources-for-designers-and-devel-82-2/">essential web tech content resources for designers and devel</a> 
@@ -793,12 +802,3 @@
 <a href="https://casinoisloty.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://casinoisloty.xyz/a-practical-guide-to-working-with-independent-publishers/">a practical guide to working with independent publishers</a> 
 <a href="https://casinoisloty.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://casinoisloty.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://casinoisloty.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://casinoisloty.xyz/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://casinoisloty.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://casinoisloty.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://casinoisloty.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://casinoisloty.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
-<a href="https://casinoisloty.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://casinoisloty.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 

@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://app.zentrack.net/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://app.zentrack.net/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://app.zentrack.net/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://app.zentrack.net/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://app.zentrack.net/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
 <a href="https://app.zentrack.net/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://app.zentrack.net/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
@@ -85,6 +89,7 @@
 <a href="https://app.zentrack.net/mastering-business-finance-and-productivity-a-comprehensive-25-2-14/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://app.zentrack.net/mastering-business-finance-and-productivity-a-comprehensive-25-2-15/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://app.zentrack.net/mastering-business-finance-and-productivity-a-comprehensive-25-2-16/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://app.zentrack.net/mastering-business-finance-and-productivity-a-comprehensive-25-2-17/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://app.zentrack.net/mastering-business-finance-and-productivity-a-comprehensive-25-2-2/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://app.zentrack.net/mastering-business-finance-and-productivity-a-comprehensive-25-2-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://app.zentrack.net/mastering-business-finance-and-productivity-a-comprehensive-25-2-4/">mastering business finance and productivity a comprehensive </a> 
@@ -656,6 +661,7 @@
 <a href="https://arcadefloristbedford.com/mastering-app-overload-how-to-optimize-your-digital-life-for/">mastering app overload how to optimize your digital life for</a> 
 <a href="https://arcadefloristbedford.com/mastering-business-finance-a-marketing-strategy-for-financia/">mastering business finance a marketing strategy for financia</a> 
 <a href="https://arcadefloristbedford.com/mastering-business-finance-and-productivity-a-comprehensive-79-3/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://arcadefloristbedford.com/mastering-business-finance-and-productivity-a-comprehensive-79-8-2/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://arcadefloristbedford.com/mastering-business-finance-and-productivity-a-comprehensive-79-8/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://arcadefloristbedford.com/mastering-business-finance-and-productivity-essential-insigh-79-3/">mastering business finance and productivity essential insigh</a> 
 <a href="https://arcadefloristbedford.com/mastering-business-finance-productivity-a-comprehensive-guid-79-3/">mastering business finance productivity a comprehensive guid</a> 
@@ -796,9 +802,3 @@
 <a href="https://arcadefloristbedford.com/navigating-web-tech-content-a-comprehensive-guide-for-modern-79-10/">navigating web tech content a comprehensive guide for modern</a> 
 <a href="https://arcadefloristbedford.com/navigating-web-tech-content-a-comprehensive-guide-for-smart-79-10/">navigating web tech content a comprehensive guide for smart </a> 
 <a href="https://arcadefloristbedford.com/navigating-web-tech-content-a-comprehensive-guide-to-online-79-5/">navigating web tech content a comprehensive guide to online </a> 
-<a href="https://arcadefloristbedford.com/navigating-web-tech-content-a-comprehensive-guide-to-quality-79-10/">navigating web tech content a comprehensive guide to quality</a> 
-<a href="https://arcadefloristbedford.com/navigating-web-tech-content-a-practical-guide-to-informed-on-79-10/">navigating web tech content a practical guide to informed on</a> 
-<a href="https://arcadefloristbedford.com/navigating-web-tech-content-avoiding-misinformation-and-enha-79-10/">navigating web tech content avoiding misinformation and enha</a> 
-<a href="https://arcadefloristbedford.com/newsrealtors-independent-coverage-of-india-and-world-news/">newsrealtors independent coverage of india and world news</a> 
-<a href="https://arcadefloristbedford.com/optimizing-your-online-experience-a-practical-guide-to-enhan-79-9/">optimizing your online experience a practical guide to enhan</a> 
-<a href="https://arcadefloristbedford.com/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
