@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://casacours.uk.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://casacours.uk.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://casacours.uk.com/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
+<a href="https://casacours.uk.com/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
+<a href="https://casacours.uk.com/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
+<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
 <a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
 <a href="https://casacours.uk.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
 <a href="https://casacours.uk.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
@@ -497,6 +506,7 @@
 <a href="https://cbd-stone.com/mastering-digital-skills-top-online-resources-professional-c-83-5/">mastering digital skills top online resources professional c</a> 
 <a href="https://cbd-stone.com/mastering-digital-tools-online-resources-a-comprehensive-gui-83-5-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbd-stone.com/mastering-digital-tools-online-resources-a-comprehensive-gui-83-5/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://cbd-stone.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-83-2-2/">mastering guides reviews how tos a comprehensive roundup 83 </a> 
 <a href="https://cbd-stone.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-83-2/">mastering guides reviews how tos a comprehensive roundup 83 </a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-83-3-2/">mastering marketing seo and growth a comprehensive guide 83 </a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-83-3/">mastering marketing seo and growth a comprehensive guide 83 </a> 
@@ -792,13 +802,3 @@
 <a href="https://cbd-stone.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
 <a href="https://cbd-stone.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-2/">why primary sources matter and how to find them 2</a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
-<a href="https://cbdpuffbars.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://cbdpuffbars.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
