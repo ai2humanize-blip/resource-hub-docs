@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-and-why-it-matters/">the difference between skimming and deep reading online and </a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-explained-simply/">the difference between skimming and deep reading online expl</a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-3/">the difference between skimming and deep reading online the </a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-4/">the difference between skimming and deep reading online the </a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://cbdstent.com/the-future-of-apps-how-ai-and-machine-learning-are-transform/">the future of apps how ai and machine learning are transform</a> 
+<a href="https://cbdstent.com/the-future-of-digital-interaction-how-ai-driven-apps-are-tra/">the future of digital interaction how ai driven apps are tra</a> 
+<a href="https://cbdstent.com/the-future-of-news-consumption-navigating-the-evolving-media/">the future of news consumption navigating the evolving media</a> 
 <a href="https://cbdstent.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
 <a href="https://cbdstent.com/the-impact-of-ai-on-modern-news-reporting-current-trends-and/">the impact of ai on modern news reporting current trends and</a> 
 <a href="https://cbdstent.com/the-rise-of-ai-in-journalism-transforming-news-delivery-and/">the rise of ai in journalism transforming news delivery and</a> 
@@ -792,13 +802,3 @@
 <a href="https://crediblenews24.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://crediblenews24.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://crediblenews24.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://crediblenews24.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://crediblenews24.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://crediblenews24.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-and-why-it-matters/">a simple framework for researching any topic online and why </a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://crediblenews24.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
