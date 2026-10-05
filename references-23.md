@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://fabulouspoetry.it.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://fabulouspoetry.it.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://fabulouspoetry.it.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://fanciful-meerkat-a4a41b.netlify.app/staying-safe-and-informed-the-latest-online-casino-and-gambl.html">staying safe and informed the latest online casino and gambl</a> 
+<a href="https://fancy-axolotl-42c6fd.netlify.app/navigating-online-casino-and-gambling-news-safety-and-respon.html">navigating online casino and gambling news safety and respon</a> 
+<a href="https://fancy-beijinho-fad32d.netlify.app/the-value-of-slow-careful-reading-a-practical-guide.html">the value of slow careful reading a practical guide</a> 
+<a href="https://fancy-meringue-a2811c.netlify.app/the-rise-of-data-driven-sports-analysis-how-analytics-are-tr.html">the rise of data driven sports analysis how analytics are tr</a> 
+<a href="https://fancy-souffle-7927bb.netlify.app/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
+<a href="https://fantastic-lamington-b40c2b.netlify.app/proof-of-work-vs-proof-of-stake-explained-simply.html">proof of work vs proof of stake explained simply</a> 
 <a href="https://fantastic-mousse-9b8284.netlify.app/how-to-spot-red-flags-and-avoid-unsafe-or-fake-casino-sites.html">how to spot red flags and avoid unsafe or fake casino sites</a> 
 <a href="https://fascinating-creponne-481514.netlify.app/revolutionizing-daily-life-how-apps-are-transforming-the-dig.html">revolutionizing daily life how apps are transforming the dig</a> 
 <a href="https://fascinating-profiterole-b429bd.netlify.app/what-to-know-about-how-to-build-a-personal-reading-list.html">what to know about how to build a personal reading list</a> 
@@ -793,12 +802,3 @@
 <a href="https://fil7771.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://fil7771.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://fil7771.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://financieelveiligouderworden.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
-<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://financieelveiligouderworden.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://financieelveiligouderworden.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
