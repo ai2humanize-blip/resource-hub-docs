@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
 <a href="https://fabulouspoetry.it.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://fabulouspoetry.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
@@ -793,12 +802,3 @@
 <a href="https://fideleturfturf.it.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://fideleturfturf.it.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://fideleturfturf.it.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://fideleturfturf.it.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://fil7771.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://fil7771.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://fil7771.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://fil7771.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://fil7771.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://fil7771.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://fil7771.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://fil7771.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
