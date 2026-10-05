@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://harjuno.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://harjuno.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://harjuno.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://harjuno.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://harjuno.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://harjuno.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://harjuno.xyz/hello-world/">hello world</a> 
+<a href="https://harjuno.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://harjuno.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://harjuno.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://harjuno.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://harjuno.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://harjuno.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://harjuno.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://harmonious-snickerdoodle-5055c0.netlify.app/practical-tech-tips-for-everyday-digital-life.html">practical tech tips for everyday digital life</a> 
+<a href="https://heatherburrisphotography.com/10-essential-strategies-for-career-growth-and-workplace-succ/">10 essential strategies for career growth and workplace succ</a> 
+<a href="https://heatherburrisphotography.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://heatherburrisphotography.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://heatherburrisphotography.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://heatherburrisphotography.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://heatherburrisphotography.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://heatherburrisphotography.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://heatherburrisphotography.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://heatherburrisphotography.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
@@ -172,6 +193,8 @@
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-15/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-16/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-17/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-18/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-19/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-2/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-4/">mastering business finance productivity a comprehensive guid</a> 
@@ -197,6 +220,7 @@
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-in-the-digital-age-99-8-3/">mastering business finance productivity in the digital age 9</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-in-the-digital-age-99-8-4/">mastering business finance productivity in the digital age 9</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-in-the-digital-age-99-8/">mastering business finance productivity in the digital age 9</a> 
+<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-in-the-digital-age-a-99-8/">mastering business finance productivity in the digital age a</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-growth-personal-finance-marketing-and-fin/">mastering business growth personal finance marketing and fin</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-growth-personal-finance-marketing-and-str/">mastering business growth personal finance marketing and str</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-personal-finance-and-marketing-a-comprehe-99-3/">mastering business personal finance and marketing a comprehe</a> 
@@ -644,6 +668,7 @@
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-100-9-2/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-100-9-3/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-100-9/">mastering web tech content a comprehensive guide for smart r</a> 
+<a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-for-the-dig-100-9-2/">mastering web tech content a comprehensive guide for the dig</a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-for-the-dig-100-9/">mastering web tech content a comprehensive guide for the dig</a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-100-9-2/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-100-9-3/">mastering web tech content a comprehensive guide for the mod</a> 
@@ -653,6 +678,7 @@
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-100-9-7/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-100-9/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-to-bookmark-100-9/">mastering web tech content a comprehensive guide to bookmark</a> 
+<a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-100-9-2/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-100-9/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-to-informed-100-9/">mastering web tech content a comprehensive guide to informed</a> 
 <a href="https://hedaroibergroup.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-100-9-2/">mastering web tech content a comprehensive guide to navigati</a> 
@@ -698,6 +724,7 @@
 <a href="https://hedaroibergroup.com/navigating-the-web-tech-content-a-comprehensive-guide-for-sm-100-9/">navigating the web tech content a comprehensive guide for sm</a> 
 <a href="https://hedaroibergroup.com/navigating-the-web-tech-content-landscape-a-comprehensive-gu-100-9/">navigating the web tech content landscape a comprehensive gu</a> 
 <a href="https://hedaroibergroup.com/navigating-today-s-news-guides-reviews-and-how-tos-for-infor-100-10/">navigating today s news guides reviews and how tos for infor</a> 
+<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-100-9/">navigating web tech content a comprehensive guide 100 9</a> 
 <a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-100-9-2/">navigating web tech content a comprehensive guide for the mo</a> 
 <a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-100-9/">navigating web tech content a comprehensive guide for the mo</a> 
 <a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-to-reliabl-100-9-2/">navigating web tech content a comprehensive guide to reliabl</a> 
@@ -775,30 +802,3 @@
 <a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://hedaroibergroup.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://hedaroibergroup.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://hedaroibergroup.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-how-search-engines-rank-pages-2/">understanding how search engines rank pages 2</a> 
-<a href="https://hedaroibergroup.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://hedaroibergroup.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://hedaroibergroup.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://hedaroibergroup.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-legal-news-a-guide-to-staying-informed-and-mak/">understanding legal news a guide to staying informed and mak</a> 
-<a href="https://hedaroibergroup.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
-<a href="https://hedaroibergroup.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
