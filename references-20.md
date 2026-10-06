@@ -175,6 +175,7 @@
 <a href="https://emiamedical.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://emiamedical.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
 <a href="https://emiamedical.com/discover-the-best-digital-tools-online-resources-for-every-n-92-1-2/">discover the best digital tools online resources for every n</a> 
+<a href="https://emiamedical.com/discover-the-best-digital-tools-online-resources-for-every-n-92-1-3/">discover the best digital tools online resources for every n</a> 
 <a href="https://emiamedical.com/discover-the-best-digital-tools-online-resources-for-every-n-92-1/">discover the best digital tools online resources for every n</a> 
 <a href="https://emiamedical.com/discover-the-best-digital-tools-online-resources-for-success-92-6/">discover the best digital tools online resources for success</a> 
 <a href="https://emiamedical.com/discover-the-best-free-fonts-and-online-resources-for-your-w-92-1/">discover the best free fonts and online resources for your w</a> 
@@ -197,6 +198,7 @@
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-living-92-1/">essential digital tools online resources for modern living 9</a> 
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-needs-92-1-2/">essential digital tools online resources for modern needs 92</a> 
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-needs-92-1-3/">essential digital tools online resources for modern needs 92</a> 
+<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-needs-92-1-4/">essential digital tools online resources for modern needs 92</a> 
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-needs-92-1/">essential digital tools online resources for modern needs 92</a> 
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-readers-92-1-2/">essential digital tools online resources for modern readers </a> 
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-readers-92-1/">essential digital tools online resources for modern readers </a> 
@@ -219,6 +221,7 @@
 <a href="https://emiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-92-1-3/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://emiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-92-1/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://emiamedical.com/exploring-essential-digital-tools-online-resources-for-every-92-1/">exploring essential digital tools online resources for every</a> 
+<a href="https://emiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-92-1-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://emiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-92-1/">exploring essential digital tools online resources for moder</a> 
 <a href="https://emiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-92-6/">exploring essential digital tools online resources for moder</a> 
 <a href="https://emiamedical.com/exploring-the-best-digital-tools-online-resources-for-modern-92-6/">exploring the best digital tools online resources for modern</a> 
@@ -799,6 +802,3 @@
 <a href="https://esm.sh/ls-a-closer-look-at-how-to-evaluate-online-reviews-and-recommen-mtmmxxvm@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-a-closer-look-at-how-to-fact-check-something-in-five-minutes-mtmnxf7o@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-a-closer-look-at-the-difference-between-skimming-and-deep-re-mtpnt2fg@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-a-closer-look-at-the-value-of-slow-careful-reading-mtmnq3dv@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-a-closer-look-at-understanding-digital-literacy-mtmmprwx@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-a-closer-look-at-understanding-how-search-engines-rank-pages-mtmm5udz@1.0.0/index.html">index</a> 
