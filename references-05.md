@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://algiamedical.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
+<a href="https://algiamedical.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
+<a href="https://algiamedical.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
 <a href="https://algiamedical.com/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
 <a href="https://algiamedical.com/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
 <a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre-2/">understanding the impact of ai on modern journalism a compre</a> 
@@ -111,6 +114,7 @@
 <a href="https://alientapereviews.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
 <a href="https://alientapereviews.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
 <a href="https://alientapereviews.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-78-2/">comprehensive guides in depth reviews and practical how tos </a> 
+<a href="https://alientapereviews.com/comprehensive-guides-reviews-and-how-tos-for-cryptocurrency-78-7/">comprehensive guides reviews and how tos for cryptocurrency </a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-78-2/">comprehensive guides reviews and how tos for every interest </a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-how-tos-and-key-crypto-concepts-78-2/">comprehensive guides reviews how tos and key crypto concepts</a> 
 <a href="https://alientapereviews.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-78-2/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
@@ -632,6 +636,7 @@
 <a href="https://app.zentrack.net/a-beginner-s-guide-to-bitcoin-gambling-essential-digital-too-25-3/">a beginner s guide to bitcoin gambling essential digital too</a> 
 <a href="https://app.zentrack.net/a-beginner-s-guide-to-navigating-the-world-of-bitcoin-essent-25-3/">a beginner s guide to navigating the world of bitcoin essent</a> 
 <a href="https://app.zentrack.net/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://app.zentrack.net/a-beginner-s-guide-to-understanding-and-starting-with-crypto-25-2/">a beginner s guide to understanding and starting with crypto</a> 
 <a href="https://app.zentrack.net/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
 <a href="https://app.zentrack.net/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://app.zentrack.net/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
@@ -797,8 +802,3 @@
 <a href="https://app.zentrack.net/essential-digital-tools-online-resources-for-smarter-learnin-25-3/">essential digital tools online resources for smarter learnin</a> 
 <a href="https://app.zentrack.net/essential-digital-tools-online-resources-for-smarter-living-25-3/">essential digital tools online resources for smarter living </a> 
 <a href="https://app.zentrack.net/essential-digital-tools-online-resources-for-smarter-news-co-25-3/">essential digital tools online resources for smarter news co</a> 
-<a href="https://app.zentrack.net/essential-digital-tools-online-resources-for-smarter-researc-25-3-2/">essential digital tools online resources for smarter researc</a> 
-<a href="https://app.zentrack.net/essential-digital-tools-online-resources-for-smarter-researc-25-3-3/">essential digital tools online resources for smarter researc</a> 
-<a href="https://app.zentrack.net/essential-digital-tools-online-resources-for-smarter-researc-25-3/">essential digital tools online resources for smarter researc</a> 
-<a href="https://app.zentrack.net/essential-digital-tools-online-resources-for-social-media-an-25-3/">essential digital tools online resources for social media an</a> 
-<a href="https://app.zentrack.net/essential-digital-tools-online-resources-for-south-africans-25-3-2/">essential digital tools online resources for south africans </a> 
