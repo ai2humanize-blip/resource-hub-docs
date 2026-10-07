@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-how-search-engines-rank-pages.html">understanding how search engines rank pages</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-legal-information-and-news-a-comprehensive-gui.html">understanding legal information and news a comprehensive gui</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-online-casino-payment-and-withdrawal-methods-w-42-2.html">understanding online casino payment and withdrawal methods w</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-online-slot-machines-and-how-rtp-return-to-pla.html">understanding online slot machines and how rtp return to pla</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-future-of-finance-cryptocurrency-bitcoin-a.html">understanding the future of finance cryptocurrency bitcoin a</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-impact-of-ai-on-modern-journalism-a-deep-d.html">understanding the impact of ai on modern journalism a deep d</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-impact-of-ai-on-modern-news-consumption-an.html">understanding the impact of ai on modern news consumption an</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-impact-of-ai-on-modern-news-reporting-a-co.html">understanding the impact of ai on modern news reporting a co</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-impact-of-ai-on-modern-news-reporting-a-de.html">understanding the impact of ai on modern news reporting a de</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-impact-of-ai-on-news-reporting-current-tre.html">understanding the impact of ai on news reporting current tre</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-latest-developments-in-global-news-coverag.html">understanding the latest developments in global news coverag</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-latest-trends-in-cryptocurrency-news-and-a.html">understanding the latest trends in cryptocurrency news and a</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-latest-trends-in-global-news-reporting-and.html">understanding the latest trends in global news reporting and</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-the-latest-trends-in-news-consumption-and-anal.html">understanding the latest trends in news consumption and anal</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/understanding-today-s-media-landscape-current-news-analysis-.html">understanding today s media landscape current news analysis</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/unlocking-creativity-how-ai-powered-apps-are-transforming-th.html">unlocking creativity how ai powered apps are transforming th</a> 
@@ -51,6 +64,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/why-primary-sources-matter-and-how-to-find-them-a-practical-.html">why primary sources matter and how to find them a practical</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/why-primary-sources-matter-and-how-to-find-them-and-why-it-m.html">why primary sources matter and how to find them and why it m</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/why-primary-sources-matter-and-how-to-find-them-explained-si.html">why primary sources matter and how to find them explained si</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/zakat-on-cash.html">zakat on cash</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub">curated resource hub</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-areyoufashion-com">a closer look at areyoufashion com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-baginda168">a closer look at baginda168</a> 
@@ -788,17 +802,3 @@
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply-2/">understanding digital literacy explained simply 2</a> 
-<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://algiamedical.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://algiamedical.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://algiamedical.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://algiamedical.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid-2/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid-3/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://algiamedical.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://algiamedical.com/understanding-legal-news-a-guide-to-staying-informed-and-emp/">understanding legal news a guide to staying informed and emp</a> 
-<a href="https://algiamedical.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
