@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://cbd-stone.com/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
+<a href="https://cbd-stone.com/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://cbd-stone.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://cbd-stone.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://cbd-stone.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://cbd-stone.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://cbd-stone.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://cbd-stone.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://cbd-stone.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://cbd-stone.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
 <a href="https://cbd-stone.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://cbd-stone.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://cbd-stone.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
@@ -481,6 +491,7 @@
 <a href="https://cbdpuffbars.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://cbdpuffbars.com/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
 <a href="https://cbdpuffbars.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://cbdpuffbars.com/understanding-crypto-media-a-beginner-s-guide-to-staying-inf-84-3/">understanding crypto media a beginner s guide to staying inf</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
@@ -791,14 +802,3 @@
 <a href="https://cbdstent.com/mastering-business-finance-productivity-essential-resources-85-7/">mastering business finance productivity essential resources </a> 
 <a href="https://cbdstent.com/mastering-business-finance-productivity-essential-web-skills-85-7/">mastering business finance productivity essential web skills</a> 
 <a href="https://cbdstent.com/mastering-business-finance-productivity-travel-savings-strat-85-7/">mastering business finance productivity travel savings strat</a> 
-<a href="https://cbdstent.com/mastering-crypto-guides-reviews-and-how-tos-for-bitcoin-and-85-5/">mastering crypto guides reviews and how tos for bitcoin and </a> 
-<a href="https://cbdstent.com/mastering-cryptocurrency-bitcoin-and-blockchain-comprehensiv-85-5/">mastering cryptocurrency bitcoin and blockchain comprehensiv</a> 
-<a href="https://cbdstent.com/mastering-cryptocurrency-bitcoin-and-blockchain-guides-revie-85-5/">mastering cryptocurrency bitcoin and blockchain guides revie</a> 
-<a href="https://cbdstent.com/mastering-cryptocurrency-bitcoin-blockchain-ultimate-guides-85-5/">mastering cryptocurrency bitcoin blockchain ultimate guides </a> 
-<a href="https://cbdstent.com/mastering-cryptocurrency-government-services-and-more-your-u-85-5/">mastering cryptocurrency government services and more your u</a> 
-<a href="https://cbdstent.com/mastering-cryptocurrency-guides-reviews-and-how-tos-for-ever-85-5/">mastering cryptocurrency guides reviews and how tos for ever</a> 
-<a href="https://cbdstent.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-85-5/">mastering digital literacy guides reviews and how tos for th</a> 
-<a href="https://cbdstent.com/mastering-digital-organization-top-apps-for-a-clutter-free-l/">mastering digital organization top apps for a clutter free l</a> 
-<a href="https://cbdstent.com/mastering-everyday-tech-card-games-guides-reviews-how-tos-85-5/">mastering everyday tech card games guides reviews how tos 85</a> 
-<a href="https://cbdstent.com/mastering-guides-reviews-and-how-tos-a-comprehensive-guide-t-85-5-2/">mastering guides reviews and how tos a comprehensive guide t</a> 
-<a href="https://cbdstent.com/mastering-guides-reviews-and-how-tos-a-comprehensive-guide-t-85-5/">mastering guides reviews and how tos a comprehensive guide t</a> 

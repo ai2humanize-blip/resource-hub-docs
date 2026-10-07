@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muofrap6tb2x">3muofrap6tb2x</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoft3qgf52x">3muoft3qgf52x</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muofuzzord2e">3muofuzzord2e</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muofwoohqr2i">3muofwoohqr2i</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muofy6hvrg2c">3muofy6hvrg2c</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muofzx4goc2x">3muofzx4goc2x</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muog3j5ez72l">3muog3j5ez72l</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muog4sbpwo2a">3muog4sbpwo2a</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muog62yfma2l">3muog62yfma2l</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muog7g4re62a">3muog7g4re62a</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogamicqa2l">3muogamicqa2l</a> 
@@ -217,6 +225,7 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-6/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-savvy-readers-a-82-6/">essential digital tools online resources for savvy readers a</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-staying-informe-82-1/">essential digital tools online resources for staying informe</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-understanding-z-82-1/">essential digital tools online resources for understanding z</a> 
 <a href="https://captainjackinterview.com/essential-guides-and-tips-for-staying-safe-from-online-scams-82-3/">essential guides and tips for staying safe from online scams</a> 
 <a href="https://captainjackinterview.com/essential-independent-web-tech-and-crypto-resources-you-shou-82-7/">essential independent web tech and crypto resources you shou</a> 
@@ -793,12 +802,3 @@
 <a href="https://casacours.uk.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
 <a href="https://casacours.uk.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
 <a href="https://casacours.uk.com/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
-<a href="https://casacours.uk.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://casacours.uk.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://casacours.uk.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://casacours.uk.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
-<a href="https://casacours.uk.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
-<a href="https://casacours.uk.com/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
-<a href="https://casacours.uk.com/licensing-and-player-protections-in-regulated-gambling-marke/">licensing and player protections in regulated gambling marke</a> 
-<a href="https://casacours.uk.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://casacours.uk.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 

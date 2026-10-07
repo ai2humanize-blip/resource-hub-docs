@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT">QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE">QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3">QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP">QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP">QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V">QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY">QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B">QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX">QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPU34QrHYAvu3LugT9ERWah6DrEtMYvhnLwq78BistxFb">QmPU34QrHYAvu3LugT9ERWah6DrEtMYvhnLwq78BistxFb</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPWBnXTubcpkb6HNJ7PHwrMkwUqAxLadtFCGCycgS3DNz">QmPWBnXTubcpkb6HNJ7PHwrMkwUqAxLadtFCGCycgS3DNz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPhe8jRmXbxFZn1WD8Kk22EdJxkM7k8rMkVQMZjQxYgzm">QmPhe8jRmXbxFZn1WD8Kk22EdJxkM7k8rMkVQMZjQxYgzm</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPiWKjw7fSkDSCSAjfjRcakmNAS45SA1WiX1E9mLL46aY">QmPiWKjw7fSkDSCSAjfjRcakmNAS45SA1WiX1E9mLL46aY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPom5pKmNMdGWy83px6VBmcCT85XxeBqJXL35sqJbEbQh">QmPom5pKmNMdGWy83px6VBmcCT85XxeBqJXL35sqJbEbQh</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPsKsmLkivcTsiFUc3dPECD8jxXB5MbXJqxpWG3MkJG2S">QmPsKsmLkivcTsiFUc3dPECD8jxXB5MbXJqxpWG3MkJG2S</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQ1mjRxf89qJ9YpX3qhGeQeDeN4EAjiBr3orPABwXBayC">QmQ1mjRxf89qJ9YpX3qhGeQeDeN4EAjiBr3orPABwXBayC</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQ3hDnBhNqoz5gkVYhQxQaZ6uvpvjzNjkCDXpCtA4uF5o">QmQ3hDnBhNqoz5gkVYhQxQaZ6uvpvjzNjkCDXpCtA4uF5o</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQB3amsXmyxs6SqooL35pXFcUiNCoAQKSxrvXLKbc6GKk">QmQB3amsXmyxs6SqooL35pXFcUiNCoAQKSxrvXLKbc6GKk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQCj5pxJbY1SSu4QpXneJLFUi2HS8uqYjdq387Z7RWgzF">QmQCj5pxJbY1SSu4QpXneJLFUi2HS8uqYjdq387Z7RWgzF</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQUbgrAvzE7NZE9vpCYXAfiyfXoFwWk2oinL6eYJdbpYe">QmQUbgrAvzE7NZE9vpCYXAfiyfXoFwWk2oinL6eYJdbpYe</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQbDhmHiL7vckUS7cTd2vjFyuUQtVC3TpNPBfD7aK3zTx">QmQbDhmHiL7vckUS7cTd2vjFyuUQtVC3TpNPBfD7aK3zTx</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q">QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj">QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmR4xtwTnEELKdog7g5o2oDAhK2te5DaL6EnBT8qrqcGT2">QmR4xtwTnEELKdog7g5o2oDAhK2te5DaL6EnBT8qrqcGT2</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmR6yYAJY8BgFp8fgEbgn9cz6s8XtRR6XhkYMcdJrZCsDR">QmR6yYAJY8BgFp8fgEbgn9cz6s8XtRR6XhkYMcdJrZCsDR</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmRCWGVgoY2YPD631LQi59WQsCLTSQTZn2DYYu6pXvhdhX">QmRCWGVgoY2YPD631LQi59WQsCLTSQTZn2DYYu6pXvhdhX</a> 
@@ -779,26 +802,3 @@
 <a href="https://jollibeecasino.xyz/common-questions-answered-2/">common questions answered 2</a> 
 <a href="https://jollibeecasino.xyz/common-questions-answered-20/">common questions answered 20</a> 
 <a href="https://jollibeecasino.xyz/common-questions-answered-21/">common questions answered 21</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-22/">common questions answered 22</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-6/">common questions answered 6</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-7/">common questions answered 7</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-8/">common questions answered 8</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered/">common questions answered</a> 
-<a href="https://jollibeecasino.xyz/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
-<a href="https://jollibeecasino.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://jollibeecasino.xyz/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
-<a href="https://jollibeecasino.xyz/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
-<a href="https://jollibeecasino.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://jollibeecasino.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://jollibeecasino.xyz/finding-the-right-outlet-for-your-announcement/">finding the right outlet for your announcement</a> 
-<a href="https://jollibeecasino.xyz/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://jollibeecasino.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://jollibeecasino.xyz/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://jollibeecasino.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://jollibeecasino.xyz/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://jollibeecasino.xyz/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
-<a href="https://jollibeecasino.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 

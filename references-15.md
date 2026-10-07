@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://croginalcats.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
+<a href="https://croginalcats.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://croginalcats.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://croginalcats.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://croginalcats.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://croginalcats.xyz/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://croginalcats.xyz/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://croginalcats.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
+<a href="https://croginalcats.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://croginalcats.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://croginalcats.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
+<a href="https://croginalcats.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
+<a href="https://croginalcats.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
 <a href="https://croginalcats.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
 <a href="https://croginalcats.xyz/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
 <a href="https://croginalcats.xyz/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
@@ -789,16 +802,3 @@
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-26-4/">mastering guides reviews how tos a comprehensive roundup 26 </a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-a-curated-web-directory-rou-26-4/">mastering guides reviews how tos a curated web directory rou</a> 
 <a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-26-4/">mastering guides reviews how tos your ultimate resource 26 4</a> 
-<a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-26-4-2/">mastering guides reviews how tos your ultimate resource roun</a> 
-<a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-26-4-3/">mastering guides reviews how tos your ultimate resource roun</a> 
-<a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-26-4/">mastering guides reviews how tos your ultimate resource roun</a> 
-<a href="https://cyberkannadig.it.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-26-4/">mastering guides reviews how tos your ultimate round up for </a> 
-<a href="https://cyberkannadig.it.com/mastering-information-guides-reviews-how-tos-for-the-modern-26-4/">mastering information guides reviews how tos for the modern </a> 
-<a href="https://cyberkannadig.it.com/mastering-instagram-posts-and-navigating-indonesian-services-26-4/">mastering instagram posts and navigating indonesian services</a> 
-<a href="https://cyberkannadig.it.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-26-3/">mastering modern communication a deep dive into web tech con</a> 
-<a href="https://cyberkannadig.it.com/mastering-modern-fashion-how-to-stay-ahead-of-style-and-life/">mastering modern fashion how to stay ahead of style and life</a> 
-<a href="https://cyberkannadig.it.com/mastering-modern-media-guides-reviews-how-tos-for-savvy-read-26-4/">mastering modern media guides reviews how tos for savvy read</a> 
-<a href="https://cyberkannadig.it.com/mastering-movie-franchises-and-release-windows-a-comprehensi-26-3/">mastering movie franchises and release windows a comprehensi</a> 
-<a href="https://cyberkannadig.it.com/mastering-news-consumption-guides-reviews-how-tos-for-inform-26-4/">mastering news consumption guides reviews how tos for inform</a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-and-how-tos-for-26-4-2/">mastering online information guides reviews and how tos for </a> 
-<a href="https://cyberkannadig.it.com/mastering-online-information-guides-reviews-and-how-tos-for-26-4-3/">mastering online information guides reviews and how tos for </a> 
