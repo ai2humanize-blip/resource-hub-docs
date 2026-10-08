@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://emiamedical.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://emiamedical.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://emiamedical.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://emiamedical.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://emiamedical.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://emiamedical.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://emiamedical.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
 <a href="https://emiamedical.com/what-to-know-about-why-context-matters-when-reading-online-3/">what to know about why context matters when reading online 3</a> 
 <a href="https://emiamedical.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
@@ -796,9 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dc66651/is-there-an-official-aavot-app-to-download-yet.html">is there an official aavot app to download yet</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dd2853f/slot-bonus-buys-what-feature-buy-costs.html">slot bonus buys what feature buy costs</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dd475df/debt-payoff-calculator.html">debt payoff calculator</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dd75bf9/what-the-fear-greed-index-can-and-cannot.html">what the fear greed index can and cannot</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ddcf04e/a-simple-framework-for-researching-any-topic-online-the-basi.html">a simple framework for researching any topic online the basi</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dde00eb/eternal-slots-casino-review-top-online-slots-casino.html">eternal slots casino review top online slots casino</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@de635b3/getgabay.html">getgabay</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@de6d998/what-to-know-about-understanding-how-search-engines-rank-pag.html">what to know about understanding how search engines rank pag</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@df0923b/bitcointalk.html">bitcointalk</a> 

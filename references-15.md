@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cochesdeocasion.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cochesdeocasion.xyz/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
+<a href="https://cochesdeocasion.xyz/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
 <a href="https://comforting-alfajores-af12f3.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
 <a href="https://comfy-puppy-8bcdd1.netlify.app/navigating-the-shifting-tides-of-2023-news-in-depth-analysis.html">navigating the shifting tides of 2023 news in depth analysis</a> 
 <a href="https://competitorscreenshots.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/the-role-of-ai-in-modern-news-reporting-opportunities-and-ch/">the role of ai in modern news reporting opportunities and ch</a> 
 <a href="https://crediblenews24.com/the-ultimate-guide-to-building-a-personal-brand-online/">the ultimate guide to building a personal brand online</a> 
 <a href="https://crediblenews24.com/the-ultimate-guide-to-casinos-without-spelpaus-top-brands-ti-86-10/">the ultimate guide to casinos without spelpaus top brands ti</a> 
-<a href="https://crediblenews24.com/the-ultimate-guide-to-digital-tools-online-resources-for-cry-86-7/">the ultimate guide to digital tools online resources for cry</a> 
-<a href="https://crediblenews24.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://crediblenews24.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 

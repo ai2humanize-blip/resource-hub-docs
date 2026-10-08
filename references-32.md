@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-organize-the-information-you-find-online/">what to know about how to organize the information you find </a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://heatherburrisphotography.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://heatherburrisphotography.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://heatherburrisphotography.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://heatherburrisphotography.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://heatherburrisphotography.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://heatherburrisphotography.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://heatherburrisphotography.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://heatherburrisphotography.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
 <a href="https://heatherburrisphotography.com/why-niche-blogs-still-matter-a-quick-guide-2/">why niche blogs still matter a quick guide 2</a> 
 <a href="https://heatherburrisphotography.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://heatherburrisphotography.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
@@ -784,21 +802,3 @@
 <a href="https://homaryreviews.com/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
 <a href="https://homaryreviews.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
 <a href="https://homaryreviews.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://homaryreviews.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
-<a href="https://homaryreviews.com/renew-your-smart-id-card/">renew your smart id card</a> 
-<a href="https://homaryreviews.com/revolutionizing-creativity-how-ai-powered-apps-are-transform/">revolutionizing creativity how ai powered apps are transform</a> 
-<a href="https://homaryreviews.com/revolutionizing-creativity-how-ai-powered-tools-transform-ma-101-10/">revolutionizing creativity how ai powered tools transform ma</a> 
-<a href="https://homaryreviews.com/revolutionizing-daily-life-ai-crypto-and-digital-tools-trans-101-2/">revolutionizing daily life ai crypto and digital tools trans</a> 
-<a href="https://homaryreviews.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-101-6/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://homaryreviews.com/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
-<a href="https://homaryreviews.com/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
-<a href="https://homaryreviews.com/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://homaryreviews.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
-<a href="https://homaryreviews.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://homaryreviews.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://homaryreviews.com/staying-informed-in-real-time-the-rise-of-dynamic-news-platf/">staying informed in real time the rise of dynamic news platf</a> 
-<a href="https://homaryreviews.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga-101-3/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://homaryreviews.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://homaryreviews.com/staying-safe-and-responsible-the-latest-in-online-casino-and/">staying safe and responsible the latest in online casino and</a> 
-<a href="https://homaryreviews.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://homaryreviews.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 

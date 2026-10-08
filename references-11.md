@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwcjsvv2z">3msjxwcjsvv2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwivsam2m">3msjxwivsam2m</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwp7zz72n">3msjxwp7zz72n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwvlrkc2n">3msjxwvlrkc2n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxx3yian2z">3msjxx3yian2z</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxcd2pi2h">3msjxxcd2pi2h</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-for-everyday-users-82-2/">web tech content a comprehensive guide for everyday users 82</a> 
-<a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-82-2/">web tech content a comprehensive guide to navigating the dig</a> 
-<a href="https://captainjackinterview.com/web-tech-content-navigating-the-digital-landscape-for-succes-82-2/">web tech content navigating the digital landscape for succes</a> 
-<a href="https://captainjackinterview.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
