@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
+<a href="https://captainjackinterview.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
 <a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/navigating-online-casino-news-cryptocurrency-and-productivit-83-4/">navigating online casino news cryptocurrency and productivit</a> 
 <a href="https://cbd-stone.com/navigating-the-complex-world-of-current-news-insights-and-an/">navigating the complex world of current news insights and an</a> 
 <a href="https://cbd-stone.com/navigating-the-crypto-world-bitcoin-blockchain-and-the-lates/">navigating the crypto world bitcoin blockchain and the lates</a> 
-<a href="https://cbd-stone.com/navigating-the-crypto-world-understanding-bitcoin-blockchain/">navigating the crypto world understanding bitcoin blockchain</a> 
-<a href="https://cbd-stone.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a-2/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://cbd-stone.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a-3/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 

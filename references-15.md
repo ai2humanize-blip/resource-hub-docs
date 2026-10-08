@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://comforting-alfajores-af12f3.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
+<a href="https://comfy-puppy-8bcdd1.netlify.app/navigating-the-shifting-tides-of-2023-news-in-depth-analysis.html">navigating the shifting tides of 2023 news in depth analysis</a> 
+<a href="https://competitorscreenshots.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/the-ultimate-guide-to-digital-tools-online-resources-for-cry-86-7/">the ultimate guide to digital tools online resources for cry</a> 
 <a href="https://crediblenews24.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://crediblenews24.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
-<a href="https://crediblenews24.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
-<a href="https://crediblenews24.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
-<a href="https://crediblenews24.com/top-digital-tools-online-resources-for-productivity-and-grow-86-2/">top digital tools online resources for productivity and grow</a> 

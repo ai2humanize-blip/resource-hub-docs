@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://forotesis.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://forotesis.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://forotesis.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://forotesis.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
+<a href="https://forotesis.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://forotesis.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
+<a href="https://forotesis.com/le-quint-comprendre-le-pari-hippique-le-plus-suivi/">le quint comprendre le pari hippique le plus suivi</a> 
+<a href="https://forotesis.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://forotesis.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://forotesis.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://forotesis.com/marketing-seo-growth-50-resources-worth-bookmarking-96-10/">marketing seo growth 50 resources worth bookmarking 96 10</a> 
+<a href="https://forotesis.com/marketing-seo-growth-essential-strategies-for-business-succe-96-5/">marketing seo growth essential strategies for business succe</a> 
 <a href="https://forotesis.com/master-business-finance-productivity-a-comprehensive-guide-96-6/">master business finance productivity a comprehensive guide 9</a> 
 <a href="https://forotesis.com/master-business-finance-productivity-essential-online-skills-96-6/">master business finance productivity essential online skills</a> 
 <a href="https://forotesis.com/master-business-finance-productivity-essential-web-skills-fo-96-6/">master business finance productivity essential web skills fo</a> 
@@ -790,15 +802,3 @@
 <a href="https://getolive.org/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
 <a href="https://getolive.org/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
 <a href="https://getolive.org/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://getolive.org/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://getolive.org/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://getolive.org/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://getolive.org/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://getolive.org/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://getolive.org/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://getolive.org/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://getolive.org/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://getolive.org/why-primary-sources-matter-and-how-to-find-them-2/">why primary sources matter and how to find them 2</a> 
-<a href="https://getolive.org/why-primary-sources-matter-and-how-to-find-them-3/">why primary sources matter and how to find them 3</a> 
-<a href="https://getolive.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://getolive.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 

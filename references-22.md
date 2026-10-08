@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://emiamedical.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
+<a href="https://emiamedical.com/what-to-know-about-why-context-matters-when-reading-online-3/">what to know about why context matters when reading online 3</a> 
+<a href="https://emiamedical.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://emiamedical.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://emiamedical.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://emiamedical.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://emiamedical.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://emiamedical.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
 <a href="https://emiamedical.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
@@ -796,9 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@de635b3/getgabay.html">getgabay</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@de6d998/what-to-know-about-understanding-how-search-engines-rank-pag.html">what to know about understanding how search engines rank pag</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@df0923b/bitcointalk.html">bitcointalk</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@df16019/how-to-compare-sources-on-the-same-story.html">how to compare sources on the same story</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@df978ea/how-to-spot-crypto-scam.html">how to spot crypto scam</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@df9ff6c/what-a-stablecoin-reserve-report-does-and-does.html">what a stablecoin reserve report does and does</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dfaf869/newsgiga.html">newsgiga</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e0b80ee/how-to-read-the-news-without-getting-overwhelmed-a-practical.html">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e148837/getting-a-simple-framework-for-researching-any-topic-online-.html">getting a simple framework for researching any topic online</a> 
