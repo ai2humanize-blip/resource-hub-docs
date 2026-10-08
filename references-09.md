@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://bandemusic.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
 <a href="https://bandemusic.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/app-privacy-5c082b3b/">app privacy 5c082b3b</a> 
 <a href="https://boostelearning.mataroa.blog/blog/app-privacy-afaebf87/">app privacy afaebf87</a> 
 <a href="https://boostelearning.mataroa.blog/blog/app-privacy/">app privacy</a> 
-<a href="https://boostelearning.mataroa.blog/blog/areyoufashion/">areyoufashion</a> 
-<a href="https://boostelearning.mataroa.blog/blog/asianpinay/">asianpinay</a> 
-<a href="https://boostelearning.mataroa.blog/blog/attention-spikes-retention-collapses-the-economics-behind-every/">attention spikes retention collapses the economics behind ev</a> 

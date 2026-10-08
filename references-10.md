@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/areyoufashion/">areyoufashion</a> 
+<a href="https://boostelearning.mataroa.blog/blog/asianpinay/">asianpinay</a> 
+<a href="https://boostelearning.mataroa.blog/blog/attention-spikes-retention-collapses-the-economics-behind-every/">attention spikes retention collapses the economics behind ev</a> 
 <a href="https://boostelearning.mataroa.blog/blog/baby-name-generator-9f19fc2d/">baby name generator 9f19fc2d</a> 
 <a href="https://boostelearning.mataroa.blog/blog/baby-name-generator-a9396525/">baby name generator a9396525</a> 
 <a href="https://boostelearning.mataroa.blog/blog/baby-name-generator-ac5c0996/">baby name generator ac5c0996</a> 
@@ -799,6 +802,3 @@
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxv4odca2j">3msjxv4odca2j</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvcyb7p2c">3msjxvcyb7p2c</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvjc4cs2n">3msjxvjc4cs2n</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvpm22u26">3msjxvpm22u26</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvvvz3h2y">3msjxvvvz3h2y</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxw4aenb2s">3msjxw4aenb2s</a> 
