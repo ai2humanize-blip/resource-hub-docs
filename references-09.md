@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
+<a href="https://bandemusic.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://bandemusic.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
 <a href="https://bandemusic.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita/">how to leverage the latest apps for a more productive digita</a> 
 <a href="https://bandemusic.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
 <a href="https://bandemusic.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/baby-name-generator-b936c7cc/">baby name generator b936c7cc</a> 
 <a href="https://boostelearning.mataroa.blog/blog/baby-name-generator-cd29933b/">baby name generator cd29933b</a> 
 <a href="https://boostelearning.mataroa.blog/blog/baby-name-generator/">baby name generator</a> 
-<a href="https://boostelearning.mataroa.blog/blog/baginda168/">baginda168</a> 
-<a href="https://boostelearning.mataroa.blog/blog/banner-ad-sites-47b411b4/">banner ad sites 47b411b4</a> 
-<a href="https://boostelearning.mataroa.blog/blog/banner-ad-sites-4bbd0ace/">banner ad sites 4bbd0ace</a> 

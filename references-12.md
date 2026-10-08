@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/navigating-the-crypto-world-understanding-bitcoin-blockchain/">navigating the crypto world understanding bitcoin blockchain</a> 
 <a href="https://cbd-stone.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a-2/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
 <a href="https://cbd-stone.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a-3/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://cbd-stone.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://cbd-stone.com/navigating-the-digital-landscape-a-comprehensive-guide-to-ma-83-3/">navigating the digital landscape a comprehensive guide to ma</a> 
-<a href="https://cbd-stone.com/navigating-the-digital-world-how-to-choose-the-best-apps-for/">navigating the digital world how to choose the best apps for</a> 

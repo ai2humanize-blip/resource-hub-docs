@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxximto72c">3msjxximto72c</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxowsk22n">3msjxxowsk22n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxvb54m26">3msjxxvb54m26</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxy3ksdo2u">3msjxy3ksdo2u</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxybuqbq2h">3msjxybuqbq2h</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxyi6bk22n">3msjxyi6bk22n</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
 <a href="https://captainjackinterview.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
 <a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
