@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita/">how to leverage the latest apps for a more productive digita</a> 
+<a href="https://bandemusic.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
+<a href="https://bandemusic.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
+<a href="https://bandemusic.com/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
 <a href="https://bandemusic.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://bandemusic.com/how-to-read-the-news-without-getting-overwhelmed-explained-simply-2/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://bandemusic.com/how-to-read-the-news-without-getting-overwhelmed-explained-simply/">how to read the news without getting overwhelmed explained s</a> 
@@ -798,7 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/baginda168/">baginda168</a> 
 <a href="https://boostelearning.mataroa.blog/blog/banner-ad-sites-47b411b4/">banner ad sites 47b411b4</a> 
 <a href="https://boostelearning.mataroa.blog/blog/banner-ad-sites-4bbd0ace/">banner ad sites 4bbd0ace</a> 
-<a href="https://boostelearning.mataroa.blog/blog/banner-ad-sites-7f81a2d0/">banner ad sites 7f81a2d0</a> 
-<a href="https://boostelearning.mataroa.blog/blog/banner-ad-sites-e64d8050/">banner ad sites e64d8050</a> 
-<a href="https://boostelearning.mataroa.blog/blog/banner-ad-sites/">banner ad sites</a> 
-<a href="https://boostelearning.mataroa.blog/blog/best-password-managers-how-to-choose-the-right-0bd59734/">best password managers how to choose the right 0bd59734</a> 

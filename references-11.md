@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxy3ksdo2u">3msjxy3ksdo2u</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxybuqbq2h">3msjxybuqbq2h</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxyi6bk22n">3msjxyi6bk22n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxyoi4gm2m">3msjxyoi4gm2m</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxyus7d22n">3msjxyus7d22n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxz355hk2n">3msjxz355hk2n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxzbhb772y">3msjxzbhb772y</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxzhrawu26">3msjxzhrawu26</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxzo37uj2h">3msjxzo37uj2h</a> 
@@ -796,9 +802,3 @@
 <a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 

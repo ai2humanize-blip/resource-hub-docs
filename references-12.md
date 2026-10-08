@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-the-basics-of-staying-safe-while-browsing-2/">what to know about the basics of staying safe while browsing</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
 <a href="https://cbd-stone.com/navigating-the-digital-landscape-a-comprehensive-guide-to-ma-83-3/">navigating the digital landscape a comprehensive guide to ma</a> 
 <a href="https://cbd-stone.com/navigating-the-digital-world-how-to-choose-the-best-apps-for/">navigating the digital world how to choose the best apps for</a> 
-<a href="https://cbd-stone.com/navigating-the-ever-evolving-news-landscape-a-comprehensive-83-3/">navigating the ever evolving news landscape a comprehensive </a> 
-<a href="https://cbd-stone.com/navigating-the-evolving-news-landscape-in-depth-analysis-rev-83-7/">navigating the evolving news landscape in depth analysis rev</a> 
-<a href="https://cbd-stone.com/navigating-the-future-business-finance-productivity-in-2026-83-4/">navigating the future business finance productivity in 2026 </a> 
-<a href="https://cbd-stone.com/navigating-the-future-how-bitcoin-and-blockchain-are-transfo-83-3/">navigating the future how bitcoin and blockchain are transfo</a> 
-<a href="https://cbd-stone.com/navigating-the-future-of-business-finance-productivity-a-com-83-4/">navigating the future of business finance productivity a com</a> 
-<a href="https://cbd-stone.com/navigating-the-future-of-digital-currency-trends-challenges-83-3/">navigating the future of digital currency trends challenges </a> 
