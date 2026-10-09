@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-the-basics/">a simple framework for researching any topic online the basi</a> 
+<a href="https://boostelearning.mataroa.blog/blog/aavotcom-3d84f4f4/">aavotcom 3d84f4f4</a> 
+<a href="https://boostelearning.mataroa.blog/blog/aavotcom-5f8dc75b/">aavotcom 5f8dc75b</a> 
 <a href="https://boostelearning.mataroa.blog/blog/aavotcom-78b7f557/">aavotcom 78b7f557</a> 
 <a href="https://boostelearning.mataroa.blog/blog/aavotcom-e14cf788/">aavotcom e14cf788</a> 
 <a href="https://boostelearning.mataroa.blog/blog/aavotcom/">aavotcom</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/xrp-price-surges-amid-key-market-and-legal-5e6833b1/">xrp price surges amid key market and legal 5e6833b1</a> 
 <a href="https://boostelearning.mataroa.blog/blog/xrp-price-surges-amid-key-market-and-legal-64c2773b/">xrp price surges amid key market and legal 64c2773b</a> 
 <a href="https://boostelearning.mataroa.blog/blog/xrp-price-surges-amid-key-market-and-legal-cd8139e6/">xrp price surges amid key market and legal cd8139e6</a> 
-<a href="https://boostelearning.mataroa.blog/blog/xrp-price-surges-amid-key-market-and-legal/">xrp price surges amid key market and legal</a> 
-<a href="https://boostelearning.mataroa.blog/blog/zero-based-budgeting-explained-414e0ae9/">zero based budgeting explained 414e0ae9</a> 
-<a href="https://boostelearning.mataroa.blog/blog/zero-based-budgeting-explained-5e6b9ea3/">zero based budgeting explained 5e6b9ea3</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-read-crypto-news-without-getting-hyped-3ca615d6bd428160b319e109f0e36370">How to read crypto news without getting hyped 3ca615d6bd4281</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-3d1615d6bd4281f3b1f5eef504115123">How to spot low quality content online 3d1615d6bd4281f3b1f5e</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-a-practical-guide-3d1615d6bd4281d494a8dde3d1675366">How to spot low quality content online a practical guide 3d1</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-and-why-it-matters-3d1615d6bd4281e9ada1f4d02ae4dd4e">How to spot low quality content online and why it matters 3d</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-tell-if-a-website-is-trustworthy-a-practical-guide-3d1615d6bd4281f2ad89e73a172ce4fd">How to tell if a website is trustworthy a practical guide 3d</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-use-the-web-to-learn-a-new-skill-3d1615d6bd428129ad79c2fc53170210">How to use the web to learn a new skill 3d1615d6bd428129ad79</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
 <a href="https://bandemusic.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
 <a href="https://bandemusic.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
-<a href="https://bandemusic.com/how-html5-revolutionized-casual-browser-gaming-for-business-81-6/">how html5 revolutionized casual browser gaming for business </a> 
-<a href="https://bandemusic.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
-<a href="https://bandemusic.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 

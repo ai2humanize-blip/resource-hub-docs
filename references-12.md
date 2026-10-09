@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-legal-information-and-news-a-comprehensive-gui/">understanding legal information and news a comprehensive gui</a> 
+<a href="https://captainjackinterview.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-oxpoll-a-practical-guide/">understanding oxpoll a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-in-202-83-3/">mastering marketing seo growth strategies for success in 202</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-83-3/">mastering marketing seo growth strategies for success in a c</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-in-the-83-3-2/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-in-the-83-3/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-the-latest-strategies-for-suc-83-8/">mastering marketing seo growth the latest strategies for suc</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-83-8/">mastering marketing seo growth your guide to building a succ</a> 

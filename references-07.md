@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://arcadefloristbedford.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-79-8/">a beginner s guide to understanding and starting with crypto</a> 
+<a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
 <a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
@@ -799,6 +802,3 @@
 <a href="https://automatic-meeting-203.notion.site/p/How-to-fact-check-something-in-five-minutes-a-quick-guide-3d1615d6bd4281e38b83d214214674fa">How to fact check something in five minutes a quick guide 3d</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-fact-check-something-in-five-minutes-the-basics-3d1615d6bd42813f890ee8552c4907fe">How to fact check something in five minutes the basics 3d161</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-find-balanced-coverage-of-a-topic-a-practical-guide-3d1615d6bd4281609114d079febfc6ea">How to find balanced coverage of a topic a practical guide 3</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-to-read-crypto-news-without-getting-hyped-3ca615d6bd428160b319e109f0e36370">How to read crypto news without getting hyped 3ca615d6bd4281</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-3d1615d6bd4281f3b1f5eef504115123">How to spot low quality content online 3d1615d6bd4281f3b1f5e</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-a-practical-guide-3d1615d6bd4281d494a8dde3d1675366">How to spot low quality content online a practical guide 3d1</a> 

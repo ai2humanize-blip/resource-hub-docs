@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-html5-revolutionized-casual-browser-gaming-for-business-81-6/">how html5 revolutionized casual browser gaming for business </a> 
+<a href="https://bandemusic.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://bandemusic.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
 <a href="https://bandemusic.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
 <a href="https://bandemusic.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-practical-guide-to-booking-budget-travel-that-saves-real-money/">a practical guide to booking budget travel that saves real m</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
-<a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-the-basics/">a simple framework for researching any topic online the basi</a> 
-<a href="https://boostelearning.mataroa.blog/blog/aavotcom-3d84f4f4/">aavotcom 3d84f4f4</a> 
-<a href="https://boostelearning.mataroa.blog/blog/aavotcom-5f8dc75b/">aavotcom 5f8dc75b</a> 

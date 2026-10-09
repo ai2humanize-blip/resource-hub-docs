@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://forotesis.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://forotesis.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://forotesis.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://forotesis.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://forotesis.com/boost-your-business-finance-productivity-with-smart-internet-96-6/">boost your business finance productivity with smart internet</a> 
+<a href="https://forotesis.com/boost-your-online-visibility-a-fresh-approach-to-seo-for-sma/">boost your online visibility a fresh approach to seo for sma</a> 
+<a href="https://forotesis.com/boosting-your-business-and-personal-finances-a-marketing-dri/">boosting your business and personal finances a marketing dri</a> 
+<a href="https://forotesis.com/breaking-down-the-latest-developments-in-global-news-and-ana/">breaking down the latest developments in global news and ana</a> 
+<a href="https://forotesis.com/breaking-down-the-latest-sports-trends-and-analytics-for-inf/">breaking down the latest sports trends and analytics for inf</a> 
+<a href="https://forotesis.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://forotesis.com/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
 <a href="https://forotesis.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://forotesis.com/business-finance-productivity-navigating-news-trends-and-res-96-6/">business finance productivity navigating news trends and res</a> 
@@ -790,15 +802,3 @@
 <a href="https://getolive.org/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://getolive.org/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://getolive.org/staying-informed-and-ahead-the-ultimate-guide-to-sports-news-97-8/">staying informed and ahead the ultimate guide to sports news</a> 
-<a href="https://getolive.org/staying-informed-comprehensive-guides-reviews-and-how-tos-fo-97-8/">staying informed comprehensive guides reviews and how tos fo</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-trends-in-online-casino-97-7/">staying safe and informed the latest trends in online casino</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-5/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/techvantor-xyz-resource-1-2/">techvantor xyz resource 1 2</a> 
-<a href="https://getolive.org/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
