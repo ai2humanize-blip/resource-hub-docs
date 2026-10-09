@@ -139,6 +139,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://storkworld.net/">storkworld.net</a> 
 <a href="https://urducentral.com/">urducentral.com</a> 
 <a href="https://newsgiga.co/">newsgiga.co</a> 
+<a href="https://housepainter.com.lk/">housepainter.com.lk</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -206,4 +207,4 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 63](references-63.md)
 - [Reference set 64](references-64.md)
 
-_51,128 curated references across 64 sets._
+_51,177 curated references across 64 sets._

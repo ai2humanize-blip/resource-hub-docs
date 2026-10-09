@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://crediblenews24.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://crediblenews24.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://crediblenews24.com/the-future-of-ai-in-journalism-trends-and-challenges/">the future of ai in journalism trends and challenges</a> 
 <a href="https://crediblenews24.com/the-future-of-creativity-how-ai-powered-apps-are-transformin/">the future of creativity how ai powered apps are transformin</a> 
 <a href="https://crediblenews24.com/the-future-of-digital-interactions-how-ai-and-ar-are-transfo/">the future of digital interactions how ai and ar are transfo</a> 
 <a href="https://crediblenews24.com/the-future-of-mobile-apps-how-ai-and-5g-are-transforming-use/">the future of mobile apps how ai and 5g are transforming use</a> 
@@ -797,8 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-future-of-sports-news-ai-data-analytics-and-fa-26-3/">exploring the future of sports news ai data analytics and fa</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-interconnected-world-of-web-tech-and-content-26-3/">exploring the interconnected world of web tech and content 2</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-26-3-10/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-26-3-11/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-26-3-12/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-26-3-13/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-26-3-14/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-26-3-15/">exploring the intersection of web tech and content a compreh</a> 

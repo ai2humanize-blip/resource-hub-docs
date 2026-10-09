@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://bandemusic.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://bandemusic.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
 <a href="https://bandemusic.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-practical-guid-2/">how to fact check something in five minutes a practical guid</a> 
@@ -798,7 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/agartala-5abffade/">agartala 5abffade</a> 
 <a href="https://boostelearning.mataroa.blog/blog/agartala-a235ad48/">agartala a235ad48</a> 
 <a href="https://boostelearning.mataroa.blog/blog/agartala-c77b6220/">agartala c77b6220</a> 
-<a href="https://boostelearning.mataroa.blog/blog/agartala/">agartala</a> 
-<a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing-33b8ab5d/">an institution files for bitcoin product what filing 33b8ab5</a> 
-<a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing-4413f41a/">an institution files for bitcoin product what filing 4413f41</a> 
-<a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing-7e6e98bb/">an institution files for bitcoin product what filing 7e6e98b</a> 

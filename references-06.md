@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alientapereviews.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
 <a href="https://alientapereviews.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
 <a href="https://alientapereviews.com/understanding-crypto-media-a-beginner-s-guide-to-staying-inf-78-7/">understanding crypto media a beginner s guide to staying inf</a> 
 <a href="https://alientapereviews.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
@@ -157,6 +158,9 @@
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-23/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-24/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-25/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-26/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-27/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-28/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-3/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-4/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-5/">business finance productivity 50 resources worth bookmarking</a> 
@@ -798,7 +802,3 @@
 <a href="https://arcadefloristbedford.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://arcadefloristbedford.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://arcadefloristbedford.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://arcadefloristbedford.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://arcadefloristbedford.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
-<a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 

@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://arcadefloristbedford.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://arcadefloristbedford.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
 <a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
 <a href="https://arcadefloristbedford.com/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
@@ -798,7 +802,3 @@
 <a href="https://automatic-meeting-203.notion.site/p/Mastering-Digital-Organization-Top-Apps-for-a-Clutter-Free-Life-3bb615d6bd4281159b54d576e0d88549">Mastering Digital Organization Top Apps for a Clutter Free L</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Mastering-Local-SEO-A-Comprehensive-Guide-for-Small-Business-Owners-3bb615d6bd4281b296cbc672d06cc840">Mastering Local SEO A Comprehensive Guide for Small Business</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Mastering-Personal-Finance-A-Strategic-Approach-to-Business-and-Marketing-Success-3bb615d6bd42818c8d3ef84659068d2b">Mastering Personal Finance A Strategic Approach to Business </a> 
-<a href="https://automatic-meeting-203.notion.site/p/Mastering-Personal-Finance-for-Business-Growth-A-Marketing-Perspective-3bc615d6bd4281eaaac8e2e394a23b8d">Mastering Personal Finance for Business Growth A Marketing P</a> 
-<a href="https://automatic-meeting-203.notion.site/p/Mastering-Your-Digital-Life-Top-Apps-for-Productivity-Health-and-Entertainment-3bb615d6bd4281cb9c82cf72843128b4">Mastering Your Digital Life Top Apps for Productivity Health</a> 
-<a href="https://automatic-meeting-203.notion.site/p/Mastering-Your-Digital-Life-Top-Apps-for-Productivity-and-Personal-Growth-3bb615d6bd42813f8ba7f9227cb729ea">Mastering Your Digital Life Top Apps for Productivity and Pe</a> 
-<a href="https://automatic-meeting-203.notion.site/p/Maximizing-Your-Online-Presence-A-Strategic-Guide-to-SEO-and-Backlink-Building-3bb615d6bd4281d18c65f2826b501d77">Maximizing Your Online Presence A Strategic Guide to SEO and</a> 
