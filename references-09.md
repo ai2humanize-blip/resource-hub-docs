@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://bandemusic.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://bandemusic.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
 <a href="https://bandemusic.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
 <a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/advantagebizmarketing-df95e7c8/">advantagebizmarketing df95e7c8</a> 
 <a href="https://boostelearning.mataroa.blog/blog/advantagebizmarketing/">advantagebizmarketing</a> 
 <a href="https://boostelearning.mataroa.blog/blog/agartala-20d0fd56/">agartala 20d0fd56</a> 
-<a href="https://boostelearning.mataroa.blog/blog/agartala-5abffade/">agartala 5abffade</a> 
-<a href="https://boostelearning.mataroa.blog/blog/agartala-a235ad48/">agartala a235ad48</a> 
-<a href="https://boostelearning.mataroa.blog/blog/agartala-c77b6220/">agartala c77b6220</a> 

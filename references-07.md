@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://arcadefloristbedford.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://arcadefloristbedford.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://arcadefloristbedford.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://arcadefloristbedford.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://arcadefloristbedford.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://arcadefloristbedford.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
@@ -799,6 +802,3 @@
 <a href="https://automatic-meeting-203.notion.site/p/Mastering-App-Efficiency-Optimize-Your-Digital-Experience-for-Peak-Performance-3bb615d6bd428195b702d9d01fe7c3aa">Mastering App Efficiency Optimize Your Digital Experience fo</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Mastering-Business-Growth-A-Personal-Finance-and-Marketing-Synergy-3bb615d6bd42813c8d16f1253002ee37">Mastering Business Growth A Personal Finance and Marketing S</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Mastering-Career-Advancement-Strategies-for-Professional-Growth-and-Success-3bb615d6bd4281f39d37e31648b83d36">Mastering Career Advancement Strategies for Professional Gro</a> 
-<a href="https://automatic-meeting-203.notion.site/p/Mastering-Digital-Organization-Top-Apps-for-a-Clutter-Free-Life-3bb615d6bd4281159b54d576e0d88549">Mastering Digital Organization Top Apps for a Clutter Free L</a> 
-<a href="https://automatic-meeting-203.notion.site/p/Mastering-Local-SEO-A-Comprehensive-Guide-for-Small-Business-Owners-3bb615d6bd4281b296cbc672d06cc840">Mastering Local SEO A Comprehensive Guide for Small Business</a> 
-<a href="https://automatic-meeting-203.notion.site/p/Mastering-Personal-Finance-A-Strategic-Approach-to-Business-and-Marketing-Success-3bb615d6bd42818c8d3ef84659068d2b">Mastering Personal Finance A Strategic Approach to Business </a> 
