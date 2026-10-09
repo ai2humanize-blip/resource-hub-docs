@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxgaksaf2u">3msjxgaksaf2u</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxsjwtor2n">3msjxsjwtor2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxsqb65426">3msjxsqb65426</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxswprj72c">3msjxswprj72c</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxt572bm26">3msjxt572bm26</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxtdjexe2m">3msjxtdjexe2m</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
-<a href="https://captainjackinterview.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
