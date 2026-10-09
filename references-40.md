@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://livejournal.micro.blog/2026/10/07/063213.html">063213</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063238.html">063238</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063406.html">063406</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064457.html">064457</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064537.html">064537</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064546.html">064546</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064548.html">064548</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064614.html">064614</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/065935.html">065935</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/065946.html">065946</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/070027.html">070027</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/070049.html">070049</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/071448.html">071448</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/071519.html">071519</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/071526.html">071526</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/071607.html">071607</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/072656.html">072656</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/072721.html">072721</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/072730.html">072730</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/072757.html">072757</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/074123.html">074123</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/074127.html">074127</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/074144.html">074144</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/074159.html">074159</a> 
@@ -781,24 +802,3 @@
 <a href="https://llmseoservices.org/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
 <a href="https://llmseoservices.org/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
 <a href="https://llmseoservices.org/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://llmseoservices.org/how-to-keep-clean-auditable-cryptocurrency-transaction-recor/">how to keep clean auditable cryptocurrency transaction recor</a> 
-<a href="https://llmseoservices.org/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
-<a href="https://llmseoservices.org/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://llmseoservices.org/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
-<a href="https://llmseoservices.org/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://llmseoservices.org/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://llmseoservices.org/how-to-revitalize-your-home-with-a-fresh-coat-of-paint-a-ste/">how to revitalize your home with a fresh coat of paint a ste</a> 
-<a href="https://llmseoservices.org/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
-<a href="https://llmseoservices.org/how-to-spot-low-quality-content-online-the-basics-2/">how to spot low quality content online the basics 2</a> 
-<a href="https://llmseoservices.org/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
-<a href="https://llmseoservices.org/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
-<a href="https://llmseoservices.org/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://llmseoservices.org/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
-<a href="https://llmseoservices.org/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://llmseoservices.org/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
-<a href="https://llmseoservices.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
-<a href="https://llmseoservices.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-3/">how zakat on gold cash and savings is commonly calculated 3</a> 
-<a href="https://llmseoservices.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
-<a href="https://llmseoservices.org/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
-<a href="https://llmseoservices.org/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://llmseoservices.org/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 

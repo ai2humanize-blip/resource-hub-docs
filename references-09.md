@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
 <a href="https://bandemusic.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing-cc095b7f/">an institution files for bitcoin product what filing cc095b7</a> 
 <a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing/">an institution files for bitcoin product what filing</a> 
 <a href="https://boostelearning.mataroa.blog/blog/app-privacy-3d966c9b/">app privacy 3d966c9b</a> 
-<a href="https://boostelearning.mataroa.blog/blog/app-privacy-5c082b3b/">app privacy 5c082b3b</a> 
-<a href="https://boostelearning.mataroa.blog/blog/app-privacy-afaebf87/">app privacy afaebf87</a> 
-<a href="https://boostelearning.mataroa.blog/blog/app-privacy/">app privacy</a> 

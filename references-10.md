@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/app-privacy-5c082b3b/">app privacy 5c082b3b</a> 
+<a href="https://boostelearning.mataroa.blog/blog/app-privacy-afaebf87/">app privacy afaebf87</a> 
+<a href="https://boostelearning.mataroa.blog/blog/app-privacy/">app privacy</a> 
 <a href="https://boostelearning.mataroa.blog/blog/areyoufashion/">areyoufashion</a> 
 <a href="https://boostelearning.mataroa.blog/blog/asianpinay/">asianpinay</a> 
 <a href="https://boostelearning.mataroa.blog/blog/attention-spikes-retention-collapses-the-economics-behind-every/">attention spikes retention collapses the economics behind ev</a> 
@@ -799,6 +802,3 @@
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxujly4e2s">3msjxujly4e2s</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxupvt3j2s">3msjxupvt3j2s</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxuwenar2s">3msjxuwenar2s</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxv4odca2j">3msjxv4odca2j</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvcyb7p2c">3msjxvcyb7p2c</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvjc4cs2n">3msjxvjc4cs2n</a> 
