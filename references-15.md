@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cochesdeocasion.xyz/understanding-thefontworld-a-practical-guide/">understanding thefontworld a practical guide</a> 
+<a href="https://cochesdeocasion.xyz/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
+<a href="https://cochesdeocasion.xyz/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
 <a href="https://cochesdeocasion.xyz/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
 <a href="https://cochesdeocasion.xyz/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
 <a href="https://cochesdeocasion.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
 <a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://crediblenews24.com/the-future-of-ai-in-journalism-trends-and-challenges/">the future of ai in journalism trends and challenges</a> 
-<a href="https://crediblenews24.com/the-future-of-creativity-how-ai-powered-apps-are-transformin/">the future of creativity how ai powered apps are transformin</a> 
-<a href="https://crediblenews24.com/the-future-of-digital-interactions-how-ai-and-ar-are-transfo/">the future of digital interactions how ai and ar are transfo</a> 
-<a href="https://crediblenews24.com/the-future-of-mobile-apps-how-ai-and-5g-are-transforming-use/">the future of mobile apps how ai and 5g are transforming use</a> 

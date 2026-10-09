@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://bandemusic.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-practical-guid-2/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
 <a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing-33b8ab5d/">an institution files for bitcoin product what filing 33b8ab5</a> 
 <a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing-4413f41a/">an institution files for bitcoin product what filing 4413f41</a> 
 <a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing-7e6e98bb/">an institution files for bitcoin product what filing 7e6e98b</a> 
-<a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing-cc095b7f/">an institution files for bitcoin product what filing cc095b7</a> 
-<a href="https://boostelearning.mataroa.blog/blog/an-institution-files-for-bitcoin-product-what-filing/">an institution files for bitcoin product what filing</a> 
-<a href="https://boostelearning.mataroa.blog/blog/app-privacy-3d966c9b/">app privacy 3d966c9b</a> 

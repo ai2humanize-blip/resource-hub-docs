@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cymbaltareviews.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://cymbaltareviews.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://cymbaltareviews.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://cymbaltareviews.com/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
+<a href="https://cymbaltareviews.com/what-to-know-about-how-to-build-a-personal-reading-list-3/">what to know about how to build a personal reading list 3</a> 
+<a href="https://cymbaltareviews.com/what-to-know-about-how-to-build-a-personal-reading-list-4/">what to know about how to build a personal reading list 4</a> 
 <a href="https://cymbaltareviews.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://cymbaltareviews.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://cymbaltareviews.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
@@ -796,9 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/how-to-choose-the-best-advanced-seo-agency-in-india-for-your-business-4p5b">how to choose the best advanced seo agency in india for your</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-choose-the-perfect-restaurant-for-your-next-outing-a-comprehensive-guide-3e1b">how to choose the perfect restaurant for your next outing a </a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide-29fc">how to choose the perfect watch a comprehensive buying guide</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-a-practical-guide-3lcj">how to compare sources on the same story a practical guide 3</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-a-practical-guide-5486">how to compare sources on the same story a practical guide 5</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-the-basics-59k7">how to compare sources on the same story the basics 59k7</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide-57o6">how to evaluate online reviews and recommendations a quick g</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-the-basics-269p">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-and-why-it-matters-1d1m">how to fact check something in five minutes and why it matte</a> 

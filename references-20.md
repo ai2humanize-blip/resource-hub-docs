@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-a-practical-guide-3lcj">how to compare sources on the same story a practical guide 3</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-a-practical-guide-5486">how to compare sources on the same story a practical guide 5</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-the-basics-59k7">how to compare sources on the same story the basics 59k7</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide-57o6">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-the-basics-269p">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-and-why-it-matters-1d1m">how to fact check something in five minutes and why it matte</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-and-why-it-matters-m36">how to fact check something in five minutes and why it matte</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-explained-simply-565l">how to fact check something in five minutes explained simply</a> 
 <a href="https://dev.to/ai2humanizeblip/how-to-find-and-plan-the-perfect-event-venue-a-comprehensive-guide-1c2f">how to find and plan the perfect event venue a comprehensive</a> 
@@ -796,9 +802,3 @@
 <a href="https://ecomhuntreviews.com/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
 <a href="https://ecomhuntreviews.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
 <a href="https://ecomhuntreviews.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
-<a href="https://ecomhuntreviews.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://ecomhuntreviews.com/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
-<a href="https://ecomhuntreviews.com/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
-<a href="https://ecomhuntreviews.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
-<a href="https://ecomhuntreviews.com/innovative-event-planning-unique-ideas-for-memorable-experie/">innovative event planning unique ideas for memorable experie</a> 
-<a href="https://ecomhuntreviews.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 

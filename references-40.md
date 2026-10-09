@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://livejournal.micro.blog/2026/09/04/why-context-matters-when-reading.html">why context matters when reading</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/why-niche-blogs-still-matter.html">why niche blogs still matter</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/a-closer-look-at-how.html">a closer look at how</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/a-closer-look-at-what.html">a closer look at what</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/building-a-healthy-daily-reading.html">building a healthy daily reading</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/getting-how-to-bookmark-and.html">getting how to bookmark and</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/getting-how-to-factcheck-something.html">getting how to factcheck something</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/getting-why-context-matters-when.html">getting why context matters when</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/how-to-evaluate-online-reviews.html">how to evaluate online reviews</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/how-to-spot-lowquality-content.html">how to spot lowquality content</a> 
+<a href="https://livejournal.micro.blog/2026/09/09/how-to-find-balanced-coverage.html">how to find balanced coverage</a> 
+<a href="https://livejournal.micro.blog/2026/09/09/what-to-know-about-how.html">what to know about how</a> 
+<a href="https://livejournal.micro.blog/2026/09/09/what-to-know-about-recognizing.html">what to know about recognizing</a> 
+<a href="https://livejournal.micro.blog/2026/09/16/font-pairing-resources-worth-bookmarking.html">font pairing resources worth bookmarking</a> 
+<a href="https://livejournal.micro.blog/2026/09/16/the-space-grotesk-and-ibm.html">the space grotesk and ibm</a> 
+<a href="https://livejournal.micro.blog/2026/09/26/instagram-carousel-dimensions-stop-the.html">instagram carousel dimensions stop the</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/061652.html">061652</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/061701.html">061701</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063121.html">063121</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063141.html">063141</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063143.html">063143</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/063213.html">063213</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/063238.html">063238</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/063406.html">063406</a> 
@@ -781,24 +802,3 @@
 <a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
 <a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
-<a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://llmseoservices.org/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
-<a href="https://llmseoservices.org/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://llmseoservices.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://llmseoservices.org/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://llmseoservices.org/how-to-choose-a-trustworthy-online-casino-a-comprehensive-gu-32-9/">how to choose a trustworthy online casino a comprehensive gu</a> 
-<a href="https://llmseoservices.org/how-to-choose-the-best-casino-utan-spelpaus-a-2023-guide/">how to choose the best casino utan spelpaus a 2023 guide</a> 
-<a href="https://llmseoservices.org/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
-<a href="https://llmseoservices.org/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://llmseoservices.org/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
-<a href="https://llmseoservices.org/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://llmseoservices.org/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://llmseoservices.org/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://llmseoservices.org/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://llmseoservices.org/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://llmseoservices.org/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://llmseoservices.org/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://llmseoservices.org/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://llmseoservices.org/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://llmseoservices.org/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxujly4e2s">3msjxujly4e2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxupvt3j2s">3msjxupvt3j2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxuwenar2s">3msjxuwenar2s</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxv4odca2j">3msjxv4odca2j</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvcyb7p2c">3msjxvcyb7p2c</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvjc4cs2n">3msjxvjc4cs2n</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
 <a href="https://captainjackinterview.com/unlocking-creativity-how-ai-powered-apps-are-transforming-di/">unlocking creativity how ai powered apps are transforming di</a> 
 <a href="https://captainjackinterview.com/unlocking-the-future-how-ai-and-apps-are-transforming-our-di/">unlocking the future how ai and apps are transforming our di</a> 
-<a href="https://captainjackinterview.com/unlocking-the-secrets-of-perfect-pasta-a-culinary-journey/">unlocking the secrets of perfect pasta a culinary journey</a> 
-<a href="https://captainjackinterview.com/unlocking-the-secrets-of-successful-morning-routines-for-a-p/">unlocking the secrets of successful morning routines for a p</a> 
-<a href="https://captainjackinterview.com/unlocking-your-potential-innovative-career-paths-and-workpla/">unlocking your potential innovative career paths and workpla</a> 
