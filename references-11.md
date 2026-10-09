@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/zero-based-budgeting-explained-a47e6a40/">zero based budgeting explained a47e6a40</a> 
+<a href="https://boostelearning.mataroa.blog/blog/zero-based-budgeting-explained-cca9bf99/">zero based budgeting explained cca9bf99</a> 
+<a href="https://boostelearning.mataroa.blog/blog/zero-based-budgeting-explained/">zero based budgeting explained</a> 
 <a href="https://bright-bonbon-818f72.netlify.app/bitcoincasinosnews.html">bitcoincasinosnews</a> 
 <a href="https://bright-dusk-7c3042.netlify.app/building-a-healthy-daily-reading-habit-and-why-it-matters.html">building a healthy daily reading habit and why it matters</a> 
 <a href="https://brilliant-sprite-3a2d55.netlify.app/how-blockchain-technology-is-revolutionizing-cryptocurrency-.html">how blockchain technology is revolutionizing cryptocurrency</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-legal-information-and-news-a-comprehensive-gui/">understanding legal information and news a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-oxpoll-a-practical-guide/">understanding oxpoll a practical guide</a> 

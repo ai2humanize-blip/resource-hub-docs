@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://forotesis.com/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
+<a href="https://forotesis.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://forotesis.com/business-finance-productivity-navigating-news-trends-and-res-96-6/">business finance productivity navigating news trends and res</a> 
+<a href="https://forotesis.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
+<a href="https://forotesis.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
+<a href="https://forotesis.com/comprehensive-guides-reviews-and-how-tos-for-every-need-96-9/">comprehensive guides reviews and how tos for every need 96 9</a> 
+<a href="https://forotesis.com/cplemaire-quoi-sert-un-annuaire-du-turf/">cplemaire quoi sert un annuaire du turf</a> 
+<a href="https://forotesis.com/cyberkannadig/">cyberkannadig</a> 
+<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-96-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
+<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-96-5/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://forotesis.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://forotesis.com/digital-tools-online-resources-50-resources-worth-bookmarkin-96-2/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://forotesis.com/digital-tools-online-resources-a-comprehensive-roundup-for-m-96-7/">digital tools online resources a comprehensive roundup for m</a> 
 <a href="https://forotesis.com/digital-tools-online-resources-navigating-the-modern-news-la-96-7/">digital tools online resources navigating the modern news la</a> 
@@ -790,15 +802,3 @@
 <a href="https://getolive.org/techvantor-xyz-resource-1-2/">techvantor xyz resource 1 2</a> 
 <a href="https://getolive.org/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
 <a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-and-why-it-matters-2/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
-<a href="https://getolive.org/the-best-free-browser-games-to-play-instantly/">the best free browser games to play instantly</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://getolive.org/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-97-7/">the practical guide to ai art prompt generators web tech con</a> 
-<a href="https://getolive.org/the-rise-of-ai-in-news-reporting-opportunities-and-challenge/">the rise of ai in news reporting opportunities and challenge</a> 
-<a href="https://getolive.org/the-rise-of-super-apps-transforming-the-digital-experience/">the rise of super apps transforming the digital experience</a> 

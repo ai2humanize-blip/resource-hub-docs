@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-83-6/">mastering modern communication a deep dive into web tech con</a> 
+<a href="https://cbd-stone.com/mastering-personal-finance-a-strategic-approach-to-business-2/">mastering personal finance a strategic approach to business </a> 
+<a href="https://cbd-stone.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
 <a href="https://cbd-stone.com/mastering-the-art-of-budgeting-boost-your-business-and-perso/">mastering the art of budgeting boost your business and perso</a> 
 <a href="https://cbd-stone.com/mastering-the-art-of-business-finance-and-productivity-a-com-83-4/">mastering the art of business finance and productivity a com</a> 
 <a href="https://cbd-stone.com/mastering-the-art-of-business-personal-finance-and-marketing/">mastering the art of business personal finance and marketing</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdstent.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://cbdstent.com/discover-the-art-of-event-planning-tips-and-activities-for-a/">discover the art of event planning tips and activities for a</a> 
 <a href="https://cbdstent.com/discover-the-best-digital-tools-online-resources-for-enhance-85-3/">discover the best digital tools online resources for enhance</a> 
-<a href="https://cbdstent.com/discover-the-best-digital-tools-online-resources-for-your-ne-85-8/">discover the best digital tools online resources for your ne</a> 
-<a href="https://cbdstent.com/discovering-the-charm-of-off-grid-living-a-comprehensive-gui/">discovering the charm of off grid living a comprehensive gui</a> 
-<a href="https://cbdstent.com/enhance-your-business-finance-productivity-with-independent-85-7/">enhance your business finance productivity with independent </a> 

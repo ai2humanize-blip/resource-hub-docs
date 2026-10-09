@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-oxpoll-a-practical-guide/">understanding oxpoll a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-in-the-83-3/">mastering marketing seo growth strategies for success in the</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-the-latest-strategies-for-suc-83-8/">mastering marketing seo growth the latest strategies for suc</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-83-8/">mastering marketing seo growth your guide to building a succ</a> 
-<a href="https://cbd-stone.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-83-6/">mastering modern communication a deep dive into web tech con</a> 
-<a href="https://cbd-stone.com/mastering-personal-finance-a-strategic-approach-to-business-2/">mastering personal finance a strategic approach to business </a> 
-<a href="https://cbd-stone.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
