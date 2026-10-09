@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://dev.to/ai2humanizeblip/getting-a-simple-framework-for-researching-any-topic-online-right-1c8">getting a simple framework for researching any topic online </a> 
+<a href="https://dev.to/ai2humanizeblip/getting-how-to-bookmark-and-revisit-useful-resources-right-176h">getting how to bookmark and revisit useful resources right 1</a> 
+<a href="https://dev.to/ai2humanizeblip/getting-how-to-spot-low-quality-content-online-right-3fik">getting how to spot low quality content online right 3fik</a> 
+<a href="https://dev.to/ai2humanizeblip/getting-how-to-tell-if-a-website-is-trustworthy-right-271c">getting how to tell if a website is trustworthy right 271c</a> 
+<a href="https://dev.to/ai2humanizeblip/getting-how-to-tell-if-a-website-is-trustworthy-right-560j">getting how to tell if a website is trustworthy right 560j</a> 
+<a href="https://dev.to/ai2humanizeblip/getting-the-basics-of-staying-safe-while-browsing-right-20l5">getting the basics of staying safe while browsing right 20l5</a> 
 <a href="https://dev.to/ai2humanizeblip/getting-the-value-of-slow-careful-reading-right-27ol">getting the value of slow careful reading right 27ol</a> 
 <a href="https://dev.to/ai2humanizeblip/getting-why-niche-blogs-still-matter-right-30fe">getting why niche blogs still matter right 30fe</a> 
 <a href="https://dev.to/ai2humanizeblip/getting-why-niche-blogs-still-matter-right-531b">getting why niche blogs still matter right 531b</a> 
@@ -796,9 +802,3 @@
 <a href="https://ecomhuntreviews.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://ecomhuntreviews.com/how-to-evaluate-online-reviews-and-recommendations-explained-2/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://ecomhuntreviews.com/how-to-evaluate-online-reviews-and-recommendations-explained-3/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://ecomhuntreviews.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://ecomhuntreviews.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://ecomhuntreviews.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://ecomhuntreviews.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://ecomhuntreviews.com/how-to-fact-check-something-in-five-minutes-and-why-it-matters/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://ecomhuntreviews.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 

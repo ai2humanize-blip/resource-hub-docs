@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://ireplicadealers.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://jade-beijinho-3b8585.netlify.app/getting-how-to-compare-sources-on-the-same-story-right.html">getting how to compare sources on the same story right</a> 
+<a href="https://jade-frangipane-89c0aa.netlify.app/getting-how-to-tell-if-a-website-is-trustworthy-right.html">getting how to tell if a website is trustworthy right</a> 
+<a href="https://jade-kleicha-7f0232.netlify.app/uk-gambling-age-explained.html">uk gambling age explained</a> 
+<a href="https://jade-longma-010dbd.netlify.app/bitcoincasinosnews.html">bitcoincasinosnews</a> 
+<a href="https://jade-tapioca-2356ad.netlify.app/how-ai-powered-apps-are-revolutionizing-daily-life.html">how ai powered apps are revolutionizing daily life</a> 
+<a href="https://jazzy-kataifi-a35f21.netlify.app/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://jiliok1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://jiliok1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://jiliok1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://jiliok1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://jiliok1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://jiliok1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://jiliok1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://jiliok1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://jiliok1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://jiliok1.xyz/hello-world/">hello world</a> 
 <a href="https://jiliok1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -784,21 +802,3 @@
 <a href="https://landscape-paintings.net/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://landscape-paintings.net/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
 <a href="https://landscape-paintings.net/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://landscape-paintings.net/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://landscape-paintings.net/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://landscape-paintings.net/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://landscape-paintings.net/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://landscape-paintings.net/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
-<a href="https://landscape-paintings.net/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://landscape-paintings.net/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://landscape-paintings.net/how-to-be-a-smarter-news-reader-in-2026/">how to be a smarter news reader in 2026</a> 
-<a href="https://landscape-paintings.net/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
-<a href="https://landscape-paintings.net/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
-<a href="https://landscape-paintings.net/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://landscape-paintings.net/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
-<a href="https://landscape-paintings.net/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://landscape-paintings.net/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://landscape-paintings.net/how-to-evaluate-online-reviews-and-recommendations-the-basic-2/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://landscape-paintings.net/how-to-evaluate-online-reviews-and-recommendations-the-basic-3/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://landscape-paintings.net/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://landscape-paintings.net/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 

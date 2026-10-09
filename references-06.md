@@ -168,6 +168,9 @@
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-32/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-33/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-34/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-35/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-36/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-37/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-4/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-5/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-6/">business finance productivity 50 resources worth bookmarking</a> 
@@ -799,6 +802,3 @@
 <a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://arcadefloristbedford.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
-<a href="https://arcadefloristbedford.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 

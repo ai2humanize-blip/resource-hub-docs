@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://bandemusic.com/how-to-boost-your-productivity-with-the-best-apps-for-a-digi/">how to boost your productivity with the best apps for a digi</a> 
 <a href="https://bandemusic.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
 <a href="https://bandemusic.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/aavotcom-78b7f557/">aavotcom 78b7f557</a> 
 <a href="https://boostelearning.mataroa.blog/blog/aavotcom-e14cf788/">aavotcom e14cf788</a> 
 <a href="https://boostelearning.mataroa.blog/blog/aavotcom/">aavotcom</a> 
-<a href="https://boostelearning.mataroa.blog/blog/about-41fbe9aa/">about 41fbe9aa</a> 
-<a href="https://boostelearning.mataroa.blog/blog/about-767f981a/">about 767f981a</a> 
-<a href="https://boostelearning.mataroa.blog/blog/about/">about</a> 

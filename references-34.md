@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://insurance-thai.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://insurance-thai.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://insurance-thai.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://insurance-thai.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://insurance-thai.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://insurance-thai.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://insurance-thai.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://insurance-thai.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://insurance-thai.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://insurance-thai.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://insurance-thai.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://insurance-thai.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://insurance-thai.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://insurance-thai.com/guides-reviews-how-tos-50-resources-worth-bookmarking-102-8-2/">guides reviews how tos 50 resources worth bookmarking 102 8 </a> 
+<a href="https://insurance-thai.com/guides-reviews-how-tos-50-resources-worth-bookmarking-102-8-3/">guides reviews how tos 50 resources worth bookmarking 102 8 </a> 
+<a href="https://insurance-thai.com/guides-reviews-how-tos-50-resources-worth-bookmarking-102-8/">guides reviews how tos 50 resources worth bookmarking 102 8</a> 
+<a href="https://insurance-thai.com/how-ai-and-apps-are-transforming-everyday-life-in-the-digita/">how ai and apps are transforming everyday life in the digita</a> 
+<a href="https://insurance-thai.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
 <a href="https://insurance-thai.com/how-ai-powered-apps-are-transforming-daily-life-in-the-digit/">how ai powered apps are transforming daily life in the digit</a> 
 <a href="https://insurance-thai.com/how-ai-powered-art-prompt-generators-are-transforming-digita/">how ai powered art prompt generators are transforming digita</a> 
 <a href="https://insurance-thai.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
@@ -784,21 +802,3 @@
 <a href="https://ireplicadealers.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
 <a href="https://ireplicadealers.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://ireplicadealers.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://ireplicadealers.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://jade-beijinho-3b8585.netlify.app/getting-how-to-compare-sources-on-the-same-story-right.html">getting how to compare sources on the same story right</a> 
-<a href="https://jade-frangipane-89c0aa.netlify.app/getting-how-to-tell-if-a-website-is-trustworthy-right.html">getting how to tell if a website is trustworthy right</a> 
-<a href="https://jade-kleicha-7f0232.netlify.app/uk-gambling-age-explained.html">uk gambling age explained</a> 
-<a href="https://jade-longma-010dbd.netlify.app/bitcoincasinosnews.html">bitcoincasinosnews</a> 
-<a href="https://jade-tapioca-2356ad.netlify.app/how-ai-powered-apps-are-revolutionizing-daily-life.html">how ai powered apps are revolutionizing daily life</a> 
-<a href="https://jazzy-kataifi-a35f21.netlify.app/banner-ad-sites.html">banner ad sites</a> 
-<a href="https://jiliok1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://jiliok1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://jiliok1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://jiliok1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://jiliok1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://jiliok1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://jiliok1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://jiliok1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 

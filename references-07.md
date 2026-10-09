@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://arcadefloristbedford.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://arcadefloristbedford.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://arcadefloristbedford.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
 <a href="https://arcadefloristbedford.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://arcadefloristbedford.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://arcadefloristbedford.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-useful/">a closer look at what makes an explainer article genuinely u</a> 
@@ -799,6 +802,3 @@
 <a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-and-why-it-matters-3d1615d6bd4281e9ada1f4d02ae4dd4e">How to spot low quality content online and why it matters 3d</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-tell-if-a-website-is-trustworthy-a-practical-guide-3d1615d6bd4281f2ad89e73a172ce4fd">How to tell if a website is trustworthy a practical guide 3d</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-use-the-web-to-learn-a-new-skill-3d1615d6bd428129ad79c2fc53170210">How to use the web to learn a new skill 3d1615d6bd428129ad79</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-to-use-the-web-to-learn-a-new-skill-3d1615d6bd42813fb893e594ec089408">How to use the web to learn a new skill 3d1615d6bd42813fb893</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-to-use-the-web-to-learn-a-new-skill-a-practical-guide-3d1615d6bd42813c8a6fc2c302d73c79">How to use the web to learn a new skill a practical guide 3d</a> 
-<a href="https://automatic-meeting-203.notion.site/p/Le-PMU-expliqu-simplement-paris-hippiques-et-fonctionnement-3c3615d6bd4281e39295ef4ffadb5266">Le PMU expliqu simplement paris hippiques et fonctionnement </a> 
