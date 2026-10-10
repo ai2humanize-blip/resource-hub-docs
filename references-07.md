@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
 <a href="https://app.zentrack.net/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://app.zentrack.net/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://app.zentrack.net/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://automatic-meeting-203.notion.site/p/How-Recent-Global-Events-Are-Shaping-News-Consumption-Trends-3bc615d6bd42811abc31f31744bc20bc">How Recent Global Events Are Shaping News Consumption Trends</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Avoid-Misinformation-and-Hype-the-basics-3d1615d6bd428136a55ec28a2487e800">How to Avoid Misinformation and Hype the basics 3d1615d6bd42</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Bookmark-and-Revisit-Useful-Resources-and-why-it-matters-3d1615d6bd4281b2921dc00cdb7ae4e6">How to Bookmark and Revisit Useful Resources and why it matt</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-to-Bookmark-and-Revisit-Useful-Resources-the-basics-3d1615d6bd42815f8eb3fda74884467c">How to Bookmark and Revisit Useful Resources the basics 3d16</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-to-Build-a-Personal-Reading-List-3d1615d6bd4281788c66d30dc02e4af9">How to Build a Personal Reading List 3d1615d6bd4281788c66d30</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-to-Choose-a-Trustworthy-Online-Casino-A-Comprehensive-Guide-3b8615d6bd4281e88fc5e5fec44eee6c">How to Choose a Trustworthy Online Casino A Comprehensive Gu</a> 

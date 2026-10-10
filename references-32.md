@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://heatherburrisphotography.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://heatherburrisphotography.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://heatherburrisphotography.com/how-to-spot-low-quality-content-online-2/">how to spot low quality content online 2</a> 
+<a href="https://heatherburrisphotography.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://heatherburrisphotography.com/how-to-streamline-your-digital-life-top-apps-for-productivit/">how to streamline your digital life top apps for productivit</a> 
+<a href="https://heatherburrisphotography.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
+<a href="https://heatherburrisphotography.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://heatherburrisphotography.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://heatherburrisphotography.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply-2/">how to use the web to learn a new skill explained simply 2</a> 
+<a href="https://heatherburrisphotography.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://heatherburrisphotography.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://heatherburrisphotography.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://heatherburrisphotography.com/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 
+<a href="https://heatherburrisphotography.com/leveraging-personal-finance-strategies-for-small-business-gr/">leveraging personal finance strategies for small business gr</a> 
+<a href="https://heatherburrisphotography.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://heatherburrisphotography.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://heatherburrisphotography.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
 <a href="https://heatherburrisphotography.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://heatherburrisphotography.com/master-business-finance-productivity-essential-online-readin-99-8/">master business finance productivity essential online readin</a> 
 <a href="https://heatherburrisphotography.com/master-business-finance-productivity-essential-web-skills-fo-99-8/">master business finance productivity essential web skills fo</a> 
@@ -784,21 +802,3 @@
 <a href="https://homaryreviews.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://homaryreviews.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://homaryreviews.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://homaryreviews.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://homaryreviews.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://homaryreviews.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://homaryreviews.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://homaryreviews.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://homaryreviews.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://homaryreviews.com/breaking-down-the-latest-sports-news-and-expert-analysis/">breaking down the latest sports news and expert analysis</a> 
-<a href="https://homaryreviews.com/breaking-down-today-s-top-news-stories-analysis-and-insights/">breaking down today s top news stories analysis and insights</a> 
-<a href="https://homaryreviews.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://homaryreviews.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
-<a href="https://homaryreviews.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://homaryreviews.com/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
-<a href="https://homaryreviews.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://homaryreviews.com/business-finance-productivity-navigating-modern-tools-and-tr-101-1/">business finance productivity navigating modern tools and tr</a> 

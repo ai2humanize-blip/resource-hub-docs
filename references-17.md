@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cyberkannadig.it.com/essential-web-tech-and-content-tools-for-every-creator-26-3/">essential web tech and content tools for every creator 26 3</a> 
+<a href="https://cyberkannadig.it.com/essential-web-tech-content-tips-for-smartphone-audio-issues-26-3/">essential web tech content tips for smartphone audio issues </a> 
+<a href="https://cyberkannadig.it.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://cyberkannadig.it.com/exploring-ai-generated-art-guides-reviews-and-how-to-insight-26-4/">exploring ai generated art guides reviews and how to insight</a> 
 <a href="https://cyberkannadig.it.com/exploring-essential-digital-tools-online-resources-for-infor-26-2/">exploring essential digital tools online resources for infor</a> 
 <a href="https://cyberkannadig.it.com/exploring-essential-web-tech-content-tools-for-muslims-26-3/">exploring essential web tech content tools for muslims 26 3</a> 
@@ -582,6 +585,9 @@
 <a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-6/">web tech content 50 resources worth bookmarking 26 3 6</a> 
 <a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-60/">web tech content 50 resources worth bookmarking 26 3 60</a> 
 <a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-61/">web tech content 50 resources worth bookmarking 26 3 61</a> 
+<a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-62/">web tech content 50 resources worth bookmarking 26 3 62</a> 
+<a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-63/">web tech content 50 resources worth bookmarking 26 3 63</a> 
+<a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-64/">web tech content 50 resources worth bookmarking 26 3 64</a> 
 <a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-7/">web tech content 50 resources worth bookmarking 26 3 7</a> 
 <a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-8/">web tech content 50 resources worth bookmarking 26 3 8</a> 
 <a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-9/">web tech content 50 resources worth bookmarking 26 3 9</a> 
@@ -796,9 +802,3 @@
 <a href="https://cybinxo.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
 <a href="https://cybinxo.com/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
 <a href="https://cybinxo.com/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://cybinxo.com/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://cybinxo.com/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://cybinxo.com/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
-<a href="https://cybinxo.com/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
-<a href="https://cybinxo.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://cybinxo.com/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 

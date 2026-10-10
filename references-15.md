@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cochesdeocasion.xyz/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://cochesdeocasion.xyz/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://cochesdeocasion.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
 <a href="https://cochesdeocasion.xyz/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
 <a href="https://cochesdeocasion.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
 <a href="https://cochesdeocasion.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/navigating-the-web-for-business-finance-productivity-a-curat-86-6/">navigating the web for business finance productivity a curat</a> 
 <a href="https://crediblenews24.com/navigating-the-web-for-business-finance-productivity-a-pract-86-6/">navigating the web for business finance productivity a pract</a> 
 <a href="https://crediblenews24.com/navigating-the-web-for-business-finance-productivity-a-reade-86-6/">navigating the web for business finance productivity a reade</a> 
-<a href="https://crediblenews24.com/navigating-the-world-of-business-finance-and-productivity-in-86-6/">navigating the world of business finance and productivity in</a> 
-<a href="https://crediblenews24.com/navigating-today-s-news-landscape-digital-tools-online-resou-86-7/">navigating today s news landscape digital tools online resou</a> 
-<a href="https://crediblenews24.com/navigating-web-tech-content-a-comprehensive-guide-for-crypto-86-8/">navigating web tech content a comprehensive guide for crypto</a> 

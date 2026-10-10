@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://bandemusic.com/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://bandemusic.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
 <a href="https://bandemusic.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
 <a href="https://bandemusic.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
 <a href="https://bandemusic.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://bitslots.de.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://bitslots.de.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://bitslots.de.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://bitslots.de.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
