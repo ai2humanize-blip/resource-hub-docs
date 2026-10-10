@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
+<a href="https://bandemusic.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://bandemusic.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://bandemusic.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
 <a href="https://bandemusic.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://bandemusic.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://bitslots.de.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
 <a href="https://bitslots.de.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://bitslots.de.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://bitslots.de.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
-<a href="https://bitslots.de.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 

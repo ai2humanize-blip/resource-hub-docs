@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cybinxo.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://cybinxo.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://cybinxo.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://cybinxo.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://cybinxo.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://cybinxo.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
 <a href="https://cybinxo.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
 <a href="https://cybinxo.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://cybinxo.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
@@ -796,9 +802,3 @@
 <a href="https://cymbaltareviews.com/the-basics-of-staying-safe-while-browsing-2/">the basics of staying safe while browsing 2</a> 
 <a href="https://cymbaltareviews.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
 <a href="https://cymbaltareviews.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://cymbaltareviews.com/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
-<a href="https://cymbaltareviews.com/the-difference-between-skimming-and-deep-reading-online-3/">the difference between skimming and deep reading online 3</a> 
-<a href="https://cymbaltareviews.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://cymbaltareviews.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
-<a href="https://cymbaltareviews.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://cymbaltareviews.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 

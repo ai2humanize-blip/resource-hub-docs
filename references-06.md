@@ -194,7 +194,10 @@
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-56/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-57/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-58/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-59/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-6/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-60/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-61/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-7/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-8/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-9/">business finance productivity 50 resources worth bookmarking</a> 
@@ -799,6 +802,3 @@
 <a href="https://app.zentrack.net/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
 <a href="https://app.zentrack.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
 <a href="https://app.zentrack.net/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://app.zentrack.net/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://app.zentrack.net/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://app.zentrack.net/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 

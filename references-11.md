@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-professional-certifications-still-matter-for-career-growth/">why professional certifications still matter for career grow</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-6ab3c4bf/">why washington not charts is driving crypto 6ab3c4bf</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-6d6600ff/">why washington not charts is driving crypto 6d6600ff</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-c25348a8/">why washington not charts is driving crypto c25348a8</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-c605769c/">why washington not charts is driving crypto c605769c</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-82-2-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-82-2-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cochesdeocasion.xyz/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://cochesdeocasion.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://cochesdeocasion.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cochesdeocasion.xyz/media-partnerships-in-the-independent-web/">media partnerships in the independent web</a> 
 <a href="https://cochesdeocasion.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://cochesdeocasion.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/navigating-the-world-of-business-finance-and-productivity-in-86-6/">navigating the world of business finance and productivity in</a> 
 <a href="https://crediblenews24.com/navigating-today-s-news-landscape-digital-tools-online-resou-86-7/">navigating today s news landscape digital tools online resou</a> 
 <a href="https://crediblenews24.com/navigating-web-tech-content-a-comprehensive-guide-for-crypto-86-8/">navigating web tech content a comprehensive guide for crypto</a> 
-<a href="https://crediblenews24.com/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
-<a href="https://crediblenews24.com/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://crediblenews24.com/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
