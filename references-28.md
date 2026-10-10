@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://fluffy-mandazi-e87928.netlify.app/how-to-find-reliable-how-to-guides-a-practical-guide.html">how to find reliable how to guides a practical guide</a> 
+<a href="https://fluffy-shortbread-7621f0.netlify.app/navigating-the-future-cryptocurrency-bitcoin-and-blockchain-.html">navigating the future cryptocurrency bitcoin and blockchain</a> 
+<a href="https://fluffy-squirrel-cd78d3.netlify.app/marketcapitalize-com.html">marketcapitalize com</a> 
+<a href="https://forotesis.com/10-organic-living-tips-for-a-healthier-more-balanced-life/">10 organic living tips for a healthier more balanced life</a> 
+<a href="https://forotesis.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://forotesis.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://forotesis.com/a-closer-look-at-a-simple-framework-for-researching-any-topic-online/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://forotesis.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://forotesis.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://forotesis.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
@@ -790,15 +802,3 @@
 <a href="https://getolive.org/navigating-the-modern-news-landscape-insights-on-business-fi-97-10/">navigating the modern news landscape insights on business fi</a> 
 <a href="https://getolive.org/navigating-the-new-era-of-news-consumption-insights-and-stra/">navigating the new era of news consumption insights and stra</a> 
 <a href="https://getolive.org/navigating-the-web-a-comprehensive-guide-to-trustworthy-cont-97-7/">navigating the web a comprehensive guide to trustworthy cont</a> 
-<a href="https://getolive.org/navigating-the-web-evaluating-trustworthiness-quality-and-de-97-7/">navigating the web evaluating trustworthiness quality and de</a> 
-<a href="https://getolive.org/navigating-the-web-tech-content-a-comprehensive-guide-for-sm-97-7/">navigating the web tech content a comprehensive guide for sm</a> 
-<a href="https://getolive.org/navigating-the-web-tech-content-landscape-a-comprehensive-gu-97-7/">navigating the web tech content landscape a comprehensive gu</a> 
-<a href="https://getolive.org/navigating-today-s-news-landscape-strategies-for-staying-inf-97-10/">navigating today s news landscape strategies for staying inf</a> 
-<a href="https://getolive.org/navigating-web-tech-and-content-a-comprehensive-roundup-97-7/">navigating web tech and content a comprehensive roundup 97 7</a> 
-<a href="https://getolive.org/navigating-web-tech-and-content-a-comprehensive-roundup-for-97-7/">navigating web tech and content a comprehensive roundup for </a> 
-<a href="https://getolive.org/navigating-web-tech-content-a-comprehensive-guide-97-7/">navigating web tech content a comprehensive guide 97 7</a> 
-<a href="https://getolive.org/navigating-web-tech-content-a-comprehensive-guide-for-modern-97-7/">navigating web tech content a comprehensive guide for modern</a> 
-<a href="https://getolive.org/navigating-web-tech-content-a-comprehensive-guide-for-smart-97-7/">navigating web tech content a comprehensive guide for smart </a> 
-<a href="https://getolive.org/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-97-7/">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://getolive.org/newsrealtors-independent-coverage-of-india-and-world-news/">newsrealtors independent coverage of india and world news</a> 
-<a href="https://getolive.org/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 

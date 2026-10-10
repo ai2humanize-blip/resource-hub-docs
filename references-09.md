@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
 <a href="https://bandemusic.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
 <a href="https://bandemusic.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
 <a href="https://bandemusic.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-bookmark-and-revisit-useful-resources/">a closer look at how to bookmark and revisit useful resource</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-evaluate-online-reviews-and-recommendations/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
-<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 

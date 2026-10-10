@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Transform-Your-Living-Space-with-Minimalist-Interior-Design-3bb615d6bd42811aa8f9e767790e94e4">How to Transform Your Living Space with Minimalist Interior </a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-compare-sources-on-the-same-story-3d1615d6bd4281f1adb9d154267ff028">How to compare sources on the same story 3d1615d6bd4281f1adb</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-compare-sources-on-the-same-story-a-quick-guide-3d1615d6bd428100a400d5f811cdbf03">How to compare sources on the same story a quick guide 3d161</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-fact-check-something-in-five-minutes-a-quick-guide-3d1615d6bd4281e38b83d214214674fa">How to fact check something in five minutes a quick guide 3d</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-fact-check-something-in-five-minutes-the-basics-3d1615d6bd42813f890ee8552c4907fe">How to fact check something in five minutes the basics 3d161</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-find-balanced-coverage-of-a-topic-a-practical-guide-3d1615d6bd4281609114d079febfc6ea">How to find balanced coverage of a topic a practical guide 3</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://bandemusic.com/harnessing-ai-for-creative-inspiration-a-new-era-for-digital/">harnessing ai for creative inspiration a new era for digital</a> 
 <a href="https://bandemusic.com/how-ai-driven-apps-are-revolutionizing-everyday-life/">how ai driven apps are revolutionizing everyday life</a> 
-<a href="https://bandemusic.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
-<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 

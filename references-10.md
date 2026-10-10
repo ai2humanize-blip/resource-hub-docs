@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-practical-guide-to-booking-budget-travel-that-saves-real-money/">a practical guide to booking budget travel that saves real m</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/write-for-us-0b3beeb0/">write for us 0b3beeb0</a> 
 <a href="https://boostelearning.mataroa.blog/blog/write-for-us-be120e06/">write for us be120e06</a> 
 <a href="https://boostelearning.mataroa.blog/blog/write-for-us-c83ca9d1/">write for us c83ca9d1</a> 
-<a href="https://boostelearning.mataroa.blog/blog/write-for-us-fdcdc9d0/">write for us fdcdc9d0</a> 
-<a href="https://boostelearning.mataroa.blog/blog/write-for-us/">write for us</a> 
-<a href="https://boostelearning.mataroa.blog/blog/xrp-price-surges-amid-key-market-and-legal-125b9513/">xrp price surges amid key market and legal 125b9513</a> 

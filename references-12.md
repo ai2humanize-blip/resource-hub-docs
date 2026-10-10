@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://captainjackinterview.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://captainjackinterview.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
 <a href="https://captainjackinterview.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-5/">mastering marketing seo growth strategies for success 83 3 5</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-6/">mastering marketing seo growth strategies for success 83 3 6</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-7/">mastering marketing seo growth strategies for success 83 3 7</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-8/">mastering marketing seo growth strategies for success 83 3 8</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-9/">mastering marketing seo growth strategies for success 83 3 9</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3/">mastering marketing seo growth strategies for success 83 3</a> 
