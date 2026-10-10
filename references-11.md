@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto/">why washington not charts is driving crypto</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-we-label-reviews-research-based/">why we label reviews research based</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-you-never-enter-upi-pin-to-receive/">why you never enter upi pin to receive</a> 
 <a href="https://boostelearning.mataroa.blog/blog/write-for-us-0b3beeb0/">write for us 0b3beeb0</a> 
 <a href="https://boostelearning.mataroa.blog/blog/write-for-us-be120e06/">write for us be120e06</a> 
 <a href="https://boostelearning.mataroa.blog/blog/write-for-us-c83ca9d1/">write for us c83ca9d1</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-82-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-82-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 

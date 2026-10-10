@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cochesdeocasion.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
+<a href="https://cochesdeocasion.xyz/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
+<a href="https://cochesdeocasion.xyz/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
 <a href="https://cochesdeocasion.xyz/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
 <a href="https://cochesdeocasion.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://cochesdeocasion.xyz/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
 <a href="https://crediblenews24.com/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste/">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
 <a href="https://crediblenews24.com/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://crediblenews24.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://crediblenews24.com/recognizing-credible-experts-online-a-quick-guide-2/">recognizing credible experts online a quick guide 2</a> 
-<a href="https://crediblenews24.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 

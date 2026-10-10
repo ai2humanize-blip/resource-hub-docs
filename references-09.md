@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig-2/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://bandemusic.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://bandemusic.com/harnessing-ai-for-creative-inspiration-a-new-era-for-digital/">harnessing ai for creative inspiration a new era for digital</a> 
 <a href="https://bandemusic.com/how-ai-driven-apps-are-revolutionizing-everyday-life/">how ai driven apps are revolutionizing everyday life</a> 
@@ -799,6 +802,3 @@
 <a href="https://bloghold.com.de/gindex.html">gindex</a> 
 <a href="https://bloghold.com.de/picks.html">picks</a> 
 <a href="https://boisterous-fudge-0d25cf.netlify.app/ai-policy.html">ai policy</a> 
-<a href="https://boisterous-melba-666984.netlify.app/carmannews.html">carmannews</a> 
-<a href="https://boisterous-pony-46d54f.netlify.app/islamic-calendar.html">islamic calendar</a> 
-<a href="https://boostelearning.mataroa.blog/blog/a-beginners-guide-to-understanding-online-casino-terms-and-conditions/">a beginners guide to understanding online casino terms and c</a> 
