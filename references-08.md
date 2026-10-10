@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/How-Recent-Global-Events-Are-Shaping-News-Consumption-Trends-3bc615d6bd42811abc31f31744bc20bc">How Recent Global Events Are Shaping News Consumption Trends</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Avoid-Misinformation-and-Hype-the-basics-3d1615d6bd428136a55ec28a2487e800">How to Avoid Misinformation and Hype the basics 3d1615d6bd42</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Bookmark-and-Revisit-Useful-Resources-and-why-it-matters-3d1615d6bd4281b2921dc00cdb7ae4e6">How to Bookmark and Revisit Useful Resources and why it matt</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Bookmark-and-Revisit-Useful-Resources-the-basics-3d1615d6bd42815f8eb3fda74884467c">How to Bookmark and Revisit Useful Resources the basics 3d16</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Build-a-Personal-Reading-List-3d1615d6bd4281788c66d30dc02e4af9">How to Build a Personal Reading List 3d1615d6bd4281788c66d30</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Choose-a-Trustworthy-Online-Casino-A-Comprehensive-Guide-3b8615d6bd4281e88fc5e5fec44eee6c">How to Choose a Trustworthy Online Casino A Comprehensive Gu</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/exploring-web-tech-content-and-online-casino-news-a-comprehe-81-3/">exploring web tech content and online casino news a comprehe</a> 
 <a href="https://bandemusic.com/exploring-web-tech-content-from-online-casinos-to-crypto-new-81-3/">exploring web tech content from online casinos to crypto new</a> 
 <a href="https://bandemusic.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://bandemusic.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://bandemusic.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://bandemusic.com/getting-how-to-compare-sources-on-the-same-story-right-2/">getting how to compare sources on the same story right 2</a> 

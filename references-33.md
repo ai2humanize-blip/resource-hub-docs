@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://homaryreviews.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://homaryreviews.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://homaryreviews.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://homaryreviews.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://homaryreviews.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://homaryreviews.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://homaryreviews.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
 <a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
 <a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
@@ -784,21 +802,3 @@
 <a href="https://influencersgonewild.eu.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
 <a href="https://influencersgonewild.eu.com/how-classic-card-games-are-played/">how classic card games are played</a> 
 <a href="https://influencersgonewild.eu.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://influencersgonewild.eu.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://influencersgonewild.eu.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://influencersgonewild.eu.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
-<a href="https://influencersgonewild.eu.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://influencersgonewild.eu.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://influencersgonewild.eu.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
-<a href="https://influencersgonewild.eu.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 

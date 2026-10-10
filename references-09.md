@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://bandemusic.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://bandemusic.com/getting-how-to-compare-sources-on-the-same-story-right-2/">getting how to compare sources on the same story right 2</a> 
 <a href="https://bandemusic.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
 <a href="https://bandemusic.com/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
 <a href="https://bandemusic.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://bitslots.de.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 

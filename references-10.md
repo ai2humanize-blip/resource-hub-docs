@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://bitslots.de.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
 <a href="https://bitslots.de.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://bitslots.de.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
 <a href="https://bitslots.de.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://boostelearning.mataroa.blog/blog/where-the-jobs-are-india-growing-sectors/">where the jobs are india growing sectors</a> 
-<a href="https://boostelearning.mataroa.blog/blog/why-attention-is-the-scarce-resource/">why attention is the scarce resource</a> 
-<a href="https://boostelearning.mataroa.blog/blog/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 

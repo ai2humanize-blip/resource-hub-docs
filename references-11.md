@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/where-the-jobs-are-india-growing-sectors/">where the jobs are india growing sectors</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-attention-is-the-scarce-resource/">why attention is the scarce resource</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
