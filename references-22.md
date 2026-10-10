@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://emiamedical.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://emiamedical.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://emiamedical.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://emiamedical.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://emiamedical.com/the-hindu-lunar-calendar-months-paksha-and-major-festivals/">the hindu lunar calendar months paksha and major festivals</a> 
+<a href="https://emiamedical.com/the-impact-of-ai-on-modern-journalism-opportunities-and-chal/">the impact of ai on modern journalism opportunities and chal</a> 
 <a href="https://emiamedical.com/the-lora-and-lato-pairing/">the lora and lato pairing</a> 
 <a href="https://emiamedical.com/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-92-2/">the practical guide to ai art prompt generators web tech con</a> 
 <a href="https://emiamedical.com/the-rise-of-ai-powered-apps-transforming-daily-life-and-work/">the rise of ai powered apps transforming daily life and work</a> 
@@ -796,9 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c5e413c/best-time-to-visit-japan.html">best time to visit japan</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c68ffc5/abcyapi.html">abcyapi</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c6ad560/scenefordummies.html">scenefordummies</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c6f6a9e/what-the-fear-greed-index-can-and-cannot.html">what the fear greed index can and cannot</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c6f9661/mycoinpartner.html">mycoinpartner</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c770dec/what-moves-bitcoin-price-framework.html">what moves bitcoin price framework</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c7a778f/about-us.html">about us</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c7a89de/trouver-la-qibla.html">trouver la qibla</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c87aec2/idiom-insider.html">idiom insider</a> 

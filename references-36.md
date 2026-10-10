@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://labmagickite.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://lambent-cannoli-749443.netlify.app/festivals.html">festivals</a> 
+<a href="https://lambent-kelpie-1dbfbb.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re-2/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re-3/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://landscape-paintings.net/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
 <a href="https://landscape-paintings.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://landscape-paintings.net/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
@@ -784,21 +802,3 @@
 <a href="https://lapzoocom.it.com/navigating-the-intersection-of-web-tech-and-content-in-today-31-8/">navigating the intersection of web tech and content in today</a> 
 <a href="https://lapzoocom.it.com/navigating-the-intersection-of-web-tech-content-a-comprehens-31-8/">navigating the intersection of web tech content a comprehens</a> 
 <a href="https://lapzoocom.it.com/navigating-the-latest-developments-in-cryptocurrency-news-an/">navigating the latest developments in cryptocurrency news an</a> 
-<a href="https://lapzoocom.it.com/navigating-the-modern-news-landscape-ai-trends-and-reliable-31-8/">navigating the modern news landscape ai trends and reliable </a> 
-<a href="https://lapzoocom.it.com/navigating-the-modern-news-landscape-web-tech-content-insigh-31-8/">navigating the modern news landscape web tech content insigh</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-a-comprehensive-guide-to-guides-reviews-a-31-9/">navigating the web a comprehensive guide to guides reviews a</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-a-comprehensive-guide-to-guides-reviews-h-31-9/">navigating the web a comprehensive guide to guides reviews h</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-a-curated-guide-to-guides-reviews-and-how-31-9/">navigating the web a curated guide to guides reviews and how</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-a-curated-guide-to-useful-online-resource-31-9-2/">navigating the web a curated guide to useful online resource</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-a-curated-guide-to-useful-online-resource-31-9/">navigating the web a curated guide to useful online resource</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-guides-reviews-and-how-tos-for-every-need-31-9/">navigating the web guides reviews and how tos for every need</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-guides-reviews-and-how-tos-for-every-read-31-9/">navigating the web guides reviews and how tos for every read</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-guides-reviews-and-how-tos-for-every-user-31-9-2/">navigating the web guides reviews and how tos for every user</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-guides-reviews-and-how-tos-for-every-user-31-9/">navigating the web guides reviews and how tos for every user</a> 
-<a href="https://lapzoocom.it.com/navigating-the-web-tech-content-landscape-for-small-business-31-8/">navigating the web tech content landscape for small business</a> 
-<a href="https://lapzoocom.it.com/navigating-the-world-of-crypto-cards-custodial-vs-self-custo-31-8/">navigating the world of crypto cards custodial vs self custo</a> 
-<a href="https://lapzoocom.it.com/navigating-the-world-of-web-tech-and-content-a-comprehensive-31-8/">navigating the world of web tech and content a comprehensive</a> 
-<a href="https://lapzoocom.it.com/navigating-today-s-news-landscape-strategies-for-clarity-tru-31-8/">navigating today s news landscape strategies for clarity tru</a> 
-<a href="https://lapzoocom.it.com/navigating-web-tech-and-content-a-comprehensive-guide-for-en-31-8/">navigating web tech and content a comprehensive guide for en</a> 
-<a href="https://lapzoocom.it.com/navigating-web-tech-and-content-a-comprehensive-roundup-for-31-8/">navigating web tech and content a comprehensive roundup for </a> 
-<a href="https://lapzoocom.it.com/navigating-web-tech-and-content-from-online-casinos-to-indep-31-8/">navigating web tech and content from online casinos to indep</a> 

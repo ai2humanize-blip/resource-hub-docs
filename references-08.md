@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Tell-Explainer-Journalism-from-Opinion-3d1615d6bd428135bedff995730d1193">How to Tell Explainer Journalism from Opinion 3d1615d6bd4281</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Tell-Explainer-Journalism-from-Opinion-3d3615d6bd4281ecb9eec345c6ee7727">How to Tell Explainer Journalism from Opinion 3d3615d6bd4281</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Tell-Explainer-Journalism-from-Opinion-explained-simply-3d1615d6bd42817ea398d1783783b1d9">How to Tell Explainer Journalism from Opinion explained simp</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Transform-Your-Living-Space-with-Minimalist-Interior-Design-3bb615d6bd42811aa8f9e767790e94e4">How to Transform Your Living Space with Minimalist Interior </a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-compare-sources-on-the-same-story-3d1615d6bd4281f1adb9d154267ff028">How to compare sources on the same story 3d1615d6bd4281f1adb</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-compare-sources-on-the-same-story-a-quick-guide-3d1615d6bd428100a400d5f811cdbf03">How to compare sources on the same story a quick guide 3d161</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig-2/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://bandemusic.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://bandemusic.com/harnessing-ai-for-creative-inspiration-a-new-era-for-digital/">harnessing ai for creative inspiration a new era for digital</a> 
-<a href="https://bandemusic.com/how-ai-driven-apps-are-revolutionizing-everyday-life/">how ai driven apps are revolutionizing everyday life</a> 
