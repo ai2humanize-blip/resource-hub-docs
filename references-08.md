@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Find-Reliable-How-To-Guides-3d1615d6bd428180a369e1023a67a151">How to Find Reliable How To Guides 3d1615d6bd428180a369e1023</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Find-Reliable-How-To-Guides-a-practical-guide-3d1615d6bd42811d8db7c1f2759d7444">How to Find Reliable How To Guides a practical guide 3d1615d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Get-the-Most-Out-of-Online-Guides-a-quick-guide-3d3615d6bd42819cb076daed236a2329">How to Get the Most Out of Online Guides a quick guide 3d361</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Navigate-the-Digital-World-Essential-Apps-and-Tech-Tips-for-Everyone-3bb615d6bd4281278f9debb6d03f463e">How to Navigate the Digital World Essential Apps and Tech Ti</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Organize-the-Information-You-Find-Online-a-practical-guide-3d1615d6bd4281eeb1cbc4d065277be8">How to Organize the Information You Find Online a practical </a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Read-Crypto-News-Without-Getting-Misled-3c8615d6bd4281f1a764dd75c36748e3">How to Read Crypto News Without Getting Misled 3c8615d6bd428</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
 <a href="https://bandemusic.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
 <a href="https://bandemusic.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://bandemusic.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://bandemusic.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://bandemusic.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://bandemusic.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://bandemusic.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://bandemusic.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig-2/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
 <a href="https://bitslots.de.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
 <a href="https://bitslots.de.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
-<a href="https://bloghold.com.de/gindex.html">gindex</a> 
-<a href="https://bloghold.com.de/picks.html">picks</a> 
-<a href="https://boisterous-fudge-0d25cf.netlify.app/ai-policy.html">ai policy</a> 

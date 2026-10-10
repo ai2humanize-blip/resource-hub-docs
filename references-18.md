@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cybinxo.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://cybinxo.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://cybinxo.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
+<a href="https://cybinxo.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
+<a href="https://cybinxo.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://cybinxo.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
 <a href="https://cybinxo.com/indian-nutrition-guide/">indian nutrition guide</a> 
 <a href="https://cybinxo.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
 <a href="https://cybinxo.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
@@ -796,9 +802,3 @@
 <a href="https://cymbaltareviews.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
 <a href="https://cymbaltareviews.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
 <a href="https://cymbaltareviews.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://cymbaltareviews.com/the-future-of-mobile-apps-how-ai-and-ar-are-transforming-use/">the future of mobile apps how ai and ar are transforming use</a> 
-<a href="https://cymbaltareviews.com/the-future-of-sports-news-how-ai-and-data-analytics-are-tran/">the future of sports news how ai and data analytics are tran</a> 
-<a href="https://cymbaltareviews.com/the-future-of-sports-news-how-ai-data-analytics-and-fan-enga-88-8/">the future of sports news how ai data analytics and fan enga</a> 
-<a href="https://cymbaltareviews.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
-<a href="https://cymbaltareviews.com/the-rise-of-ai-powered-apps-transforming-our-digital-experie/">the rise of ai powered apps transforming our digital experie</a> 
-<a href="https://cymbaltareviews.com/the-rise-of-sustainable-fashion-how-eco-friendly-trends-are/">the rise of sustainable fashion how eco friendly trends are</a> 

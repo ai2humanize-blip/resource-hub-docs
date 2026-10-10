@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bloghold.com.de/gindex.html">gindex</a> 
+<a href="https://bloghold.com.de/picks.html">picks</a> 
+<a href="https://boisterous-fudge-0d25cf.netlify.app/ai-policy.html">ai policy</a> 
 <a href="https://boisterous-melba-666984.netlify.app/carmannews.html">carmannews</a> 
 <a href="https://boisterous-pony-46d54f.netlify.app/islamic-calendar.html">islamic calendar</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-beginners-guide-to-understanding-online-casino-terms-and-conditions/">a beginners guide to understanding online casino terms and c</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-professional-certifications-still-matter-for-career-growth/">why professional certifications still matter for career grow</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-6ab3c4bf/">why washington not charts is driving crypto 6ab3c4bf</a> 
-<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-6d6600ff/">why washington not charts is driving crypto 6d6600ff</a> 
-<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-c25348a8/">why washington not charts is driving crypto c25348a8</a> 
-<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-c605769c/">why washington not charts is driving crypto c605769c</a> 
