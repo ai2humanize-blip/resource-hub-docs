@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-explained-simply-2/">simple habits of a smart internet reader explained simply 2</a> 
+<a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
 <a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
 <a href="https://crediblenews24.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://crediblenews24.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-independent-websites-guides-reviews-how-tos-for-ne-26-4-2/">exploring independent websites guides reviews how tos for ne</a> 
 <a href="https://cyberkannadig.it.com/exploring-independent-websites-guides-reviews-how-tos-for-ne-26-4/">exploring independent websites guides reviews how tos for ne</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-best-curated-resource-directories-for-web-tech-26-3/">exploring the best curated resource directories for web tech</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-best-digital-resources-for-crypto-tech-and-eve-26-3/">exploring the best digital resources for crypto tech and eve</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-best-font-pairings-for-web-tech-content-26-3/">exploring the best font pairings for web tech content 26 3</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-best-guides-reviews-and-how-tos-for-fashion-an-26-4/">exploring the best guides reviews and how tos for fashion an</a> 

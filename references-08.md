@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-fact-check-something-in-five-minutes-a-quick-guide-3d1615d6bd4281e38b83d214214674fa">How to fact check something in five minutes a quick guide 3d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-fact-check-something-in-five-minutes-the-basics-3d1615d6bd42813f890ee8552c4907fe">How to fact check something in five minutes the basics 3d161</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-find-balanced-coverage-of-a-topic-a-practical-guide-3d1615d6bd4281609114d079febfc6ea">How to find balanced coverage of a topic a practical guide 3</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-read-crypto-news-without-getting-hyped-3ca615d6bd428160b319e109f0e36370">How to read crypto news without getting hyped 3ca615d6bd4281</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-3d1615d6bd4281f3b1f5eef504115123">How to spot low quality content online 3d1615d6bd4281f3b1f5e</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-a-practical-guide-3d1615d6bd4281d494a8dde3d1675366">How to spot low quality content online a practical guide 3d1</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
 <a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
-<a href="https://bandemusic.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
-<a href="https://bandemusic.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
-<a href="https://bandemusic.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 

@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://forotesis.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://forotesis.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://forotesis.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://forotesis.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://forotesis.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://forotesis.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
 <a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
@@ -790,15 +802,3 @@
 <a href="https://getolive.org/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-97-7/">navigating web tech content a comprehensive guide for the mo</a> 
 <a href="https://getolive.org/newsrealtors-independent-coverage-of-india-and-world-news/">newsrealtors independent coverage of india and world news</a> 
 <a href="https://getolive.org/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
-<a href="https://getolive.org/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
-<a href="https://getolive.org/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
-<a href="https://getolive.org/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
-<a href="https://getolive.org/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://getolive.org/revolutionizing-business-finance-productivity-the-ai-driven-97-10/">revolutionizing business finance productivity the ai driven </a> 
-<a href="https://getolive.org/revolutionizing-daily-life-how-ai-driven-apps-are-transformi/">revolutionizing daily life how ai driven apps are transformi</a> 
-<a href="https://getolive.org/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
-<a href="https://getolive.org/simple-habits-of-a-smart-internet-reader-and-why-it-matters-2/">simple habits of a smart internet reader and why it matters </a> 
-<a href="https://getolive.org/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
-<a href="https://getolive.org/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://getolive.org/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://getolive.org/staying-informed-and-ahead-the-ultimate-guide-to-sports-news-97-8/">staying informed and ahead the ultimate guide to sports news</a> 

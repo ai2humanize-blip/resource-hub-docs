@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://bandemusic.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://bandemusic.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://bandemusic.com/how-html5-revolutionized-casual-browser-gaming-for-business-81-6/">how html5 revolutionized casual browser gaming for business </a> 
 <a href="https://bandemusic.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://bandemusic.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
-<a href="https://boostelearning.mataroa.blog/blog/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
-<a href="https://boostelearning.mataroa.blog/blog/a-practical-guide-to-booking-budget-travel-that-saves-real-money/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
