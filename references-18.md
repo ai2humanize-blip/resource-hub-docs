@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cybinxo.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://cybinxo.com/how-to-compare-sources-on-the-same-story-a-practical-guide-2/">how to compare sources on the same story a practical guide 2</a> 
+<a href="https://cybinxo.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://cybinxo.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://cybinxo.com/how-to-curate-a-personalized-digital-toolkit-for-everyday-pr/">how to curate a personalized digital toolkit for everyday pr</a> 
+<a href="https://cybinxo.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://cybinxo.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://cybinxo.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
 <a href="https://cybinxo.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
@@ -796,9 +802,3 @@
 <a href="https://cymbaltareviews.com/newsrealtors-independent-coverage-of-india-and-world-news/">newsrealtors independent coverage of india and world news</a> 
 <a href="https://cymbaltareviews.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
 <a href="https://cymbaltareviews.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
-<a href="https://cymbaltareviews.com/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://cymbaltareviews.com/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://cymbaltareviews.com/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://cymbaltareviews.com/programmes-et-types-de-paris-pmu-bien-s-y-retrouver/">programmes et types de paris pmu bien s y retrouver</a> 
-<a href="https://cymbaltareviews.com/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://cymbaltareviews.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 

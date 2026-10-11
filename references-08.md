@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-read-the-news-without-getting-overwhelmed-right-3d1615d6bd4281feacb6f84889357575">Getting How to read the news without getting overwhelmed rig</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-read-the-news-without-getting-overwhelmed-right-3d3615d6bd4281479cb1c5f752fd6c19">Getting How to read the news without getting overwhelmed rig</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-spot-low-quality-content-online-right-3d1615d6bd428192a303f8730cbbc03c">Getting How to spot low quality content online right 3d1615d</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-tell-if-a-website-is-trustworthy-right-3d1615d6bd428197a83ac02c0b41af32">Getting How to tell if a website is trustworthy right 3d1615</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Getting-The-Basics-of-Staying-Safe-While-Browsing-right-3d1615d6bd4281a68929efecee1aea72">Getting The Basics of Staying Safe While Browsing right 3d16</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Getting-Why-Primary-Sources-Matter-and-How-to-Find-Them-right-3d1615d6bd428153bde7e7e8606091bb">Getting Why Primary Sources Matter and How to Find Them righ</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/exploring-the-best-in-web-tech-content-a-comprehensive-round-81-3/">exploring the best in web tech content a comprehensive round</a> 
 <a href="https://bandemusic.com/exploring-the-best-in-web-tech-content-a-curated-guide-81-3/">exploring the best in web tech content a curated guide 81 3</a> 
 <a href="https://bandemusic.com/exploring-the-best-independent-web-tech-crypto-resources-81-3/">exploring the best independent web tech crypto resources 81 </a> 
-<a href="https://bandemusic.com/exploring-the-future-of-sports-news-ai-data-analytics-and-fa-81-3/">exploring the future of sports news ai data analytics and fa</a> 
-<a href="https://bandemusic.com/exploring-the-intersection-of-business-finance-productivity-81-1/">exploring the intersection of business finance productivity </a> 
-<a href="https://bandemusic.com/exploring-the-intersection-of-web-tech-and-content-editor-s-81-3/">exploring the intersection of web tech and content editor s </a> 
