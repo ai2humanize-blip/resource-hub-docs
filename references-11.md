@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-how-to-evaluate-online-reviews-and-recommendations/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-understanding-how-search-engines-rank-pages/">what to know about understanding how search engines rank pag</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
