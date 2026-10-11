@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/essential-digital-tools-online-resources-to-safeguard-agains-81-2/">essential digital tools online resources to safeguard agains</a> 
+<a href="https://bandemusic.com/essential-independent-websites-for-business-finance-producti-81-6/">essential independent websites for business finance producti</a> 
+<a href="https://bandemusic.com/essential-online-resources-for-business-finance-productivity-81-1/">essential online resources for business finance productivity</a> 
 <a href="https://bandemusic.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://bandemusic.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-2023-81-2/">exploring essential digital tools online resources for 2023 </a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
 <a href="https://bitslots.de.com/tlt-ng-resource-3/">tlt ng resource 3</a> 
 <a href="https://bitslots.de.com/todaykeralalotteryresult-net-resource-3/">todaykeralalotteryresult net resource 3</a> 
-<a href="https://bitslots.de.com/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
-<a href="https://bitslots.de.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
-<a href="https://bitslots.de.com/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
+<a href="https://bitslots.de.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
+<a href="https://bitslots.de.com/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
 <a href="https://bitslots.de.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://bitslots.de.com/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
 <a href="https://bitslots.de.com/understanding-taxable-events-in-cryptocurrency/">understanding taxable events in cryptocurrency</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/what-rsi-and-moving-averages-tell-216d9e53/">what rsi and moving averages tell 216d9e53</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-rsi-and-moving-averages-tell-42554ebe/">what rsi and moving averages tell 42554ebe</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-rsi-and-moving-averages-tell-588ec193/">what rsi and moving averages tell 588ec193</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-rsi-and-moving-averages-tell-d3c64bf3/">what rsi and moving averages tell d3c64bf3</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-rsi-and-moving-averages-tell/">what rsi and moving averages tell</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-size-artwork-above-sofa-3925a324/">what size artwork above sofa 3925a324</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cochesdeocasion.xyz/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://cochesdeocasion.xyz/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
 <a href="https://cochesdeocasion.xyz/getting-started-with-a-password-manager/">getting started with a password manager</a> 
 <a href="https://cochesdeocasion.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://cochesdeocasion.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-a-curated-guide-to-86-6-3/">navigating business finance productivity a curated guide to </a> 
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-a-curated-guide-to-86-6/">navigating business finance productivity a curated guide to </a> 
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-a-guide-to-trustwor-86-6/">navigating business finance productivity a guide to trustwor</a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-practical-guide-t-86-6-2/">navigating business finance productivity a practical guide t</a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-practical-guide-t-86-6/">navigating business finance productivity a practical guide t</a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-in-the-digital-age-86-6-2/">navigating business finance productivity in the digital age </a> 

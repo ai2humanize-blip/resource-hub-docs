@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cbdstent.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cbdstent.com/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
 <a href="https://cbdstent.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
 <a href="https://cbdstent.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
 <a href="https://cbdstent.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://cochesdeocasion.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://cochesdeocasion.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
 <a href="https://cochesdeocasion.xyz/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
-<a href="https://cochesdeocasion.xyz/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://cochesdeocasion.xyz/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://cochesdeocasion.xyz/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 

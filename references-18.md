@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cybinxo.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://cybinxo.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://cybinxo.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://cybinxo.com/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
+<a href="https://cybinxo.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://cybinxo.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
 <a href="https://cybinxo.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://cybinxo.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
 <a href="https://cybinxo.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
@@ -796,9 +802,3 @@
 <a href="https://cymbaltareviews.com/navigating-the-crypto-landscape-understanding-bitcoin-blockc/">navigating the crypto landscape understanding bitcoin blockc</a> 
 <a href="https://cymbaltareviews.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
 <a href="https://cymbaltareviews.com/navigating-the-digital-age-how-apps-are-transforming-everyda/">navigating the digital age how apps are transforming everyda</a> 
-<a href="https://cymbaltareviews.com/navigating-the-digital-landscape-a-comprehensive-guide-to-ma-88-8/">navigating the digital landscape a comprehensive guide to ma</a> 
-<a href="https://cymbaltareviews.com/navigating-the-digital-world-top-apps-for-a-smarter-life/">navigating the digital world top apps for a smarter life</a> 
-<a href="https://cymbaltareviews.com/navigating-the-digital-world-transforming-daily-life-with-ai-88-10/">navigating the digital world transforming daily life with ai</a> 
-<a href="https://cymbaltareviews.com/navigating-the-ever-changing-landscape-of-news-consumption-i/">navigating the ever changing landscape of news consumption i</a> 
-<a href="https://cymbaltareviews.com/navigating-the-ever-evolving-news-landscape-a-comprehensive-88-3/">navigating the ever evolving news landscape a comprehensive </a> 
-<a href="https://cymbaltareviews.com/navigating-the-evolving-landscape-of-news-consumption-a-deep/">navigating the evolving landscape of news consumption a deep</a> 
