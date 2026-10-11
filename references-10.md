@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
+<a href="https://bitslots.de.com/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
+<a href="https://bitslots.de.com/understanding-taxable-events-in-cryptocurrency/">understanding taxable events in cryptocurrency</a> 
 <a href="https://bitslots.de.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://bitslots.de.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
 <a href="https://bitslots.de.com/water-stuck-in-your-phone-speaker-what-actually-helps/">water stuck in your phone speaker what actually helps</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/what-rsi-and-moving-averages-tell-d3c64bf3/">what rsi and moving averages tell d3c64bf3</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-rsi-and-moving-averages-tell/">what rsi and moving averages tell</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-size-artwork-above-sofa-3925a324/">what size artwork above sofa 3925a324</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-size-artwork-above-sofa-4aa7b6a0/">what size artwork above sofa 4aa7b6a0</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-size-artwork-above-sofa-69b55dd4/">what size artwork above sofa 69b55dd4</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-size-artwork-above-sofa-6f679cd5/">what size artwork above sofa 6f679cd5</a> 

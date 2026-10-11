@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cybinxo.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://cybinxo.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://cybinxo.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://cybinxo.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://cybinxo.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cybinxo.com/guides-reviews-how-tos-50-resources-worth-bookmarking-87-3-2/">guides reviews how tos 50 resources worth bookmarking 87 3 2</a> 
 <a href="https://cybinxo.com/guides-reviews-how-tos-50-resources-worth-bookmarking-87-3-3/">guides reviews how tos 50 resources worth bookmarking 87 3 3</a> 
 <a href="https://cybinxo.com/guides-reviews-how-tos-50-resources-worth-bookmarking-87-3/">guides reviews how tos 50 resources worth bookmarking 87 3</a> 
 <a href="https://cybinxo.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
@@ -796,9 +802,3 @@
 <a href="https://cymbaltareviews.com/navigating-the-ever-changing-landscape-of-news-consumption-i/">navigating the ever changing landscape of news consumption i</a> 
 <a href="https://cymbaltareviews.com/navigating-the-ever-evolving-news-landscape-a-comprehensive-88-3/">navigating the ever evolving news landscape a comprehensive </a> 
 <a href="https://cymbaltareviews.com/navigating-the-evolving-landscape-of-news-consumption-a-deep/">navigating the evolving landscape of news consumption a deep</a> 
-<a href="https://cymbaltareviews.com/navigating-the-evolving-news-landscape-current-trends-and-in/">navigating the evolving news landscape current trends and in</a> 
-<a href="https://cymbaltareviews.com/navigating-the-future-business-finance-productivity-in-2026-88-9/">navigating the future business finance productivity in 2026 </a> 
-<a href="https://cymbaltareviews.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
-<a href="https://cymbaltareviews.com/navigating-the-future-how-ai-is-reshaping-the-landscape-of-n/">navigating the future how ai is reshaping the landscape of n</a> 
-<a href="https://cymbaltareviews.com/navigating-the-future-of-business-finance-productivity-a-com-88-4/">navigating the future of business finance productivity a com</a> 
-<a href="https://cymbaltareviews.com/navigating-the-future-of-digital-currency-a-deep-dive-into-w-88-1/">navigating the future of digital currency a deep dive into w</a> 

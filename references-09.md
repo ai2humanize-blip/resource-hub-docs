@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://bandemusic.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-2023-81-2/">exploring essential digital tools online resources for 2023 </a> 
 <a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-moder-81-2-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-moder-81-2-3/">exploring essential digital tools online resources for moder</a> 
 <a href="https://bandemusic.com/exploring-essential-digital-tools-online-resources-for-moder-81-2/">exploring essential digital tools online resources for moder</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
 <a href="https://bitslots.de.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
 <a href="https://bitslots.de.com/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
-<a href="https://bitslots.de.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://bitslots.de.com/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
-<a href="https://bitslots.de.com/understanding-taxable-events-in-cryptocurrency/">understanding taxable events in cryptocurrency</a> 
