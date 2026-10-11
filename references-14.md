@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cbdstent.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://cbdstent.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cbdstent.com/boost-your-local-seo-proven-strategies-for-small-business-su/">boost your local seo proven strategies for small business su</a> 
 <a href="https://cbdstent.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
 <a href="https://cbdstent.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
 <a href="https://cbdstent.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
@@ -799,6 +802,3 @@
 <a href="https://cochesdeocasion.xyz/getting-started-with-a-password-manager/">getting started with a password manager</a> 
 <a href="https://cochesdeocasion.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://cochesdeocasion.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
-<a href="https://cochesdeocasion.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
-<a href="https://cochesdeocasion.xyz/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
-<a href="https://cochesdeocasion.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 

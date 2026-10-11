@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/what-size-artwork-above-sofa/">what size artwork above sofa</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot-0e76783a/">what the fear greed index can and cannot 0e76783a</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot-2afbd65d/">what the fear greed index can and cannot 2afbd65d</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot-591ee0c4/">what the fear greed index can and cannot 591ee0c4</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot-cb3fcc8a/">what the fear greed index can and cannot cb3fcc8a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot/">what the fear greed index can and cannot</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/transforming-daily-life-how-technology-and-apps-shape-our-di/">transforming daily life how technology and apps shape our di</a> 
 <a href="https://captainjackinterview.com/transforming-daily-life-the-impact-of-ai-powered-apps-on-bus-82-5/">transforming daily life the impact of ai powered apps on bus</a> 
 <a href="https://captainjackinterview.com/transforming-your-digital-life-top-apps-for-productivity-lea-82-5/">transforming your digital life top apps for productivity lea</a> 
-<a href="https://captainjackinterview.com/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
-<a href="https://captainjackinterview.com/ultimate-guides-reviews-how-tos-your-go-to-resource-for-mast-82-3/">ultimate guides reviews how tos your go to resource for mast</a> 
-<a href="https://captainjackinterview.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
