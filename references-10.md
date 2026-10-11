@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://bitslots.de.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them-6a13a6ec/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 

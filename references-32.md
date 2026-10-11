@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://heatherburrisphotography.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://heatherburrisphotography.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://heatherburrisphotography.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://heatherburrisphotography.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://heatherburrisphotography.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
+<a href="https://heatherburrisphotography.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
+<a href="https://heatherburrisphotography.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://heatherburrisphotography.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
+<a href="https://heatherburrisphotography.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://heatherburrisphotography.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://heatherburrisphotography.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://heatherburrisphotography.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://heatherburrisphotography.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://heatherburrisphotography.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
 <a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
@@ -784,21 +802,3 @@
 <a href="https://hedaroibergroup.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://hedaroibergroup.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
-<a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://hedaroibergroup.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://hedaroibergroup.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
-<a href="https://hedaroibergroup.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://hedaroibergroup.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://hedaroibergroup.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://hedaroibergroup.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
-<a href="https://hedaroibergroup.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://hedaroibergroup.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://helpful-basbousa-cb40fe.netlify.app/serpinsightlinkinsertion-overview-and-latest-updates.html">serpinsightlinkinsertion overview and latest updates</a> 
-<a href="https://helpful-lamington-d53613.netlify.app/how-to-evaluate-online-reviews-and-recommendations-and-why-i.html">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://helpful-liger-997c3d.netlify.app/how-to-bookmark-and-revisit-useful-resources-the-basics.html">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://heroic-dango-453a25.netlify.app/what-is-crypto-wallet-how-to-keep.html">what is crypto wallet how to keep</a> 
-<a href="https://homaryreviews.com/10-organic-living-tips-for-a-healthier-more-balanced-lifesty/">10 organic living tips for a healthier more balanced lifesty</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 

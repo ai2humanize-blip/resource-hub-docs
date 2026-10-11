@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://app.zentrack.net/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://app.zentrack.net/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
 <a href="https://app.zentrack.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://app.zentrack.net/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://app.zentrack.net/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
@@ -799,6 +802,3 @@
 <a href="https://automatic-meeting-203.notion.site/p/Getting-How-to-tell-if-a-website-is-trustworthy-right-3d1615d6bd428197a83ac02c0b41af32">Getting How to tell if a website is trustworthy right 3d1615</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Getting-The-Basics-of-Staying-Safe-While-Browsing-right-3d1615d6bd4281a68929efecee1aea72">Getting The Basics of Staying Safe While Browsing right 3d16</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Getting-Why-Primary-Sources-Matter-and-How-to-Find-Them-right-3d1615d6bd428153bde7e7e8606091bb">Getting Why Primary Sources Matter and How to Find Them righ</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-AI-Powered-Apps-Are-Transforming-Everyday-Life-3bb615d6bd428199bf7ad3ba5bd1b84a">How AI Powered Apps Are Transforming Everyday Life 3bb615d6b</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-AI-Powered-Apps-Are-Transforming-Our-Daily-Lives-3bc615d6bd428125bae2c1285993a079">How AI Powered Apps Are Transforming Our Daily Lives 3bc615d</a> 
-<a href="https://automatic-meeting-203.notion.site/p/How-AI-and-Machine-Learning-Are-Transforming-Everyday-Apps-3bb615d6bd428120a69bf2fee9207666">How AI and Machine Learning Are Transforming Everyday Apps 3</a> 

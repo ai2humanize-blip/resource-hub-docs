@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/exploring-web-tech-content-and-online-casino-news-a-comprehe-81-3/">exploring web tech content and online casino news a comprehe</a> 
+<a href="https://bandemusic.com/exploring-web-tech-content-from-online-casinos-to-crypto-new-81-3/">exploring web tech content from online casinos to crypto new</a> 
+<a href="https://bandemusic.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://bandemusic.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://bandemusic.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
 <a href="https://bandemusic.com/getting-how-to-compare-sources-on-the-same-story-right-2/">getting how to compare sources on the same story right 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://bitslots.de.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://bitslots.de.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
