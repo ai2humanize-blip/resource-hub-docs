@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://bitslots.de.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://bitslots.de.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://bitslots.de.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-understanding-how-search-engines-rank-pages/">what to know about understanding how search engines rank pag</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them-6a13a6ec/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cbdstent.com/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://cbdstent.com/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
+<a href="https://cbdstent.com/comprehensive-guides-in-depth-reviews-and-expert-how-tos-you-85-5/">comprehensive guides in depth reviews and expert how tos you</a> 
 <a href="https://cbdstent.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-85-5/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://cbdstent.com/comprehensive-guides-reviews-and-how-tos-everything-you-need-85-5-2/">comprehensive guides reviews and how tos everything you need</a> 
 <a href="https://cbdstent.com/comprehensive-guides-reviews-and-how-tos-everything-you-need-85-5/">comprehensive guides reviews and how tos everything you need</a> 
@@ -799,6 +802,3 @@
 <a href="https://cochesdeocasion.xyz/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
 <a href="https://cochesdeocasion.xyz/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
 <a href="https://cochesdeocasion.xyz/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
-<a href="https://cochesdeocasion.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
-<a href="https://cochesdeocasion.xyz/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
-<a href="https://cochesdeocasion.xyz/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them-6a13a6ec/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
