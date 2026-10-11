@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cochesdeocasion.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://cochesdeocasion.xyz/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
+<a href="https://cochesdeocasion.xyz/how-small-publishers-keep-advertising-transparent/">how small publishers keep advertising transparent</a> 
 <a href="https://cochesdeocasion.xyz/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
 <a href="https://cochesdeocasion.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://cochesdeocasion.xyz/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://crediblenews24.com/navigating-online-casino-news-cryptocurrency-and-productivit-86-6/">navigating online casino news cryptocurrency and productivit</a> 
 <a href="https://crediblenews24.com/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon/">navigating the crypto landscape bitcoin blockchain and beyon</a> 
-<a href="https://crediblenews24.com/navigating-the-digital-news-age-tools-trends-and-ai-insights-86-7/">navigating the digital news age tools trends and ai insights</a> 
-<a href="https://crediblenews24.com/navigating-the-digital-world-essential-tools-resources-for-s-86-7/">navigating the digital world essential tools resources for s</a> 
-<a href="https://crediblenews24.com/navigating-the-ever-changing-news-landscape-a-comprehensive-2/">navigating the ever changing news landscape a comprehensive </a> 

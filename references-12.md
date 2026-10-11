@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
 <a href="https://captainjackinterview.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-roundup-83-8/">mastering marketing seo growth a comprehensive roundup 83 8</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-curated-guide-to-essential-83-3-2/">mastering marketing seo growth a curated guide to essential </a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-curated-guide-to-essential-83-3/">mastering marketing seo growth a curated guide to essential </a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-curated-guide-to-the-best-o-83-3/">mastering marketing seo growth a curated guide to the best o</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-guide-to-essential-online-r-83-3/">mastering marketing seo growth a guide to essential online r</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-habits-for-success-83-3/">mastering marketing seo growth essential habits for success </a> 

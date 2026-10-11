@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://fabbusinesssolutions.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://fabbusinesssolutions.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
+<a href="https://fabbusinesssolutions.com/discover-essential-digital-tools-online-resources-for-every-94-9/">discover essential digital tools online resources for every </a> 
+<a href="https://fabbusinesssolutions.com/discover-the-benefits-of-joining-a-local-business-network-fo/">discover the benefits of joining a local business network fo</a> 
+<a href="https://fabbusinesssolutions.com/discover-the-best-ai-art-prompt-generators-online-creative-t-94-4/">discover the best ai art prompt generators online creative t</a> 
+<a href="https://fabbusinesssolutions.com/discover-the-best-browser-games-digital-tools-for-endless-en-94-9/">discover the best browser games digital tools for endless en</a> 
 <a href="https://fabbusinesssolutions.com/discover-the-best-digital-tools-online-resources-for-every-n-94-9/">discover the best digital tools online resources for every n</a> 
 <a href="https://fabbusinesssolutions.com/discover-the-best-independent-digital-tools-online-resources-94-9/">discover the best independent digital tools online resources</a> 
 <a href="https://fabbusinesssolutions.com/discover-unique-events-and-creative-planning-ideas-for-your/">discover unique events and creative planning ideas for your</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-in-the-digital-age-27-5-5/">mastering business finance productivity in the digital age 2</a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-in-the-digital-age-27-5-6/">mastering business finance productivity in the digital age 2</a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-in-the-digital-age-27-5-7/">mastering business finance productivity in the digital age 2</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-in-the-digital-age-27-5-8/">mastering business finance productivity in the digital age 2</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-in-the-digital-age-27-5-9/">mastering business finance productivity in the digital age 2</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-in-the-digital-age-27-5/">mastering business finance productivity in the digital age 2</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-in-the-digital-age-a-27-5-10/">mastering business finance productivity in the digital age a</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-in-the-digital-age-a-27-5-2/">mastering business finance productivity in the digital age a</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-in-the-digital-age-a-27-5-3/">mastering business finance productivity in the digital age a</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://bitslots.de.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://bitslots.de.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://bitslots.de.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://bitslots.de.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
 <a href="https://bitslots.de.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/what-size-artwork-above-sofa/">what size artwork above sofa</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot-0e76783a/">what the fear greed index can and cannot 0e76783a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot-2afbd65d/">what the fear greed index can and cannot 2afbd65d</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot-591ee0c4/">what the fear greed index can and cannot 591ee0c4</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot-cb3fcc8a/">what the fear greed index can and cannot cb3fcc8a</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-the-fear-greed-index-can-and-cannot/">what the fear greed index can and cannot</a> 
