@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://gentle-concha-28b99d.netlify.app/superlot2-com.html">superlot2 com</a> 
+<a href="https://gentle-kitten-b6b885.netlify.app/why-primary-sources-matter-and-how-to-find-them-a-quick-guid.html">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://genuine-cascaron-4fd5b4.netlify.app/islamic-calendar.html">islamic calendar</a> 
+<a href="https://genuine-nougat-24966b.netlify.app/discover-the-transformative-power-of-music-education-for-chi.html">discover the transformative power of music education for chi</a> 
+<a href="https://getolive.org/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opinion/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy-2/">a closer look at how to tell if a website is trustworthy 2</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://getolive.org/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://getolive.org/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://getolive.org/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://getolive.org/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
@@ -508,6 +520,7 @@
 <a href="https://globespro.it.com/comprehensive-guide-to-gambling-age-limits-across-the-us-and-29-6/">comprehensive guide to gambling age limits across the us and</a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-actionable-how-tos-29-6/">comprehensive guides in depth reviews and actionable how tos</a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-expert-how-tos-for-29-6/">comprehensive guides in depth reviews and expert how tos for</a> 
+<a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-10/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-2/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-3/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-4/">comprehensive guides in depth reviews and practical how tos </a> 
@@ -525,6 +538,7 @@
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-daily-aqi-hijri-29-6/">comprehensive guides reviews and how tos for daily aqi hijri</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-everyday-needs-29-6/">comprehensive guides reviews and how tos for everyday needs </a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-everyday-tech-a-29-6/">comprehensive guides reviews and how tos for everyday tech a</a> 
+<a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-modern-enthusia-29-6-2/">comprehensive guides reviews and how tos for modern enthusia</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-modern-enthusia-29-6/">comprehensive guides reviews and how tos for modern enthusia</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-optimizing-your-29-6/">comprehensive guides reviews and how tos for optimizing your</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-turf-pmu-and-ho-29-6/">comprehensive guides reviews and how tos for turf pmu and ho</a> 
@@ -588,6 +602,7 @@
 <a href="https://globespro.it.com/essential-guides-reviews-and-how-tos-for-digital-marketing-a-29-6/">essential guides reviews and how tos for digital marketing a</a> 
 <a href="https://globespro.it.com/essential-guides-reviews-and-how-tos-navigating-ai-policies-29-6/">essential guides reviews and how tos navigating ai policies </a> 
 <a href="https://globespro.it.com/essential-guides-reviews-and-how-tos-navigating-cryptocurren-29-6/">essential guides reviews and how tos navigating cryptocurren</a> 
+<a href="https://globespro.it.com/essential-guides-reviews-how-tos-for-crypto-and-blockchain-e-29-6/">essential guides reviews how tos for crypto and blockchain e</a> 
 <a href="https://globespro.it.com/essential-guides-reviews-how-tos-for-crypto-tech-everyday-li-29-6/">essential guides reviews how tos for crypto tech everyday li</a> 
 <a href="https://globespro.it.com/essential-guides-reviews-how-tos-for-cryptocurrency-bitcoin-29-6/">essential guides reviews how tos for cryptocurrency bitcoin </a> 
 <a href="https://globespro.it.com/essential-guides-reviews-how-tos-navigating-crypto-etfs-and-29-6/">essential guides reviews how tos navigating crypto etfs and </a> 
@@ -787,18 +802,3 @@
 <a href="https://globespro.it.com/mastering-app-organization-boost-productivity-with-smart-dig-29-6/">mastering app organization boost productivity with smart dig</a> 
 <a href="https://globespro.it.com/mastering-business-finance-and-productivity-a-comprehensive-29-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://globespro.it.com/mastering-business-personal-finance-and-marketing-a-comprehe-29-6/">mastering business personal finance and marketing a comprehe</a> 
-<a href="https://globespro.it.com/mastering-business-personal-finance-and-marketing-a-comprehe/">mastering business personal finance and marketing a comprehe</a> 
-<a href="https://globespro.it.com/mastering-career-changes-job-searches-and-legal-knowledge-es-29-6/">mastering career changes job searches and legal knowledge es</a> 
-<a href="https://globespro.it.com/mastering-communication-home-upgrades-and-digital-privacy-a-29-6/">mastering communication home upgrades and digital privacy a </a> 
-<a href="https://globespro.it.com/mastering-construction-guides-reviews-and-how-tos-for-the-pr-29-6/">mastering construction guides reviews and how tos for the pr</a> 
-<a href="https://globespro.it.com/mastering-crypto-guides-reviews-and-how-tos-for-bitcoin-and-29-6/">mastering crypto guides reviews and how tos for bitcoin and </a> 
-<a href="https://globespro.it.com/mastering-crypto-guides-reviews-and-how-tos-for-success-29-6/">mastering crypto guides reviews and how tos for success 29 6</a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-bitcoin-and-blockchain-comprehensiv-29-6/">mastering cryptocurrency bitcoin and blockchain comprehensiv</a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-bitcoin-and-blockchain-guides-revie-29-6-2/">mastering cryptocurrency bitcoin and blockchain guides revie</a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-bitcoin-and-blockchain-guides-revie-29-6/">mastering cryptocurrency bitcoin and blockchain guides revie</a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-bitcoin-blockchain-ultimate-guides-29-6/">mastering cryptocurrency bitcoin blockchain ultimate guides </a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-guides-reviews-and-how-tos-for-ever-29-6/">mastering cryptocurrency guides reviews and how tos for ever</a> 
-<a href="https://globespro.it.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-29-6/">mastering digital literacy guides reviews and how tos for th</a> 
-<a href="https://globespro.it.com/mastering-digital-organization-top-apps-for-a-clutter-free-o/">mastering digital organization top apps for a clutter free o</a> 
-<a href="https://globespro.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-29-4-2/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://globespro.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-29-4-3/">mastering digital tools online resources a comprehensive gui</a> 

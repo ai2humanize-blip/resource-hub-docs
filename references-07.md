@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://app.zentrack.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://app.zentrack.net/understanding-digital-literacy-2/">understanding digital literacy 2</a> 
 <a href="https://app.zentrack.net/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
 <a href="https://app.zentrack.net/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
 <a href="https://app.zentrack.net/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
@@ -799,6 +802,3 @@
 <a href="https://autolinkrush.mex.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
 <a href="https://autolinkrush.mex.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://autolinkrush.mex.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://autolinkrush.mex.com/what-to-know-about-understanding-how-search-engines-rank-pag-2/">what to know about understanding how search engines rank pag</a> 
-<a href="https://autolinkrush.mex.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://autolinkrush.mex.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 

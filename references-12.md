@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
+<a href="https://captainjackinterview.com/revolutionizing-business-finance-productivity-the-ai-powered-82-5/">revolutionizing business finance productivity the ai powered</a> 
+<a href="https://captainjackinterview.com/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
 <a href="https://captainjackinterview.com/serpinsightlinkinsertion-overview-and-latest-updates/">serpinsightlinkinsertion overview and latest updates</a> 
 <a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters-2/">simple habits of a smart internet reader and why it matters </a> 
 <a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-23/">mastering marketing seo growth a comprehensive guide 83 3 23</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-24/">mastering marketing seo growth a comprehensive guide 83 3 24</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-25/">mastering marketing seo growth a comprehensive guide 83 3 25</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-26/">mastering marketing seo growth a comprehensive guide 83 3 26</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-27/">mastering marketing seo growth a comprehensive guide 83 3 27</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-28/">mastering marketing seo growth a comprehensive guide 83 3 28</a> 
