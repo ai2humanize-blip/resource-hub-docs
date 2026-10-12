@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://app.zentrack.net/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://app.zentrack.net/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
 <a href="https://app.zentrack.net/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
 <a href="https://app.zentrack.net/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
 <a href="https://app.zentrack.net/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://autolinkrush.mex.com/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
 <a href="https://autolinkrush.mex.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://autolinkrush.mex.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://autolinkrush.mex.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://autolinkrush.mex.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://autolinkrush.mex.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 

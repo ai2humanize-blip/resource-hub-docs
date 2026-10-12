@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/urus-id-c499a686/">urus id c499a686</a> 
+<a href="https://boostelearning.mataroa.blog/blog/urus-id/">urus id</a> 
+<a href="https://boostelearning.mataroa.blog/blog/verificacion-de-hechos-3a7980db/">verificacion de hechos 3a7980db</a> 
 <a href="https://boostelearning.mataroa.blog/blog/verificacion-de-hechos-a0c6796f/">verificacion de hechos a0c6796f</a> 
 <a href="https://boostelearning.mataroa.blog/blog/verificacion-de-hechos-af890aff/">verificacion de hechos af890aff</a> 
 <a href="https://boostelearning.mataroa.blog/blog/verificacion-de-hechos-d3514c79/">verificacion de hechos d3514c79</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/serpinsightlinkinsertion-overview-and-latest-updates/">serpinsightlinkinsertion overview and latest updates</a> 
 <a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters-2/">simple habits of a smart internet reader and why it matters </a> 
 <a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
-<a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
-<a href="https://captainjackinterview.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 

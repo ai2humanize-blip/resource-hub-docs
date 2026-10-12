@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://captainjackinterview.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://captainjackinterview.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://captainjackinterview.com/staying-informed-and-competitive-in-web-tech-and-content-a-c-82-2/">staying informed and competitive in web tech and content a c</a> 
 <a href="https://captainjackinterview.com/staying-safe-and-informed-a-guide-to-online-casino-news-and-82-3/">staying safe and informed a guide to online casino news and </a> 
 <a href="https://captainjackinterview.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-29/">mastering marketing seo growth a comprehensive guide 83 3 29</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-3/">mastering marketing seo growth a comprehensive guide 83 3 3</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-30/">mastering marketing seo growth a comprehensive guide 83 3 30</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-31/">mastering marketing seo growth a comprehensive guide 83 3 31</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-32/">mastering marketing seo growth a comprehensive guide 83 3 32</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-83-3-33/">mastering marketing seo growth a comprehensive guide 83 3 33</a> 
