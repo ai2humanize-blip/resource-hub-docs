@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://bitslots.de.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://bitslots.de.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
 <a href="https://bitslots.de.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
 <a href="https://bitslots.de.com/tlt-ng-resource-3/">tlt ng resource 3</a> 
 <a href="https://bitslots.de.com/todaykeralalotteryresult-net-resource-3/">todaykeralalotteryresult net resource 3</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-5c3104b3/">what moves bitcoin price framework 5c3104b3</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-6f726110/">what moves bitcoin price framework 6f726110</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-90b7bccb/">what moves bitcoin price framework 90b7bccb</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-a5dd99ce/">what moves bitcoin price framework a5dd99ce</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework/">what moves bitcoin price framework</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-rsi-and-moving-averages-tell-1a955062/">what rsi and moving averages tell 1a955062</a> 
