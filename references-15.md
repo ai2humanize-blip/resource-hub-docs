@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cochesdeocasion.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cochesdeocasion.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://cochesdeocasion.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://cochesdeocasion.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://cochesdeocasion.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://cochesdeocasion.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/maximizing-your-day-business-finance-and-instagram-productiv-86-1/">maximizing your day business finance and instagram productiv</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-and-productivity-a-comprehensive-86-6/">navigating business finance and productivity a comprehensive</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-and-productivity-a-deep-dive-int-86-6/">navigating business finance and productivity a deep dive int</a> 
-<a href="https://crediblenews24.com/navigating-business-finance-and-productivity-in-the-age-of-c-86-6/">navigating business finance and productivity in the age of c</a> 
-<a href="https://crediblenews24.com/navigating-business-finance-and-productivity-in-the-digital-86-6/">navigating business finance and productivity in the digital </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-comprehensive-gui-86-6-2/">navigating business finance productivity a comprehensive gui</a> 

@@ -140,6 +140,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://urducentral.com/">urducentral.com</a> 
 <a href="https://newsgiga.co/">newsgiga.co</a> 
 <a href="https://housepainter.com.lk/">housepainter.com.lk</a> 
+<a href="https://tokentimes.in/">tokentimes.in</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -208,7 +209,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 64](references-64.md)
 - [Reference set 65](references-65.md)
 
-_51,906 curated references across 65 sets._
+_51,936 curated references across 65 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)

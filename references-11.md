@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-5c3104b3/">what moves bitcoin price framework 5c3104b3</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-6f726110/">what moves bitcoin price framework 6f726110</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-90b7bccb/">what moves bitcoin price framework 90b7bccb</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-a5dd99ce/">what moves bitcoin price framework a5dd99ce</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework/">what moves bitcoin price framework</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-rsi-and-moving-averages-tell-1a955062/">what rsi and moving averages tell 1a955062</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/the-future-of-ai-in-journalism-opportunities-and-challenges-2/">the future of ai in journalism opportunities and challenges </a> 
 <a href="https://captainjackinterview.com/the-future-of-ai-in-journalism-opportunities-and-challenges/">the future of ai in journalism opportunities and challenges</a> 
 <a href="https://captainjackinterview.com/the-future-of-news-emerging-trends-and-the-role-of-independe/">the future of news emerging trends and the role of independe</a> 
-<a href="https://captainjackinterview.com/the-future-of-sports-news-ai-analytics-and-real-time-reporti/">the future of sports news ai analytics and real time reporti</a> 
-<a href="https://captainjackinterview.com/the-future-of-sports-news-how-ai-data-analytics-and-fan-enga-82-4/">the future of sports news how ai data analytics and fan enga</a> 
-<a href="https://captainjackinterview.com/the-truth-about-circulating-aavot-apk-files-2/">the truth about circulating aavot apk files 2</a> 

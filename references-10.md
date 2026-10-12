@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/the-hindu-lunar-calendar-months-paksha-and-major-festivals/">the hindu lunar calendar months paksha and major festivals</a> 
+<a href="https://bitslots.de.com/the-truth-about-circulating-aavot-apk-files-2/">the truth about circulating aavot apk files 2</a> 
+<a href="https://bitslots.de.com/the-truth-about-circulating-aavot-apk-files/">the truth about circulating aavot apk files</a> 
 <a href="https://bitslots.de.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://bitslots.de.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
 <a href="https://bitslots.de.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/what-makes-an-explainer-article-genuinely-useful-and-why-it-matters/">what makes an explainer article genuinely useful and why it </a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-makes-an-explainer-article-genuinely-useful-explained-simply/">what makes an explainer article genuinely useful explained s</a> 
 <a href="https://boostelearning.mataroa.blog/blog/what-mobile-commerce-shift-means-for-your-store/">what mobile commerce shift means for your store</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-5c3104b3/">what moves bitcoin price framework 5c3104b3</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-6f726110/">what moves bitcoin price framework 6f726110</a> 
-<a href="https://boostelearning.mataroa.blog/blog/what-moves-bitcoin-price-framework-90b7bccb/">what moves bitcoin price framework 90b7bccb</a> 

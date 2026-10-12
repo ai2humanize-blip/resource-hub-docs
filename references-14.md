@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cbdstent.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cbdstent.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cbdstent.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cbdstent.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cbdstent.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cbdstent.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
@@ -799,6 +802,3 @@
 <a href="https://cochesdeocasion.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
 <a href="https://cochesdeocasion.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
 <a href="https://cochesdeocasion.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
-<a href="https://cochesdeocasion.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://cochesdeocasion.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://cochesdeocasion.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 

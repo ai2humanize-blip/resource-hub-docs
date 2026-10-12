@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://illicitlabel.com/how-to-be-a-smarter-news-reader-in-2026/">how to be a smarter news reader in 2026</a> 
+<a href="https://illicitlabel.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://illicitlabel.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://illicitlabel.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://illicitlabel.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://illicitlabel.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://illicitlabel.com/how-to-choose-a-baby-name-meaning-origin-and-sound-2/">how to choose a baby name meaning origin and sound 2</a> 
+<a href="https://illicitlabel.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://illicitlabel.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
+<a href="https://illicitlabel.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g-2/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
 <a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-3/">how to fact check something in five minutes and why it matte</a> 
@@ -784,21 +802,3 @@
 <a href="https://ipfs.filebase.io/ipfs/QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf">QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6">QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496">Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496</a> 
-<a href="https://ipfs.filebase.io/ipfs/Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW">Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcBf4ZBsovyRtUMq153bJT97aPmc1dN1cBPZeyGExJ3Bk">QmcBf4ZBsovyRtUMq153bJT97aPmc1dN1cBPZeyGExJ3Bk</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk">QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT">QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki">QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F">QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H">QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE">QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ">QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc">QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc</a> 
-<a href="https://ipfs.filebase.io/ipfs/Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY">Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB">QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7">QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7</a> 
-<a href="https://ipfs.filebase.io/ipfs/Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6">Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6</a> 
-<a href="https://ipfs.filebase.io/ipfs/Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH">Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH</a> 
-<a href="https://ipfs.filebase.io/ipfs/Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY">Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn">QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE">QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE</a> 
