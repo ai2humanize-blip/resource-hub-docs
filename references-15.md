@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cochesdeocasion.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
 <a href="https://cochesdeocasion.xyz/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
 <a href="https://cochesdeocasion.xyz/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
 <a href="https://cochesdeocasion.xyz/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-a-comprehensive-gui-86-6-3/">navigating business finance productivity a comprehensive gui</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-a-comprehensive-gui-86-6/">navigating business finance productivity a comprehensive gui</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-a-curated-guide-to-86-6-2/">navigating business finance productivity a curated guide to </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-curated-guide-to-86-6-3/">navigating business finance productivity a curated guide to </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-curated-guide-to-86-6/">navigating business finance productivity a curated guide to </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-guide-to-trustwor-86-6/">navigating business finance productivity a guide to trustwor</a> 
