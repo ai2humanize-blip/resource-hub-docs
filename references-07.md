@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://app.zentrack.net/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
+<a href="https://app.zentrack.net/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://app.zentrack.net/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://app.zentrack.net/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://app.zentrack.net/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://autolinkrush.mex.com/what-to-know-about-understanding-how-search-engines-rank-pag-2/">what to know about understanding how search engines rank pag</a> 
 <a href="https://autolinkrush.mex.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
 <a href="https://autolinkrush.mex.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://autolinkrush.mex.com/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
-<a href="https://autolinkrush.mex.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://autolinkrush.mex.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 

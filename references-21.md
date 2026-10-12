@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://earnmoneyplayinggames.xyz/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
+<a href="https://earnmoneyplayinggames.xyz/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
+<a href="https://earnmoneyplayinggames.xyz/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
+<a href="https://earnmoneyplayinggames.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://earnmoneyplayinggames.xyz/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
+<a href="https://earnmoneyplayinggames.xyz/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://earnmoneyplayinggames.xyz/what-to-know-about-understanding-how-search-engines-rank-pages/">what to know about understanding how search engines rank pag</a> 
 <a href="https://earnmoneyplayinggames.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://earnmoneyplayinggames.xyz/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
@@ -796,9 +802,3 @@
 <a href="https://emiamedical.com/mastering-business-finance-productivity-essential-skills-for-92-10/">mastering business finance productivity essential skills for</a> 
 <a href="https://emiamedical.com/mastering-business-finance-strategies-for-growth-and-stabili/">mastering business finance strategies for growth and stabili</a> 
 <a href="https://emiamedical.com/mastering-crypto-blockchain-guides-reviews-and-how-tos-for-s-92-3/">mastering crypto blockchain guides reviews and how tos for s</a> 
-<a href="https://emiamedical.com/mastering-digital-literacy-essential-tools-resources-for-the-92-1-2/">mastering digital literacy essential tools resources for the</a> 
-<a href="https://emiamedical.com/mastering-digital-literacy-essential-tools-resources-for-the-92-1/">mastering digital literacy essential tools resources for the</a> 
-<a href="https://emiamedical.com/mastering-digital-skills-guides-reviews-how-tos-for-online-l-92-3/">mastering digital skills guides reviews how tos for online l</a> 
-<a href="https://emiamedical.com/mastering-digital-tools-online-resources-a-comprehensive-gui-92-1-10/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://emiamedical.com/mastering-digital-tools-online-resources-a-comprehensive-gui-92-1-11/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://emiamedical.com/mastering-digital-tools-online-resources-a-comprehensive-gui-92-1-12/">mastering digital tools online resources a comprehensive gui</a> 

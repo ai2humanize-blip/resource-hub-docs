@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://getolive.org/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://getolive.org/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://getolive.org/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://getolive.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://getolive.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://getolive.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine-2/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://getolive.org/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
+<a href="https://getolive.org/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://getolive.org/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
 <a href="https://getolive.org/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://getolive.org/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
 <a href="https://getolive.org/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -513,6 +525,7 @@
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-daily-aqi-hijri-29-6/">comprehensive guides reviews and how tos for daily aqi hijri</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-everyday-needs-29-6/">comprehensive guides reviews and how tos for everyday needs </a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-everyday-tech-a-29-6/">comprehensive guides reviews and how tos for everyday tech a</a> 
+<a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-modern-enthusia-29-6/">comprehensive guides reviews and how tos for modern enthusia</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-optimizing-your-29-6/">comprehensive guides reviews and how tos for optimizing your</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-turf-pmu-and-ho-29-6/">comprehensive guides reviews and how tos for turf pmu and ho</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-from-language-trans-29-6/">comprehensive guides reviews and how tos from language trans</a> 
@@ -528,6 +541,7 @@
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-29-6-5/">comprehensive guides reviews and how tos your ultimate resou</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-29-6-6/">comprehensive guides reviews and how tos your ultimate resou</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-29-6/">comprehensive guides reviews and how tos your ultimate resou</a> 
+<a href="https://globespro.it.com/comprehensive-guides-reviews-how-tos-a-deep-dive-into-essent-29-6/">comprehensive guides reviews how tos a deep dive into essent</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-how-tos-a-deep-dive-into-storkw-29-6/">comprehensive guides reviews how tos a deep dive into storkw</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-how-tos-for-coretax-and-npwp-on-29-6/">comprehensive guides reviews how tos for coretax and npwp on</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-how-tos-for-currency-enthusiast-29-6-2/">comprehensive guides reviews how tos for currency enthusiast</a> 
@@ -788,17 +802,3 @@
 <a href="https://globespro.it.com/mastering-digital-organization-top-apps-for-a-clutter-free-o/">mastering digital organization top apps for a clutter free o</a> 
 <a href="https://globespro.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-29-4-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://globespro.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-29-4-3/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://globespro.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-29-4/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://globespro.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-29-6-2/">mastering guides reviews how tos a comprehensive roundup 29 </a> 
-<a href="https://globespro.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-29-6-3/">mastering guides reviews how tos a comprehensive roundup 29 </a> 
-<a href="https://globespro.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-29-6/">mastering guides reviews how tos a comprehensive roundup 29 </a> 
-<a href="https://globespro.it.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-on-29-6/">mastering guides reviews how tos a comprehensive roundup on </a> 
-<a href="https://globespro.it.com/mastering-guides-reviews-how-tos-your-2026-resource-roundup-29-6/">mastering guides reviews how tos your 2026 resource roundup </a> 
-<a href="https://globespro.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-29-6/">mastering guides reviews how tos your ultimate resource roun</a> 
-<a href="https://globespro.it.com/mastering-indian-legal-news-guides-reviews-and-how-tos-for-e-29-6/">mastering indian legal news guides reviews and how tos for e</a> 
-<a href="https://globespro.it.com/mastering-information-guides-reviews-and-how-tos-for-smarter-29-6/">mastering information guides reviews and how tos for smarter</a> 
-<a href="https://globespro.it.com/mastering-instagram-marketing-essential-image-sizes-design-t-29-7/">mastering instagram marketing essential image sizes design t</a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-29-7-2/">mastering marketing seo and growth a comprehensive guide 29 </a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-29-7-3/">mastering marketing seo and growth a comprehensive guide 29 </a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-29-7-4/">mastering marketing seo and growth a comprehensive guide 29 </a> 
-<a href="https://globespro.it.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-29-7-5/">mastering marketing seo and growth a comprehensive guide 29 </a> 

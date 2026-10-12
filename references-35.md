@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmR6yYAJY8BgFp8fgEbgn9cz6s8XtRR6XhkYMcdJrZCsDR">QmR6yYAJY8BgFp8fgEbgn9cz6s8XtRR6XhkYMcdJrZCsDR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRCWGVgoY2YPD631LQi59WQsCLTSQTZn2DYYu6pXvhdhX">QmRCWGVgoY2YPD631LQi59WQsCLTSQTZn2DYYu6pXvhdhX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRRVnEzKd6X7iGZAnRCEvUD9znyvcbmey9LbU6WhRsSJ3">QmRRVnEzKd6X7iGZAnRCEvUD9znyvcbmey9LbU6WhRsSJ3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRS59sEKDB3PAUoXY83riuwfpqZwKGeMMRvr7ttgDnytJ">QmRS59sEKDB3PAUoXY83riuwfpqZwKGeMMRvr7ttgDnytJ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRVejWUaeMDvzJzxprsFFjMWwkU2BEhPS3rPHz5wtzRzS">QmRVejWUaeMDvzJzxprsFFjMWwkU2BEhPS3rPHz5wtzRzS</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRWEA618P2aAnwY6h5RqEGpjS19PSzAJLDqjhPvqnHvAE">QmRWEA618P2aAnwY6h5RqEGpjS19PSzAJLDqjhPvqnHvAE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRYm8ubsn9RNr3XQpXqpbmQcJHQAdsLqkV6xbKmMnAcfP">QmRYm8ubsn9RNr3XQpXqpbmQcJHQAdsLqkV6xbKmMnAcfP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRavaF6wv3PURMCJ7AYXh67Jesah2N6iw1nCcM4gJSXGj">QmRavaF6wv3PURMCJ7AYXh67Jesah2N6iw1nCcM4gJSXGj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRbTAfyQN5axnnCWN3KBqA22Aqd4AGY2kbr7YxNSJD5Qg">QmRbTAfyQN5axnnCWN3KBqA22Aqd4AGY2kbr7YxNSJD5Qg</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRcKfQy2ZxAZitBSvXD3DViSeiE9XSscPCFNRTZro3FJn">QmRcKfQy2ZxAZitBSvXD3DViSeiE9XSscPCFNRTZro3FJn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRiTnwttz3tfxjfbx1NcHPmeTxKf5ioRcnQEnYznt16uA">QmRiTnwttz3tfxjfbx1NcHPmeTxKf5ioRcnQEnYznt16uA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRkjpyPoqicaa3C18UpAKdoLpbGjiFPF7VTniZSun2gmz">QmRkjpyPoqicaa3C18UpAKdoLpbGjiFPF7VTniZSun2gmz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRnaVrX7KFAzUpgH7ob8B3sqyEhcCehk4vkZrGmj9Dx7S">QmRnaVrX7KFAzUpgH7ob8B3sqyEhcCehk4vkZrGmj9Dx7S</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRvnygAjp6ZBDYa8oPp6Vhfnu4sbepZhr6U8V3wB3oApY">QmRvnygAjp6ZBDYa8oPp6Vhfnu4sbepZhr6U8V3wB3oApY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRyMABoYnhFgxkECFXT2eKTemfyxHypKnEezi1qprqePf">QmRyMABoYnhFgxkECFXT2eKTemfyxHypKnEezi1qprqePf</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS33rHiCNQbsDUsfhcHrk54eQCtVzHh2SWW4bjZsJxDmX">QmS33rHiCNQbsDUsfhcHrk54eQCtVzHh2SWW4bjZsJxDmX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS42wJKsqMr85MHvwGoJeYKksPmQd8ajHXNayoERZKJWR">QmS42wJKsqMr85MHvwGoJeYKksPmQd8ajHXNayoERZKJWR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS6MRCZEZmqmVaxQ832ywKMhJhWZntHkBv1tZQmB7N8t1">QmS6MRCZEZmqmVaxQ832ywKMhJhWZntHkBv1tZQmB7N8t1</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmSBSKQEmT89VBXpxj2eHChF9c9hLHh79PYJqVeWBPaVCF">QmSBSKQEmT89VBXpxj2eHChF9c9hLHh79PYJqVeWBPaVCF</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmSCxtJ3xB6NC332YgtDY1wVRhiUtsZGfy5kL3eQJWfa1c">QmSCxtJ3xB6NC332YgtDY1wVRhiUtsZGfy5kL3eQJWfa1c</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmSZcGqrWKrQr69kT3vFcVGLKRUfjNy7jgdy7GskuYY1M6">QmSZcGqrWKrQr69kT3vFcVGLKRUfjNy7jgdy7GskuYY1M6</a> 
@@ -784,21 +802,3 @@
 <a href="https://jollibeecasino.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://jollibeecasino.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://jollibeecasino.xyz/finding-the-right-outlet-for-your-announcement/">finding the right outlet for your announcement</a> 
-<a href="https://jollibeecasino.xyz/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://jollibeecasino.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://jollibeecasino.xyz/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://jollibeecasino.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://jollibeecasino.xyz/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://jollibeecasino.xyz/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
-<a href="https://jollibeecasino.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://jollibeecasino.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://jollibeecasino.xyz/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
-<a href="https://jollibeecasino.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://jollibeecasino.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://jollibeecasino.xyz/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://jollibeecasino.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://jollibeecasino.xyz/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
-<a href="https://jollibeecasino.xyz/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://jollibeecasino.xyz/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://jollibeecasino.xyz/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
-<a href="https://jollibeecasino.xyz/idiominsider-net-resource-3/">idiominsider net resource 3</a> 

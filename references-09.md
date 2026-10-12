@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-81-1/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
+<a href="https://bandemusic.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-81-1/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://bandemusic.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://bandemusic.com/digital-tools-online-resources-50-resources-worth-bookmarkin-81-7-2/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://bandemusic.com/digital-tools-online-resources-50-resources-worth-bookmarkin-81-7-3/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://bandemusic.com/digital-tools-online-resources-50-resources-worth-bookmarkin-81-7/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
 <a href="https://bitslots.de.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://bitslots.de.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
-<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
-<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
