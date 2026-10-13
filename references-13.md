@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-a-83-4/">mastering business finance productivity in the digital age a</a> 
+<a href="https://cbd-stone.com/mastering-business-finance-productivity-with-ai-art-prompt-g-83-4/">mastering business finance productivity with ai art prompt g</a> 
+<a href="https://cbd-stone.com/mastering-crypto-essential-terms-news-interpretation-and-wal-83-8/">mastering crypto essential terms news interpretation and wal</a> 
 <a href="https://cbd-stone.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-83-7/">mastering digital literacy guides reviews and how tos for th</a> 
 <a href="https://cbd-stone.com/mastering-digital-skills-top-online-resources-professional-c-83-5/">mastering digital skills top online resources professional c</a> 
 <a href="https://cbd-stone.com/mastering-digital-tools-online-resources-a-comprehensive-gui-83-5-2/">mastering digital tools online resources a comprehensive gui</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://cbdpuffbars.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://cbdpuffbars.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://cbdpuffbars.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
-<a href="https://cbdpuffbars.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
-<a href="https://cbdpuffbars.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 

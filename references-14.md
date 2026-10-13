@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cbdpuffbars.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
+<a href="https://cbdpuffbars.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
+<a href="https://cbdpuffbars.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://cbdpuffbars.com/understanding-how-search-engines-rank-pages-and-why-it-matters/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://cbdpuffbars.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://cbdpuffbars.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://cnlawblog.jpn.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
 <a href="https://cnlawblog.jpn.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://cnlawblog.jpn.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://cnlawblog.jpn.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://cnlawblog.jpn.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://cnlawblog.jpn.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 

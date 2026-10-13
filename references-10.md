@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://bitslots.de.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
 <a href="https://bitslots.de.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-perspective-for-2023/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-perspective/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-practical-guide/">understanding how search engines rank pages a practical guid</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://emiamedical.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-quick-guide-2/">how to avoid misinformation and hype a quick guide 2</a> 
+<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://emiamedical.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://emiamedical.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
 <a href="https://emiamedical.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
 <a href="https://emiamedical.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
@@ -796,9 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8b123bc/navigating-the-digital-world-top-apps-for-boosting-productiv.html">navigating the digital world top apps for boosting productiv</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8b20b82/this-is-vegas-casino-review-bonuses-games-user.html">this is vegas casino review bonuses games user</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8b4257e/signaux-alerte-site-hippique-douteux.html">signaux alerte site hippique douteux</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8b43693/cloudstacklinks.html">cloudstacklinks</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8b73953/best-time-to-visit-japan.html">best time to visit japan</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8bd1306/netflix-crime-drama-all-sinners-bleed-starring-sope.html">netflix crime drama all sinners bleed starring sope</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8c1dab2/do-not-sell-my-info.html">do not sell my info</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8c73a7b/state-of-crypto-cards-2026.html">state of crypto cards 2026</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8d50856/snake-how-to-plan-your-coils.html">snake how to plan your coils</a> 

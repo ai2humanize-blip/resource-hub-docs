@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://earnmoneyplayinggames.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-digital-pr-and-sponsored-content-actually-work/">how digital pr and sponsored content actually work</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
@@ -796,9 +802,3 @@
 <a href="https://emiamedical.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
 <a href="https://emiamedical.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
 <a href="https://emiamedical.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
-<a href="https://emiamedical.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-quick-guide-2/">how to avoid misinformation and hype a quick guide 2</a> 
-<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
-<a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://emiamedical.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 

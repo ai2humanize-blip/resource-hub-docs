@@ -490,6 +490,7 @@
 <a href="https://app.zentrack.net/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
 <a href="https://app.zentrack.net/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://app.zentrack.net/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://app.zentrack.net/how-washington-policy-shifts-are-transforming-crypto-and-bus-25-2/">how washington policy shifts are transforming crypto and bus</a> 
 <a href="https://app.zentrack.net/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
 <a href="https://app.zentrack.net/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 
 <a href="https://app.zentrack.net/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
@@ -673,6 +674,8 @@
 <a href="https://app.zentrack.net/navigating-business-finance-and-productivity-in-the-age-of-m-25-2/">navigating business finance and productivity in the age of m</a> 
 <a href="https://app.zentrack.net/navigating-business-finance-and-productivity-in-the-crypto-a-25-2/">navigating business finance and productivity in the crypto a</a> 
 <a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-gui-25-2/">navigating business finance productivity a comprehensive gui</a> 
+<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-rou-25-2-2/">navigating business finance productivity a comprehensive rou</a> 
+<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-rou-25-2/">navigating business finance productivity a comprehensive rou</a> 
 <a href="https://app.zentrack.net/navigating-business-finance-productivity-a-guide-to-effectiv-25-2/">navigating business finance productivity a guide to effectiv</a> 
 <a href="https://app.zentrack.net/navigating-business-finance-productivity-essential-tools-and-25-2/">navigating business finance productivity essential tools and</a> 
 <a href="https://app.zentrack.net/navigating-business-finance-productivity-for-virginia-childh-25-2/">navigating business finance productivity for virginia childh</a> 
@@ -799,6 +802,3 @@
 <a href="https://app.zentrack.net/understanding-crypto-media-a-beginner-s-guide-to-staying-inf-25-2/">understanding crypto media a beginner s guide to staying inf</a> 
 <a href="https://app.zentrack.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://app.zentrack.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://app.zentrack.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://app.zentrack.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://app.zentrack.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

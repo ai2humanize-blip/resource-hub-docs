@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://autolinkrush.mex.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
+<a href="https://autolinkrush.mex.com/understanding-digital-literacy-explained-simply-2/">understanding digital literacy explained simply 2</a> 
 <a href="https://autolinkrush.mex.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://autolinkrush.mex.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://autolinkrush.mex.com/understanding-digital-literacy/">understanding digital literacy</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
 <a href="https://bandemusic.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://bandemusic.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://bandemusic.com/boost-your-business-finance-and-productivity-essential-resou-81-1/">boost your business finance and productivity essential resou</a> 
-<a href="https://bandemusic.com/boosting-business-mastering-finance-and-amplifying-productiv-81-1/">boosting business mastering finance and amplifying productiv</a> 
-<a href="https://bandemusic.com/breaking-down-the-impact-of-recent-economic-policy-changes-o/">breaking down the impact of recent economic policy changes o</a> 
