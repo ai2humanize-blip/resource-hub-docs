@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-reliable-tech-conten-82-2/">navigating the web a practical guide to reliable tech conten</a> 
+<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-useful-online-resour-82-2-2/">navigating the web a practical guide to useful online resour</a> 
+<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-useful-online-resour-82-2-3/">navigating the web a practical guide to useful online resour</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-useful-online-resour-82-2/">navigating the web a practical guide to useful online resour</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-valuable-online-reso-82-2/">navigating the web a practical guide to valuable online reso</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-tech-content-and-staying-safe-online-82-2/">navigating the web tech content and staying safe online 82 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-roun-83-4/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-deep-dive-into-ind-83-4/">mastering business finance productivity a deep dive into ind</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-essential-online-str-83-4/">mastering business finance productivity essential online str</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-essential-web-skills-83-9/">mastering business finance productivity essential web skills</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-83-4-2/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-83-4-3/">mastering business finance productivity in the digital age 8</a> 

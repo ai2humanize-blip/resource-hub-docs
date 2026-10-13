@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://autolinkrush.mex.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
+<a href="https://autolinkrush.mex.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
 <a href="https://autolinkrush.mex.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
 <a href="https://autolinkrush.mex.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://autolinkrush.mex.com/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
 <a href="https://bandemusic.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://bandemusic.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://bandemusic.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://bandemusic.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://bandemusic.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://earnmoneyplayinggames.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://earnmoneyplayinggames.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://earnmoneyplayinggames.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://earnmoneyplayinggames.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://earnmoneyplayinggames.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://earnmoneyplayinggames.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
 <a href="https://earnmoneyplayinggames.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://earnmoneyplayinggames.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://earnmoneyplayinggames.xyz/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
@@ -796,9 +802,3 @@
 <a href="https://emiamedical.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
 <a href="https://emiamedical.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
 <a href="https://emiamedical.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://emiamedical.com/getting-the-difference-between-skimming-and-deep-reading-onl-2/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://emiamedical.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://emiamedical.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-2/">guides reviews how tos 50 resources worth bookmarking 92 8 2</a> 
-<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-3/">guides reviews how tos 50 resources worth bookmarking 92 8 3</a> 
-<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8/">guides reviews how tos 50 resources worth bookmarking 92 8</a> 
