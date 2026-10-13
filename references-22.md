@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://emiamedical.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://emiamedical.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://emiamedical.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://emiamedical.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://emiamedical.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://emiamedical.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://emiamedical.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://emiamedical.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide-2/">how to find balanced coverage of a topic a practical guide 2</a> 
 <a href="https://emiamedical.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
@@ -796,9 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8c1dab2/do-not-sell-my-info.html">do not sell my info</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8c73a7b/state-of-crypto-cards-2026.html">state of crypto cards 2026</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8d50856/snake-how-to-plan-your-coils.html">snake how to plan your coils</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8df16f1/pqrnews.html">pqrnews</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8e020c5/hbar-price-consolidates-below-155-as-momentum-remains.html">hbar price consolidates below 155 as momentum remains</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8e1a024/litigationlawyer.html">litigationlawyer</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8e41fef/camo-crypt.html">camo crypt</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8ed0d4d/abcyapi.html">abcyapi</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@8ed7397/currencynews.html">currencynews</a> 

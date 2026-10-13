@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cnlawblog.jpn.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://cnlawblog.jpn.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://cnlawblog.jpn.com/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
 <a href="https://cnlawblog.jpn.com/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
 <a href="https://cnlawblog.jpn.com/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
 <a href="https://cnlawblog.jpn.com/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-skills-for-86-6/">mastering business finance productivity essential skills for</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-tips-and-i-86-6/">mastering business finance productivity essential tips and i</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-essential-web-skills-86-6/">mastering business finance productivity essential web skills</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-2/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-3/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-in-the-digital-age-86-6-4/">mastering business finance productivity in the digital age 8</a> 

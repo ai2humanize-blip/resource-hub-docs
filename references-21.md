@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://earnmoneyplayinggames.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list-2/">how to build a personal reading list 2</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
@@ -796,9 +802,3 @@
 <a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
 <a href="https://emiamedical.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://emiamedical.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
-<a href="https://emiamedical.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://emiamedical.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
-<a href="https://emiamedical.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
-<a href="https://emiamedical.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://emiamedical.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://emiamedical.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 

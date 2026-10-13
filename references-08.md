@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://autolinkrush.mex.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://autolinkrush.mex.com/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://autolinkrush.mex.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
 <a href="https://autolinkrush.mex.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
 <a href="https://autolinkrush.mex.com/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/boost-your-business-finance-and-productivity-essential-resou-81-1/">boost your business finance and productivity essential resou</a> 
 <a href="https://bandemusic.com/boosting-business-mastering-finance-and-amplifying-productiv-81-1/">boosting business mastering finance and amplifying productiv</a> 
 <a href="https://bandemusic.com/breaking-down-the-impact-of-recent-economic-policy-changes-o/">breaking down the impact of recent economic policy changes o</a> 
-<a href="https://bandemusic.com/breaking-down-the-latest-developments-in-ai-and-machine-lear/">breaking down the latest developments in ai and machine lear</a> 
-<a href="https://bandemusic.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-o/">breaking down the latest news in depth analysis and expert o</a> 
-<a href="https://bandemusic.com/breaking-down-the-latest-trends-in-news-consumption-a-compre/">breaking down the latest trends in news consumption a compre</a> 

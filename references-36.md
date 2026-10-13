@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://jiurui9.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://jiurui9.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://jiurui9.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://jiurui9.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://jiurui9.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://jiurui9.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
+<a href="https://jiurui9.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://jiurui9.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://jiurui9.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://jiurui9.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://jiurui9.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://jiurui9.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
 <a href="https://jiurui9.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
@@ -784,21 +802,3 @@
 <a href="https://landscape-paintings.net/transformative-tech-ai-apps-cryptocurrency-and-blockchain-gu-105-5/">transformative tech ai apps cryptocurrency and blockchain gu</a> 
 <a href="https://landscape-paintings.net/transforming-daily-life-how-ai-powered-apps-and-data-analyti-105-6/">transforming daily life how ai powered apps and data analyti</a> 
 <a href="https://landscape-paintings.net/transforming-daily-life-mastering-digital-tools-ai-driven-ap-105-8/">transforming daily life mastering digital tools ai driven ap</a> 
-<a href="https://landscape-paintings.net/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
-<a href="https://landscape-paintings.net/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://landscape-paintings.net/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
-<a href="https://landscape-paintings.net/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://landscape-paintings.net/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-105-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://landscape-paintings.net/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

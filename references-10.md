@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://bitslots.de.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
+<a href="https://bitslots.de.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://bitslots.de.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://bitslots.de.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
 <a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters-2/">how to get the most out of online guides and why it matters </a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-perspective/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-practical-guide/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-quick-guide-e27ed6a7/">understanding how search engines rank pages a quick guide e2</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-and-why-it-matters/">understanding how search engines rank pages and why it matte</a> 
