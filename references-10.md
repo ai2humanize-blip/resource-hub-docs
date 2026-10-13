@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://bitslots.de.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://bitslots.de.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
@@ -797,8 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-f32abbdb/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-3ebc0384/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-5cb3e795/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-a12bacf0/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners-cbcede8a/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-for-beginners/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-perspective-for-2023/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 

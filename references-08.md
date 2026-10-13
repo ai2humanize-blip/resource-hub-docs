@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://autolinkrush.mex.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://autolinkrush.mex.com/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
 <a href="https://autolinkrush.mex.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
 <a href="https://autolinkrush.mex.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
 <a href="https://autolinkrush.mex.com/understanding-digital-literacy-explained-simply-2/">understanding digital literacy explained simply 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://bandemusic.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://bandemusic.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://bandemusic.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
-<a href="https://bandemusic.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
-<a href="https://bandemusic.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 

@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://earnmoneyplayinggames.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://earnmoneyplayinggames.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://earnmoneyplayinggames.xyz/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
+<a href="https://earnmoneyplayinggames.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://earnmoneyplayinggames.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://earnmoneyplayinggames.xyz/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://earnmoneyplayinggames.xyz/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://earnmoneyplayinggames.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
@@ -794,11 +802,3 @@
 <a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-2/">guides reviews how tos 50 resources worth bookmarking 92 8 2</a> 
 <a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-3/">guides reviews how tos 50 resources worth bookmarking 92 8 3</a> 
 <a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8/">guides reviews how tos 50 resources worth bookmarking 92 8</a> 
-<a href="https://emiamedical.com/guides-reviews-how-tos-navigating-the-information-age-92-3/">guides reviews how tos navigating the information age 92 3</a> 
-<a href="https://emiamedical.com/how-ai-and-machine-learning-are-revolutionizing-everyday-app/">how ai and machine learning are revolutionizing everyday app</a> 
-<a href="https://emiamedical.com/how-ai-and-machine-learning-are-transforming-daily-life-and/">how ai and machine learning are transforming daily life and</a> 
-<a href="https://emiamedical.com/how-ai-driven-news-platforms-are-revolutionizing-current-eve/">how ai driven news platforms are revolutionizing current eve</a> 
-<a href="https://emiamedical.com/how-ai-is-transforming-news-consumption-current-trends-and-f/">how ai is transforming news consumption current trends and f</a> 
-<a href="https://emiamedical.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
-<a href="https://emiamedical.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://emiamedical.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 

@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://dellywoodfilms.com/transforming-your-daily-routine-the-impact-of-innovative-app/">transforming your daily routine the impact of innovative app</a> 
+<a href="https://dellywoodfilms.com/transforming-your-digital-life-top-ai-powered-apps-and-tools-89-9/">transforming your digital life top ai powered apps and tools</a> 
+<a href="https://dellywoodfilms.com/transforming-your-digital-life-top-apps-for-productivity-lea-89-9/">transforming your digital life top apps for productivity lea</a> 
+<a href="https://dellywoodfilms.com/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
+<a href="https://dellywoodfilms.com/ultimate-guides-reviews-how-tos-transform-your-life-with-pra-89-1/">ultimate guides reviews how tos transform your life with pra</a> 
+<a href="https://dellywoodfilms.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://dellywoodfilms.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
+<a href="https://dellywoodfilms.com/understanding-crypto-media-a-beginner-s-guide-to-staying-inf-89-8/">understanding crypto media a beginner s guide to staying inf</a> 
 <a href="https://dellywoodfilms.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-4/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://dellywoodfilms.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-5/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://dellywoodfilms.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
@@ -794,11 +802,3 @@
 <a href="https://earnmoneyplayinggames.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://earnmoneyplayinggames.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://earnmoneyplayinggames.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
-<a href="https://earnmoneyplayinggames.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://earnmoneyplayinggames.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
-<a href="https://earnmoneyplayinggames.xyz/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
-<a href="https://earnmoneyplayinggames.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://earnmoneyplayinggames.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://earnmoneyplayinggames.xyz/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://earnmoneyplayinggames.xyz/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://earnmoneyplayinggames.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
