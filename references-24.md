@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://esm.sh/ls-how-to-build-real-digital-skills-with-online-courses-mtiyy1hg@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-buy-your-first-crypto-safely-muz57dr8@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-choose-the-perfect-watch-a-comprehensive-buying-guide-msrhv1ga@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-compare-sources-on-the-same-story-a-quick-guide-mtmnebdu@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-and-why-i-mtmn2o3b@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-explained-mtmn0qxz@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-mtmo3thh@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-fact-check-something-in-five-minutes-a-quick-guide-mtmmj7uh@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-fact-check-something-in-five-minutes-mtmn3kng@1.0.0/index.html">index</a> 
@@ -796,9 +802,3 @@
 <a href="https://ezoterizm.com/navigating-the-future-understanding-cryptocurrency-bitcoin-a-2/">navigating the future understanding cryptocurrency bitcoin a</a> 
 <a href="https://ezoterizm.com/navigating-the-future-understanding-cryptocurrency-bitcoin-a/">navigating the future understanding cryptocurrency bitcoin a</a> 
 <a href="https://ezoterizm.com/navigating-the-intersection-of-fashion-style-and-modern-life-93-4/">navigating the intersection of fashion style and modern life</a> 
-<a href="https://ezoterizm.com/navigating-the-latest-news-in-depth-analysis-and-expert-insi/">navigating the latest news in depth analysis and expert insi</a> 
-<a href="https://ezoterizm.com/navigating-the-modern-news-landscape-business-finance-and-pr-93-4/">navigating the modern news landscape business finance and pr</a> 
-<a href="https://ezoterizm.com/navigating-the-modern-news-landscape-business-finance-produc-93-4/">navigating the modern news landscape business finance produc</a> 
-<a href="https://ezoterizm.com/navigating-the-new-era-of-news-current-trends-analysis-and-r/">navigating the new era of news current trends analysis and r</a> 
-<a href="https://ezoterizm.com/navigating-the-news-landscape-in-2023-guides-reviews-and-how-93-2/">navigating the news landscape in 2023 guides reviews and how</a> 
-<a href="https://ezoterizm.com/navigating-the-shifting-landscape-of-news-consumption-a-comp-93-3/">navigating the shifting landscape of news consumption a comp</a> 

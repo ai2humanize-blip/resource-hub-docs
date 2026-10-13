@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
+<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://bitslots.de.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://bitslots.de.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://bitslots.de.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
 <a href="https://bitslots.de.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/tsam/">tsam</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-bitcoin-and-ethereum-price-trends-a-practical-guide/">understanding bitcoin and ethereum price trends a practical </a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-credit-scores-how-they-impact-your-loan/">understanding credit scores how they impact your loan</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginners-guide-to-the-future-of-finance/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-061cea18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-43a213b8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://dynamic-faloodeh-db9654.netlify.app/how-satta-charts-work.html">how satta charts work</a> 
+<a href="https://dynamic-froyo-08fd41.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn.html">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://earnest-concha-dbc02a.netlify.app/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic.html">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://earnest-gelato-8933ef.netlify.app/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://earnmoneyplayinggames.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://earnmoneyplayinggames.xyz/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
 <a href="https://earnmoneyplayinggames.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -796,9 +802,3 @@
 <a href="https://emiamedical.com/exploring-the-dynamic-world-of-web-tech-and-content-a-compre-92-2/">exploring the dynamic world of web tech and content a compre</a> 
 <a href="https://emiamedical.com/exploring-the-future-digital-tools-online-resources-for-cryp-92-1/">exploring the future digital tools online resources for cryp</a> 
 <a href="https://emiamedical.com/exploring-the-interconnected-world-of-web-tech-content-92-2/">exploring the interconnected world of web tech content 92 2</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-fashion-style-and-modern-lifes-92-3/">exploring the intersection of fashion style and modern lifes</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-92-2/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-2023-92-2/">exploring the intersection of web tech and content in 2023 9</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-indian-92-2/">exploring the intersection of web tech and content in indian</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-the-bl-92-2/">exploring the intersection of web tech and content in the bl</a> 
-<a href="https://emiamedical.com/exploring-the-web-tech-and-content-a-deep-dive-into-cryptocu-92-2/">exploring the web tech and content a deep dive into cryptocu</a> 
