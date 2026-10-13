@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://dellywoodfilms.com/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
+<a href="https://dellywoodfilms.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://dellywoodfilms.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://dellywoodfilms.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://dellywoodfilms.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
+<a href="https://dellywoodfilms.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
 <a href="https://dellywoodfilms.com/tlt-ng-resource-3/">tlt ng resource 3</a> 
 <a href="https://dellywoodfilms.com/todaykeralalotteryresult-net-resource-3/">todaykeralalotteryresult net resource 3</a> 
 <a href="https://dellywoodfilms.com/transform-your-life-business-finance-and-productivity-strate-89-3/">transform your life business finance and productivity strate</a> 
@@ -796,9 +802,3 @@
 <a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-reading-cryptocurrency-price-informatio/">a practical guide to reading cryptocurrency price informatio</a> 
 <a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-reading-football-league-tables-and-stan/">a practical guide to reading football league tables and stan</a> 
-<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://earnmoneyplayinggames.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
-<a href="https://earnmoneyplayinggames.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://earnmoneyplayinggames.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://earnmoneyplayinggames.xyz/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
-<a href="https://earnmoneyplayinggames.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 

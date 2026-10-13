@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://heatherburrisphotography.com/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
+<a href="https://heatherburrisphotography.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://heatherburrisphotography.com/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://heatherburrisphotography.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://heatherburrisphotography.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://heatherburrisphotography.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-organize-the-information-you-find-online/">what to know about how to organize the information you find </a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-what-to-look-for-in-a-good-news-website-2/">what to know about what to look for in a good news website 2</a> 
+<a href="https://heatherburrisphotography.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://heatherburrisphotography.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://heatherburrisphotography.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://heatherburrisphotography.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
@@ -784,21 +802,3 @@
 <a href="https://homaryreviews.com/navigating-the-shifting-landscape-of-2023-news-in-depth-anal/">navigating the shifting landscape of 2023 news in depth anal</a> 
 <a href="https://homaryreviews.com/navigating-the-shifting-landscape-of-2023-news-trends-challe/">navigating the shifting landscape of 2023 news trends challe</a> 
 <a href="https://homaryreviews.com/navigating-the-shifting-landscape-of-news-consumption-in-202-101-9/">navigating the shifting landscape of news consumption in 202</a> 
-<a href="https://homaryreviews.com/navigating-today-s-complex-news-landscape-a-guide-to-reliabl/">navigating today s complex news landscape a guide to reliabl</a> 
-<a href="https://homaryreviews.com/navigating-today-s-news-guides-reviews-and-how-tos-for-infor-101-4/">navigating today s news guides reviews and how tos for infor</a> 
-<a href="https://homaryreviews.com/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://homaryreviews.com/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://homaryreviews.com/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://homaryreviews.com/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste/">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
-<a href="https://homaryreviews.com/pronostics-turf-gratuits-ce-qu-ils-valent-vraiment/">pronostics turf gratuits ce qu ils valent vraiment</a> 
-<a href="https://homaryreviews.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
-<a href="https://homaryreviews.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
-<a href="https://homaryreviews.com/protecting-your-privacy-the-rise-of-anonymous-messaging-apps/">protecting your privacy the rise of anonymous messaging apps</a> 
-<a href="https://homaryreviews.com/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://homaryreviews.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://homaryreviews.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://homaryreviews.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
-<a href="https://homaryreviews.com/renew-your-smart-id-card/">renew your smart id card</a> 
-<a href="https://homaryreviews.com/revolutionizing-creativity-how-ai-powered-apps-are-transform/">revolutionizing creativity how ai powered apps are transform</a> 
-<a href="https://homaryreviews.com/revolutionizing-creativity-how-ai-powered-tools-transform-ma-101-10/">revolutionizing creativity how ai powered tools transform ma</a> 
-<a href="https://homaryreviews.com/revolutionizing-daily-life-ai-crypto-and-digital-tools-trans-101-2/">revolutionizing daily life ai crypto and digital tools trans</a> 

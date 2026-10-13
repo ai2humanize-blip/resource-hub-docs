@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
+<a href="https://earnmoneyplayinggames.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
 <a href="https://earnmoneyplayinggames.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
 <a href="https://earnmoneyplayinggames.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://earnmoneyplayinggames.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -796,9 +802,3 @@
 <a href="https://emiamedical.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://emiamedical.com/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
 <a href="https://emiamedical.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://emiamedical.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
-<a href="https://emiamedical.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://emiamedical.com/getting-how-to-organize-the-information-you-find-online-righ-2/">getting how to organize the information you find online righ</a> 
-<a href="https://emiamedical.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://emiamedical.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
-<a href="https://emiamedical.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 

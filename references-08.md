@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/the-kerala-lottery-weekly-chart/">the kerala lottery weekly chart</a> 
+<a href="https://autolinkrush.mex.com/the-value-of-slow-careful-reading-a-quick-guide-2/">the value of slow careful reading a quick guide 2</a> 
+<a href="https://autolinkrush.mex.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://autolinkrush.mex.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
 <a href="https://autolinkrush.mex.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
 <a href="https://autolinkrush.mex.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://bandemusic.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
-<a href="https://bandemusic.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
-<a href="https://bandemusic.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
+<a href="https://bandemusic.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://bandemusic.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://bandemusic.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://bandemusic.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://bandemusic.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://bitslots.de.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
 <a href="https://bitslots.de.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://bitslots.de.com/how-baby-name-popularity-shifts-over-time-2/">how baby name popularity shifts over time 2</a> 
-<a href="https://bitslots.de.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
-<a href="https://bitslots.de.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
