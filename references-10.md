@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
+<a href="https://bitslots.de.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://bitslots.de.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
 <a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
 <a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
 <a href="https://bitslots.de.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/tsam-db5cd661/">tsam db5cd661</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tsam-dd3bf238/">tsam dd3bf238</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tsam-f0daa6ef/">tsam f0daa6ef</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam/">tsam</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-bitcoin-and-ethereum-price-trends-a-practical-guide/">understanding bitcoin and ethereum price trends a practical </a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-credit-scores-how-they-impact-your-loan/">understanding credit scores how they impact your loan</a> 

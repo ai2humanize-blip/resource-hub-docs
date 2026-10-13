@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/navigating-the-latest-news-and-ai-trends-in-depth-analysis-a-82-6/">navigating the latest news and ai trends in depth analysis a</a> 
+<a href="https://captainjackinterview.com/navigating-the-web-a-comprehensive-guide-to-tech-content-and-82-2/">navigating the web a comprehensive guide to tech content and</a> 
+<a href="https://captainjackinterview.com/navigating-the-web-a-comprehensive-guide-to-web-tech-content-82-2/">navigating the web a comprehensive guide to web tech content</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-essential-online-resou-82-2-2/">navigating the web a curated guide to essential online resou</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-essential-online-resou-82-2/">navigating the web a curated guide to essential online resou</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-essential-tech-content-82-2-2/">navigating the web a curated guide to essential tech content</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-3/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-5/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-6/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-7/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-8/">mastering business finance productivity a comprehensive guid</a> 

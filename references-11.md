@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/tsam/">tsam</a> 
+<a href="https://boostelearning.mataroa.blog/blog/understanding-bitcoin-and-ethereum-price-trends-a-practical-guide/">understanding bitcoin and ethereum price trends a practical </a> 
+<a href="https://boostelearning.mataroa.blog/blog/understanding-credit-scores-how-they-impact-your-loan/">understanding credit scores how they impact your loan</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginners-guide-to-the-future-of-finance/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-061cea18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-43a213b8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/navigating-the-intersection-of-web-tech-and-content-creation-82-2/">navigating the intersection of web tech and content creation</a> 
 <a href="https://captainjackinterview.com/navigating-the-intersection-of-web-tech-and-content-in-2023-82-2/">navigating the intersection of web tech and content in 2023 </a> 
 <a href="https://captainjackinterview.com/navigating-the-intersection-of-web-tech-content-a-comprehens-82-2/">navigating the intersection of web tech content a comprehens</a> 
-<a href="https://captainjackinterview.com/navigating-the-latest-news-and-ai-trends-in-depth-analysis-a-82-6/">navigating the latest news and ai trends in depth analysis a</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-comprehensive-guide-to-tech-content-and-82-2/">navigating the web a comprehensive guide to tech content and</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-comprehensive-guide-to-web-tech-content-82-2/">navigating the web a comprehensive guide to web tech content</a> 
