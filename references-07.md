@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
+<a href="https://app.zentrack.net/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
+<a href="https://app.zentrack.net/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
 <a href="https://app.zentrack.net/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
 <a href="https://app.zentrack.net/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
 <a href="https://app.zentrack.net/understanding-blueflamepublishingblog-a-practical-guide/">understanding blueflamepublishingblog a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://autolinkrush.mex.com/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
 <a href="https://autolinkrush.mex.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
 <a href="https://autolinkrush.mex.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://autolinkrush.mex.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://autolinkrush.mex.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://autolinkrush.mex.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 

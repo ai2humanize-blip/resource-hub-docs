@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cyberkannadig.it.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://cyberkannadig.it.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://cyberkannadig.it.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://cyberkannadig.it.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely-3/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://cyberkannadig.it.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
@@ -796,9 +802,3 @@
 <a href="https://cymbaltareviews.com/mastering-business-finance-productivity-in-the-digital-age-88-9-7/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://cymbaltareviews.com/mastering-business-finance-productivity-in-the-digital-age-88-9/">mastering business finance productivity in the digital age 8</a> 
 <a href="https://cymbaltareviews.com/mastering-business-finance-productivity-with-ai-art-prompt-g-88-9/">mastering business finance productivity with ai art prompt g</a> 
-<a href="https://cymbaltareviews.com/mastering-crypto-essential-terms-news-and-wallet-safety-for-88-4/">mastering crypto essential terms news and wallet safety for </a> 
-<a href="https://cymbaltareviews.com/mastering-crypto-guides-reviews-and-how-tos-for-bitcoin-and-88-2/">mastering crypto guides reviews and how tos for bitcoin and </a> 
-<a href="https://cymbaltareviews.com/mastering-cryptocurrency-bitcoin-blockchain-ultimate-guides-88-2/">mastering cryptocurrency bitcoin blockchain ultimate guides </a> 
-<a href="https://cymbaltareviews.com/mastering-daily-prayers-instagram-design-and-indonesian-docu-88-2/">mastering daily prayers instagram design and indonesian docu</a> 
-<a href="https://cymbaltareviews.com/mastering-digital-skills-top-online-resources-professional-c-88-10/">mastering digital skills top online resources professional c</a> 
-<a href="https://cymbaltareviews.com/mastering-digital-tools-online-resources-a-comprehensive-gui-88-10/">mastering digital tools online resources a comprehensive gui</a> 

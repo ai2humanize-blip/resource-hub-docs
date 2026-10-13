@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://earnmoneyplayinggames.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
+<a href="https://earnmoneyplayinggames.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-reading-cryptocurrency-price-informatio/">a practical guide to reading cryptocurrency price informatio</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-reading-football-league-tables-and-stan/">a practical guide to reading football league tables and stan</a> 
 <a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://earnmoneyplayinggames.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
 <a href="https://earnmoneyplayinggames.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
@@ -796,9 +802,3 @@
 <a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-indian-92-2/">exploring the intersection of web tech and content in indian</a> 
 <a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-the-bl-92-2/">exploring the intersection of web tech and content in the bl</a> 
 <a href="https://emiamedical.com/exploring-the-web-tech-and-content-a-deep-dive-into-cryptocu-92-2/">exploring the web tech and content a deep dive into cryptocu</a> 
-<a href="https://emiamedical.com/exploring-the-world-of-online-casinos-business-finance-and-p-92-5/">exploring the world of online casinos business finance and p</a> 
-<a href="https://emiamedical.com/exploring-web-tech-content-a-comprehensive-roundup-92-7/">exploring web tech content a comprehensive roundup 92 7</a> 
-<a href="https://emiamedical.com/exploring-web-tech-content-a-comprehensive-roundup-for-knowl-92-7/">exploring web tech content a comprehensive roundup for knowl</a> 
-<a href="https://emiamedical.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://emiamedical.com/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
-<a href="https://emiamedical.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 

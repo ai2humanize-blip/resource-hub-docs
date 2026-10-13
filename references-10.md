@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://bitslots.de.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://bitslots.de.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://bitslots.de.com/how-baby-name-popularity-shifts-over-time-2/">how baby name popularity shifts over time 2</a> 
 <a href="https://bitslots.de.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
 <a href="https://bitslots.de.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginners-guide-to-the-future-of-finance/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-061cea18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-43a213b8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-6be561ef/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-72ff2d8d/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-cryptocurrency-bitcoin-and-blockchain-a-comprehensive-guide-7b84f9c2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
