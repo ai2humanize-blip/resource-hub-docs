@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://glittering-sorbet-2fafb2.netlify.app/why-your-page-loads-fast-desktop-but-destroys.html">why your page loads fast desktop but destroys</a> 
+<a href="https://globespro.it.com/5-proven-strategies-to-boost-your-website-s-seo-ranking/">5 proven strategies to boost your website s seo ranking</a> 
+<a href="https://globespro.it.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
 <a href="https://globespro.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://globespro.it.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
 <a href="https://globespro.it.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
@@ -799,6 +802,3 @@
 <a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin-2/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://globespro.it.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 

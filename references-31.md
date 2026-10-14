@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://globespro.it.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
 <a href="https://globespro.it.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
@@ -799,6 +802,3 @@
 <a href="https://gptseoservices.gb.net/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
 <a href="https://gptseoservices.gb.net/what-to-know-about-how-popular-baby-names-change-over-the-de/">what to know about how popular baby names change over the de</a> 
 <a href="https://gptseoservices.gb.net/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://gptseoservices.gb.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://gptseoservices.gb.net/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
-<a href="https://gptseoservices.gb.net/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 

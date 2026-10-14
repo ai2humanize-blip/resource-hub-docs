@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-46.md) · [‹ prev](references-44.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/what-token-safe-harbor-would-and-would-not/">what token safe harbor would and would not</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-did-vine-shut-down/">why did vine shut down</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/why-washington-not-charts-is-driving-crypto/">why washington not charts is driving crypto</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/write-for-us/">write for us</a> 
@@ -795,10 +802,3 @@
 <a href="https://ls-understanding-the-latest-developments-in-ai-ms-imncw2y54a-uc.a.run.app">ls-understanding-the-latest-developments-in-ai-ms-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-understanding-the-latest-developments-in-gl-m0-imncw2y54a-uc.a.run.app">ls-understanding-the-latest-developments-in-gl-m0-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-understanding-the-latest-developments-in-gl-ms-imncw2y54a-uc.a.run.app">ls-understanding-the-latest-developments-in-gl-ms-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-understanding-the-latest-trends-in-ai-and-t-ms-imncw2y54a-uc.a.run.app">ls-understanding-the-latest-trends-in-ai-and-t-ms-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-understanding-the-latest-trends-in-cr-mssupvvc.wasmer.app/">ls-understanding-the-latest-trends-in-cr-mssupvvc.wasmer.app</a> 
-<a href="https://ls-understanding-the-latest-trends-in-cryptocurrency-n.ai2hmnz-rhub.workers.dev/">ls-understanding-the-latest-trends-in-cryptocurrency-n.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-understanding-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app">ls-understanding-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-understanding-the-latest-trends-in-news-consumption.ai2hmnz-rhub.workers.dev/">ls-understanding-the-latest-trends-in-news-consumption.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-understanding-today-s-news-landscape-in-depth-analy.ai2hmnz-rhub.workers.dev/">ls-understanding-today-s-news-landscape-in-depth-analy.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-understanding-why-casinos-require-identity-verifica.ai2hmnz-rhub.workers.dev/">ls-understanding-why-casinos-require-identity-verifica.ai2hmnz-rhub.workers.dev</a> 

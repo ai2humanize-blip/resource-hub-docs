@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://homaryreviews.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://homaryreviews.com/digital-tools-online-resources-50-resources-worth-bookmarkin-101-7-2/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://homaryreviews.com/digital-tools-online-resources-50-resources-worth-bookmarkin-101-7-3/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://homaryreviews.com/digital-tools-online-resources-50-resources-worth-bookmarkin-101-7/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://homaryreviews.com/digital-tools-online-resources-a-comprehensive-guide-to-cryp-101-7/">digital tools online resources a comprehensive guide to cryp</a> 
 <a href="https://homaryreviews.com/digital-tools-online-resources-your-ultimate-guide-to-budget-101-2/">digital tools online resources your ultimate guide to budget</a> 
@@ -799,6 +802,3 @@
 <a href="https://influencersgonewild.eu.com/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
 <a href="https://influencersgonewild.eu.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
 <a href="https://influencersgonewild.eu.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://influencersgonewild.eu.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://influencersgonewild.eu.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
-<a href="https://influencersgonewild.eu.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 

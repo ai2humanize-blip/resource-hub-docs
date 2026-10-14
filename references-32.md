@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://gptseoservices.gb.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://gptseoservices.gb.net/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
+<a href="https://gptseoservices.gb.net/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://gptseoservices.gb.net/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://gptseoservices.gb.net/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
 <a href="https://gptseoservices.gb.net/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
@@ -799,6 +802,3 @@
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-11/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-12/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-13/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-14/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-15/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-16/">mastering business finance productivity a comprehensive guid</a> 

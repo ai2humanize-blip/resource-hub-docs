@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-62.md) · [‹ prev](references-60.md)
 
+<a href="https://structurespy.it.com/how-dailywatchreports-is-transforming-news-consumption-in-in/">how dailywatchreports is transforming news consumption in in</a> 
+<a href="https://structurespy.it.com/how-html5-revolutionized-casual-browser-gaming-for-business-37-5/">how html5 revolutionized casual browser gaming for business </a> 
+<a href="https://structurespy.it.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
+<a href="https://structurespy.it.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://structurespy.it.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://structurespy.it.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://structurespy.it.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://structurespy.it.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://structurespy.it.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://structurespy.it.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
+<a href="https://structurespy.it.com/how-to-compare-sources-on-the-same-story-a-quick-guide-3/">how to compare sources on the same story a quick guide 3</a> 
 <a href="https://structurespy.it.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://structurespy.it.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://structurespy.it.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
@@ -791,14 +802,3 @@
 <a href="https://sur.ly/i/cubednews.com/">cubednews.com</a> 
 <a href="https://sur.ly/i/currencynews.co/">currencynews.co</a> 
 <a href="https://sur.ly/i/cyberkannadigs.org/">cyberkannadigs.org</a> 
-<a href="https://sur.ly/i/dailyaqi.com/">dailyaqi.com</a> 
-<a href="https://sur.ly/i/dailynamaz.com/">dailynamaz.com</a> 
-<a href="https://sur.ly/i/dailywatchreports.com/">dailywatchreports.com</a> 
-<a href="https://sur.ly/i/debtfore.com/">debtfore.com</a> 
-<a href="https://sur.ly/i/dmcnews.org/">dmcnews.org</a> 
-<a href="https://sur.ly/i/ecoinsupply.com/">ecoinsupply.com</a> 
-<a href="https://sur.ly/i/ecoonomia.com/">ecoonomia.com</a> 
-<a href="https://sur.ly/i/etherelysium.com/">etherelysium.com</a> 
-<a href="https://sur.ly/i/foxperiodical.com/">foxperiodical.com</a> 
-<a href="https://sur.ly/i/fullimedia.com.co/">fullimedia.com.co</a> 
-<a href="https://sur.ly/i/getcryptomedia.com/">getcryptomedia.com</a> 

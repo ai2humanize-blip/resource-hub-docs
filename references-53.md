@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-54.md) · [‹ prev](references-52.md)
 
+<a href="https://ph11com.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ph11com.xyz/hello-world/">hello world</a> 
+<a href="https://ph11com.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ph11com.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://ph11com.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://ph11com.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://ph11com.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://ph11com.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://ph11com.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://ph2bet.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -795,10 +802,3 @@
 <a href="https://pixect.xyz/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
 <a href="https://pixect.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
 <a href="https://pixect.xyz/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
-<a href="https://pixect.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 
-<a href="https://pixect.xyz/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
-<a href="https://pixect.xyz/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
-<a href="https://pixect.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://pixect.xyz/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
-<a href="https://pixect.xyz/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
-<a href="https://pixect.xyz/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 

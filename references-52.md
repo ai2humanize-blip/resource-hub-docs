@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-53.md) · [‹ prev](references-51.md)
 
+<a href="https://obesetuber.com/how-small-business-owners-can-master-personal-finance-and-ma/">how small business owners can master personal finance and ma</a> 
+<a href="https://obesetuber.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
+<a href="https://obesetuber.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
+<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
 <a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
 <a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
@@ -795,10 +802,3 @@
 <a href="https://ph11com.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://ph11com.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://ph11com.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://ph11com.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://ph11com.xyz/hello-world/">hello world</a> 
-<a href="https://ph11com.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://ph11com.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://ph11com.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://ph11com.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://ph11com.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
