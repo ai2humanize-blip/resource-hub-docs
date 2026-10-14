@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-explained-simply/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://algiamedical.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
+<a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
 <a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
 <a href="https://algiamedical.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
@@ -319,6 +325,7 @@
 <a href="https://algiamedical.com/understanding-the-origins-of-baby-names-the-basics/">understanding the origins of baby names the basics</a> 
 <a href="https://algiamedical.com/understanding-today-s-news-landscape-analysis-explainers-and/">understanding today s news landscape analysis explainers and</a> 
 <a href="https://algiamedical.com/understanding-todaykeralalotteryresult-a-practical-guide/">understanding todaykeralalotteryresult a practical guide</a> 
+<a href="https://algiamedical.com/understanding-travel-insurance-for-international-trips/">understanding travel insurance for international trips</a> 
 <a href="https://algiamedical.com/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
 <a href="https://algiamedical.com/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
 <a href="https://algiamedical.com/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
@@ -795,10 +802,3 @@
 <a href="https://alientapereviews.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
 <a href="https://alientapereviews.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://alientapereviews.com/stay-updated-guides-reviews-how-tos-for-new-movies-and-shows-78-7/">stay updated guides reviews how tos for new movies and shows</a> 
-<a href="https://alientapereviews.com/staying-informed-and-engaged-the-ultimate-guide-to-marketing-78-8/">staying informed and engaged the ultimate guide to marketing</a> 
-<a href="https://alientapereviews.com/staying-safe-and-informed-the-latest-online-casino-and-gambl-2/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://alientapereviews.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://alientapereviews.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://alientapereviews.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://alientapereviews.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://alientapereviews.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
