@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://app.zentrack.net/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
+<a href="https://app.zentrack.net/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://app.zentrack.net/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
 <a href="https://app.zentrack.net/tlt-ng-resource-1/">tlt ng resource 1</a> 
 <a href="https://app.zentrack.net/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://autolinkrush.mex.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://autolinkrush.mex.com/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
 <a href="https://autolinkrush.mex.com/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://autolinkrush.mex.com/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://autolinkrush.mex.com/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://autolinkrush.mex.com/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 

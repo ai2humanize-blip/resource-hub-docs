@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://domain.glass/technofee.in.net">technofee.in.net</a> 
+<a href="https://domain.glass/techquillercom.org">techquillercom.org</a> 
+<a href="https://domain.glass/techvantor.xyz">techvantor.xyz</a> 
+<a href="https://domain.glass/teckjb.org">teckjb.org</a> 
+<a href="https://domain.glass/thecryptoonline.com">thecryptoonline.com</a> 
+<a href="https://domain.glass/thedailycoins.io">thedailycoins.io</a> 
 <a href="https://domain.glass/thedigitalweekly.com">thedigitalweekly.com</a> 
 <a href="https://domain.glass/thedigitalwise.com">thedigitalwise.com</a> 
 <a href="https://domain.glass/thefontworld.net">thefontworld.net</a> 
@@ -796,9 +802,3 @@
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-readers-92-1/">essential digital tools online resources for modern readers </a> 
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-seo-succ-92-1/">essential digital tools online resources for modern seo succ</a> 
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-navigating-the-92-1-2/">essential digital tools online resources for navigating the </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-navigating-the-92-1/">essential digital tools online resources for navigating the </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-savvy-internet-92-1/">essential digital tools online resources for savvy internet </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-savvy-readers-a-92-6/">essential digital tools online resources for savvy readers a</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-smart-internet-92-1/">essential digital tools online resources for smart internet </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-smart-reading-a-92-1/">essential digital tools online resources for smart reading a</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-smarter-browsin-92-1/">essential digital tools online resources for smarter browsin</a> 

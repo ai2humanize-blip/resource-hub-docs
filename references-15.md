@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cnlawblog.jpn.com/how-laws-are-made-a-plain-language-guide/">how laws are made a plain language guide</a> 
+<a href="https://cnlawblog.jpn.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
+<a href="https://cnlawblog.jpn.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://cnlawblog.jpn.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
 <a href="https://cnlawblog.jpn.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
 <a href="https://cnlawblog.jpn.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-20/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-21/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-22/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-23/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-24/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-25/">mastering business finance productivity a comprehensive guid</a> 

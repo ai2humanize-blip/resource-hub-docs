@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-a-practical-guid-2/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://fabulouspoetry.it.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://fabulouspoetry.it.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
 <a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters-2/">how to get the most out of online guides and why it matters </a> 
 <a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
 <a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-explained-simply-2/">how to get the most out of online guides explained simply 2</a> 
@@ -380,6 +386,9 @@
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-34/">mastering marketing seo growth strategies for success 27 4 3</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-35/">mastering marketing seo growth strategies for success 27 4 3</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-36/">mastering marketing seo growth strategies for success 27 4 3</a> 
+<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-37/">mastering marketing seo growth strategies for success 27 4 3</a> 
+<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-38/">mastering marketing seo growth strategies for success 27 4 3</a> 
+<a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-39/">mastering marketing seo growth strategies for success 27 4 3</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-4/">mastering marketing seo growth strategies for success 27 4 4</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-5/">mastering marketing seo growth strategies for success 27 4 5</a> 
 <a href="https://fabulouspoetry.it.com/mastering-marketing-seo-growth-strategies-for-success-27-4-6/">mastering marketing seo growth strategies for success 27 4 6</a> 
@@ -793,12 +802,3 @@
 <a href="https://feetfinder.uk.net/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
 <a href="https://feetfinder.uk.net/tlt-ng-resource-3/">tlt ng resource 3</a> 
 <a href="https://feetfinder.uk.net/todaykeralalotteryresult-net-resource-3/">todaykeralalotteryresult net resource 3</a> 
-<a href="https://feetfinder.uk.net/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
-<a href="https://feetfinder.uk.net/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://feetfinder.uk.net/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://feetfinder.uk.net/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
-<a href="https://feetfinder.uk.net/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
-<a href="https://feetfinder.uk.net/walking-for-wellbeing-getting-started-the-right-way/">walking for wellbeing getting started the right way</a> 
-<a href="https://feetfinder.uk.net/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://feetfinder.uk.net/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://feetfinder.uk.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 

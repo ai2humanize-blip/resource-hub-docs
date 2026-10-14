@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://feetfinder.uk.net/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
+<a href="https://feetfinder.uk.net/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://feetfinder.uk.net/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://feetfinder.uk.net/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
+<a href="https://feetfinder.uk.net/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
+<a href="https://feetfinder.uk.net/walking-for-wellbeing-getting-started-the-right-way/">walking for wellbeing getting started the right way</a> 
+<a href="https://feetfinder.uk.net/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://feetfinder.uk.net/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://feetfinder.uk.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://feetfinder.uk.net/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
 <a href="https://feetfinder.uk.net/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://feetfinder.uk.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
@@ -225,6 +234,7 @@
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-12/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-13/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-14/">essential digital tools online resources for modern living 2</a> 
+<a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-15/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-2/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-3/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-4/">essential digital tools online resources for modern living 2</a> 
@@ -250,6 +260,7 @@
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-4/">essential digital tools online resources for modern professi</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-5/">essential digital tools online resources for modern professi</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-6/">essential digital tools online resources for modern professi</a> 
+<a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-7/">essential digital tools online resources for modern professi</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5/">essential digital tools online resources for modern professi</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-users-28-5/">essential digital tools online resources for modern users 28</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-web-desi-28-5/">essential digital tools online resources for modern web desi</a> 
@@ -302,6 +313,7 @@
 <a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-moder-28-5-18/">exploring essential digital tools online resources for moder</a> 
 <a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-moder-28-5-19/">exploring essential digital tools online resources for moder</a> 
 <a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-moder-28-5-2/">exploring essential digital tools online resources for moder</a> 
+<a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-moder-28-5-20/">exploring essential digital tools online resources for moder</a> 
 <a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-moder-28-5-3/">exploring essential digital tools online resources for moder</a> 
 <a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-moder-28-5-4/">exploring essential digital tools online resources for moder</a> 
 <a href="https://fideleturfturf.it.com/exploring-essential-digital-tools-online-resources-for-moder-28-5-5/">exploring essential digital tools online resources for moder</a> 
@@ -790,15 +802,3 @@
 <a href="https://fideleturfturf.it.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
 <a href="https://fideleturfturf.it.com/what-makes-a-website-easy-and-pleasant-to-read/">what makes a website easy and pleasant to read</a> 
 <a href="https://fideleturfturf.it.com/what-makes-an-explainer-article-genuinely-useful-the-basics-2/">what makes an explainer article genuinely useful the basics </a> 
-<a href="https://fideleturfturf.it.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://fideleturfturf.it.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://fideleturfturf.it.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://fideleturfturf.it.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
