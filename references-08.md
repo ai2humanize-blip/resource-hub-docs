@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://autolinkrush.mex.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
+<a href="https://autolinkrush.mex.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://autolinkrush.mex.com/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
 <a href="https://autolinkrush.mex.com/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
 <a href="https://autolinkrush.mex.com/the-basics-of-staying-safe-while-browsing-2/">the basics of staying safe while browsing 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-81-10/">a beginner s guide to understanding and starting with crypto</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic-2/">a closer look at how to find balanced coverage of a topic 2</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-2/">a closer look at how to organize the information you find on</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-3/">a closer look at how to organize the information you find on</a> 

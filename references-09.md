@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-2/">a closer look at how to organize the information you find on</a> 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-3/">a closer look at how to organize the information you find on</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
 <a href="https://bandemusic.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/common-questions-answered-7/">common questions answered 7</a> 
 <a href="https://bitslots.de.com/common-questions-answered-8/">common questions answered 8</a> 
 <a href="https://bitslots.de.com/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://bitslots.de.com/common-questions-answered/">common questions answered</a> 
-<a href="https://bitslots.de.com/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
-<a href="https://bitslots.de.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
