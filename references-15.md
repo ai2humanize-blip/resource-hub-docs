@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 
+<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://cnlawblog.jpn.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
 <a href="https://cnlawblog.jpn.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
 <a href="https://cnlawblog.jpn.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-26/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-27/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-28/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-29/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-30/">mastering business finance productivity a comprehensive guid</a> 

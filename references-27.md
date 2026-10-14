@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://feetfinder.uk.net/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://feetfinder.uk.net/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://feetfinder.uk.net/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://feetfinder.uk.net/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
+<a href="https://feetfinder.uk.net/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://fideleturfturf.it.com/a-beginner-s-guide-to-bitcoin-gambling-what-you-need-to-know-28-6/">a beginner s guide to bitcoin gambling what you need to know</a> 
+<a href="https://fideleturfturf.it.com/a-beginner-s-guide-to-navigating-the-world-of-bitcoin-web-te-28-6/">a beginner s guide to navigating the world of bitcoin web te</a> 
+<a href="https://fideleturfturf.it.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
 <a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
@@ -224,11 +233,14 @@
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-needs-28-5-8/">essential digital tools online resources for modern needs 28</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-needs-28-5-9/">essential digital tools online resources for modern needs 28</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-needs-28-5/">essential digital tools online resources for modern needs 28</a> 
+<a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-producti-28-5-2/">essential digital tools online resources for modern producti</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-producti-28-5/">essential digital tools online resources for modern producti</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-2/">essential digital tools online resources for modern professi</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-3/">essential digital tools online resources for modern professi</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-4/">essential digital tools online resources for modern professi</a> 
+<a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-5/">essential digital tools online resources for modern professi</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5/">essential digital tools online resources for modern professi</a> 
+<a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-users-28-5/">essential digital tools online resources for modern users 28</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-web-desi-28-5/">essential digital tools online resources for modern web desi</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-muslims-28-5/">essential digital tools online resources for muslims 28 5</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-muslims-a-compr-28-5/">essential digital tools online resources for muslims a compr</a> 
@@ -790,15 +802,3 @@
 <a href="https://fideleturfturf.it.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://fideleturfturf.it.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://fideleturfturf.it.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://fil7771.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://fil7771.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://fil7771.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://fil7771.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://fil7771.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://fil7771.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://fil7771.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://fil7771.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://fil7771.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://fil7771.xyz/hello-world/">hello world</a> 
-<a href="https://fil7771.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://fil7771.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 

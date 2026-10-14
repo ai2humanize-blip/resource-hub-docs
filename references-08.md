@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
+<a href="https://autolinkrush.mex.com/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
+<a href="https://autolinkrush.mex.com/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
 <a href="https://autolinkrush.mex.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
 <a href="https://autolinkrush.mex.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
 <a href="https://autolinkrush.mex.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://bandemusic.com/5-essential-steps-to-master-mindful-productivity-in-your-dai/">5 essential steps to master mindful productivity in your dai</a> 
 <a href="https://bandemusic.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://bandemusic.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-81-10/">a beginner s guide to understanding and starting with crypto</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic-2/">a closer look at how to find balanced coverage of a topic 2</a> 

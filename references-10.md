@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/common-questions-answered-7/">common questions answered 7</a> 
+<a href="https://bitslots.de.com/common-questions-answered-8/">common questions answered 8</a> 
+<a href="https://bitslots.de.com/common-questions-answered-9/">common questions answered 9</a> 
 <a href="https://bitslots.de.com/common-questions-answered/">common questions answered</a> 
 <a href="https://bitslots.de.com/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
 <a href="https://bitslots.de.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/tsam-1ae069df/">tsam 1ae069df</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tsam-441402c3/">tsam 441402c3</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tsam-92586ca1/">tsam 92586ca1</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-9e98cdd9/">tsam 9e98cdd9</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-a02f8576/">tsam a02f8576</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-a067fcf6/">tsam a067fcf6</a> 

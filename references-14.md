@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cbdpuffbars.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://cbdpuffbars.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
+<a href="https://cbdpuffbars.com/understanding-crypto-media-a-beginner-s-guide-to-staying-inf-84-3/">understanding crypto media a beginner s guide to staying inf</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
@@ -799,6 +802,3 @@
 <a href="https://cnlawblog.jpn.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
 <a href="https://cnlawblog.jpn.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
 <a href="https://cnlawblog.jpn.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 
-<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
