@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
+<a href="https://cbd-stone.com/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://cbd-stone.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://cbd-stone.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
 <a href="https://cbd-stone.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
 <a href="https://cbd-stone.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/navigating-today-s-news-and-emerging-trends-a-comprehensive-84-6/">navigating today s news and emerging trends a comprehensive </a> 
 <a href="https://cbdpuffbars.com/navigating-today-s-news-landscape-strategies-for-staying-inf-84-8/">navigating today s news landscape strategies for staying inf</a> 
 <a href="https://cbdpuffbars.com/navigating-web-tech-content-a-comprehensive-guide-for-smart-84-5/">navigating web tech content a comprehensive guide for smart </a> 
-<a href="https://cbdpuffbars.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-84-5-2/">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://cbdpuffbars.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-84-5/">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://cbdpuffbars.com/navigating-web-tech-content-a-comprehensive-guide-to-informe-84-5/">navigating web tech content a comprehensive guide to informe</a> 

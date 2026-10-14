@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-oxpoll-a-practical-guide/">understanding oxpoll a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://bigwin691.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://bit.ly/46V4ZK5">46V4ZK5</a> 
 <a href="https://bit.ly/46fjGaS">46fjGaS</a> 
-<a href="https://bit.ly/4r0Wo1I">4r0Wo1I</a> 
-<a href="https://bit.ly/4r5n55E">4r5n55E</a> 
-<a href="https://bit.ly/4xH22bW">4xH22bW</a> 

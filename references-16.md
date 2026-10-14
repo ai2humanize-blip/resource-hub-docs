@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://crediblenews24.com/how-to-build-a-personal-reading-list-the-basics-2/">how to build a personal reading list the basics 2</a> 
+<a href="https://crediblenews24.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://crediblenews24.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
 <a href="https://crediblenews24.com/how-to-choose-the-best-local-farmers-market-for-your-needs/">how to choose the best local farmers market for your needs</a> 
 <a href="https://crediblenews24.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
 <a href="https://crediblenews24.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/reels-safe-zone.html">reels safe zone</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/reperer-un-cheval-bien-place-analyser.html">reperer un cheval bien place analyser</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/reports-pedia.html">reports pedia</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/reportspedia.html">reportspedia</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/reportspediacom-your-trusted-source-for.html">reportspediacom your trusted source for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/rti-act-guide.html">rti act guide</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/media-partnerships-in-the-independent-web/">media partnerships in the independent web</a> 
+<a href="https://cmdslot.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://cmdslot.xyz/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
 <a href="https://cmdslot.xyz/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
 <a href="https://cmdslot.xyz/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
 <a href="https://cmdslot.xyz/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://crediblenews24.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
-<a href="https://crediblenews24.com/how-to-build-a-personal-reading-list-the-basics-2/">how to build a personal reading list the basics 2</a> 
-<a href="https://crediblenews24.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
-<a href="https://crediblenews24.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 

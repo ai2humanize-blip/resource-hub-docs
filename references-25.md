@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://ezoterizm.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters-2/">how to tell if a website is trustworthy and why it matters 2</a> 
+<a href="https://ezoterizm.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://ezoterizm.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://ezoterizm.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://ezoterizm.com/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
+<a href="https://ezoterizm.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
 <a href="https://ezoterizm.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
 <a href="https://ezoterizm.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
 <a href="https://ezoterizm.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabulouspoetry.it.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
 <a href="https://fabulouspoetry.it.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://fabulouspoetry.it.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
-<a href="https://fabulouspoetry.it.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://fabulouspoetry.it.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
-<a href="https://fabulouspoetry.it.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://fabulouspoetry.it.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://fabulouspoetry.it.com/apply-for-a-driver-s-license-in-nigeria/">apply for a driver s license in nigeria</a> 
-<a href="https://fabulouspoetry.it.com/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
