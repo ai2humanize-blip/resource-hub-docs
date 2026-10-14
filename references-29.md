@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://forotesis.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://forotesis.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://forotesis.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
+<a href="https://forotesis.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://forotesis.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
+<a href="https://forotesis.com/how-recent-developments-in-ai-are-reshaping-the-news-landsca/">how recent developments in ai are reshaping the news landsca</a> 
+<a href="https://forotesis.com/how-smart-apps-are-transforming-daily-life-a-deep-dive-into/">how smart apps are transforming daily life a deep dive into</a> 
+<a href="https://forotesis.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
+<a href="https://forotesis.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://forotesis.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://forotesis.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://forotesis.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
 <a href="https://forotesis.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
 <a href="https://forotesis.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
 <a href="https://forotesis.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
@@ -790,15 +802,3 @@
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-97-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://getolive.org/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://getolive.org/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://getolive.org/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://getolive.org/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://getolive.org/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://getolive.org/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://getolive.org/understanding-legal-information-and-staying-updated-with-leg/">understanding legal information and staying updated with leg</a> 
-<a href="https://getolive.org/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
-<a href="https://getolive.org/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://getolive.org/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://getolive.org/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 

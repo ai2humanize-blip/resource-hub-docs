@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-2/">mastering web tech content a comprehensive guide 82 2 2</a> 
+<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-3/">mastering web tech content a comprehensive guide 82 2 3</a> 
+<a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-4/">mastering web tech content a comprehensive guide 82 2 4</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-5/">mastering web tech content a comprehensive guide 82 2 5</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-6/">mastering web tech content a comprehensive guide 82 2 6</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-7/">mastering web tech content a comprehensive guide 82 2 7</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-the-basics-2/">how to avoid misinformation and hype the basics 2</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 

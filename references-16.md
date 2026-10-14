@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://crediblenews24.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
 <a href="https://crediblenews24.com/how-to-build-a-personal-reading-list-the-basics-2/">how to build a personal reading list the basics 2</a> 
 <a href="https://crediblenews24.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://crediblenews24.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/pronostics-turf-gratuits-ce-quils.html">pronostics turf gratuits ce quils</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/real-estate-tips.html">real estate tips</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/recognising-and-avoiding-common-online.html">recognising and avoiding common online</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/reels-safe-zone.html">reels safe zone</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/reperer-un-cheval-bien-place-analyser.html">reperer un cheval bien place analyser</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/reports-pedia.html">reports pedia</a> 

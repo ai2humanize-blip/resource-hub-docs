@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://illicitlabel.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://illicitlabel.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://illustrious-cannoli-a3f143.netlify.app/bitcoincasinosnews.html">bitcoincasinosnews</a> 
+<a href="https://imaginative-cuchufli-3ae12e.netlify.app/how-manuscript-revision-works.html">how manuscript revision works</a> 
+<a href="https://imaginative-mandazi-6652b3.netlify.app/aavotcom.html">aavotcom</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-making-sense-of-complex-topics-online-3/">a closer look at making sense of complex topics online 3</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://influencersgonewild.eu.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://influencersgonewild.eu.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://influencersgonewild.eu.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
@@ -784,21 +802,3 @@
 <a href="https://ireplicadealers.com/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
 <a href="https://ireplicadealers.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
 <a href="https://ireplicadealers.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://ireplicadealers.com/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
-<a href="https://ireplicadealers.com/getting-building-a-healthy-daily-reading-habit-right-3/">getting building a healthy daily reading habit right 3</a> 
-<a href="https://ireplicadealers.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://ireplicadealers.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
-<a href="https://ireplicadealers.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://ireplicadealers.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://ireplicadealers.com/getting-understanding-how-search-engines-rank-pages-right-2/">getting understanding how search engines rank pages right 2</a> 
-<a href="https://ireplicadealers.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
-<a href="https://ireplicadealers.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://ireplicadealers.com/getting-what-to-look-for-in-a-good-news-website-right-2/">getting what to look for in a good news website right 2</a> 
-<a href="https://ireplicadealers.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://ireplicadealers.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://ireplicadealers.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://ireplicadealers.com/government-jobs-india/">government jobs india</a> 
-<a href="https://ireplicadealers.com/how-ai-is-transforming-news-consumption-and-journalism/">how ai is transforming news consumption and journalism</a> 
-<a href="https://ireplicadealers.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://ireplicadealers.com/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
-<a href="https://ireplicadealers.com/how-classic-card-games-are-played/">how classic card games are played</a> 

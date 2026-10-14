@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
+<a href="https://cmdslot.xyz/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
+<a href="https://cmdslot.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cmdslot.xyz/media-partnerships-in-the-independent-web/">media partnerships in the independent web</a> 
 <a href="https://cmdslot.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://cmdslot.xyz/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-3/">how to avoid misinformation and hype a practical guide 3</a> 
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-4/">how to avoid misinformation and hype a practical guide 4</a> 
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://crediblenews24.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
