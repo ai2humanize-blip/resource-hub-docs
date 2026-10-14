@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bitslots.de.com/common-questions-answered-4/">common questions answered 4</a> 
+<a href="https://bitslots.de.com/common-questions-answered-5/">common questions answered 5</a> 
+<a href="https://bitslots.de.com/common-questions-answered-6/">common questions answered 6</a> 
 <a href="https://bitslots.de.com/common-questions-answered-7/">common questions answered 7</a> 
 <a href="https://bitslots.de.com/common-questions-answered-8/">common questions answered 8</a> 
 <a href="https://bitslots.de.com/common-questions-answered-9/">common questions answered 9</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/trader-says-xrp-price-setting-biggest-bear-trap/">trader says xrp price setting biggest bear trap</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tsam-0e0c5561/">tsam 0e0c5561</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tsam-13a7d790/">tsam 13a7d790</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-1ae069df/">tsam 1ae069df</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-441402c3/">tsam 441402c3</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-92586ca1/">tsam 92586ca1</a> 

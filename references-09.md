@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://bandemusic.com/5-essential-steps-to-master-mindful-productivity-in-your-dai/">5 essential steps to master mindful productivity in your dai</a> 
+<a href="https://bandemusic.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
 <a href="https://bandemusic.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-81-10/">a beginner s guide to understanding and starting with crypto</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic-2/">a closer look at how to find balanced coverage of a topic 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://bitslots.de.com/common-questions-answered-25/">common questions answered 25</a> 
 <a href="https://bitslots.de.com/common-questions-answered-26/">common questions answered 26</a> 
 <a href="https://bitslots.de.com/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://bitslots.de.com/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://bitslots.de.com/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://bitslots.de.com/common-questions-answered-6/">common questions answered 6</a> 
