@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-recognizing-credible-experts-online-5ld">what to know about recognizing credible experts online 5ld</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-difference-between-skimming-and-deep-reading-online-mc">what to know about the difference between skimming and deep </a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-value-of-slow-careful-reading-3im1">what to know about the value of slow careful reading 3im1</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-value-of-slow-careful-reading-dhn">what to know about the value of slow careful reading dhn</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-understanding-digital-literacy-3hgp">what to know about understanding digital literacy 3hgp</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-what-makes-an-explainer-article-genuinely-useful-4n87">what to know about what makes an explainer article genuinely</a> 
 <a href="https://dev.to/ai2humanizeblip/what-to-know-about-why-context-matters-when-reading-online-32h3">what to know about why context matters when reading online 3</a> 
 <a href="https://dev.to/ai2humanizeblip/what-to-know-about-why-context-matters-when-reading-online-3ca3">what to know about why context matters when reading online 3</a> 
 <a href="https://dev.to/ai2humanizeblip/what-to-look-for-in-a-good-news-website-a-practical-guide-3a35">what to look for in a good news website a practical guide 3a</a> 
@@ -796,9 +802,3 @@
 <a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
 <a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online-3/">what to know about recognizing credible experts online 3</a> 
 <a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://ecomhuntreviews.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://ecomhuntreviews.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://ecomhuntreviews.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://ecomhuntreviews.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://ecomhuntreviews.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 

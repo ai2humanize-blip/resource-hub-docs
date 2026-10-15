@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/mastering-the-art-of-personal-finance-in-business-a-marketin/">mastering the art of personal finance in business a marketin</a> 
+<a href="https://captainjackinterview.com/mastering-the-web-a-comprehensive-guide-to-trustworthy-tech-82-2/">mastering the web a comprehensive guide to trustworthy tech </a> 
+<a href="https://captainjackinterview.com/mastering-web-tech-and-content-a-comprehensive-guide-for-the-82-2/">mastering web tech and content a comprehensive guide for the</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-2/">mastering web tech content a comprehensive guide 82 2 2</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-3/">mastering web tech content a comprehensive guide 82 2 3</a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-content-a-comprehensive-guide-82-2-4/">mastering web tech content a comprehensive guide 82 2 4</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
 <a href="https://cbd-stone.com/how-classic-card-games-are-played/">how classic card games are played</a> 
 <a href="https://cbd-stone.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://cbd-stone.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 

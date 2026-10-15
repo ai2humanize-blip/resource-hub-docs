@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cbdpuffbars.com/navigating-the-web-mastering-tech-content-and-digital-litera-84-5/">navigating the web mastering tech content and digital litera</a> 
+<a href="https://cbdpuffbars.com/navigating-the-world-of-crypto-cards-custodial-vs-self-custo-84-5/">navigating the world of crypto cards custodial vs self custo</a> 
+<a href="https://cbdpuffbars.com/navigating-today-s-media-landscape-current-news-explainers-a/">navigating today s media landscape current news explainers a</a> 
 <a href="https://cbdpuffbars.com/navigating-today-s-news-and-emerging-trends-a-comprehensive-84-6/">navigating today s news and emerging trends a comprehensive </a> 
 <a href="https://cbdpuffbars.com/navigating-today-s-news-landscape-strategies-for-staying-inf-84-8/">navigating today s news landscape strategies for staying inf</a> 
 <a href="https://cbdpuffbars.com/navigating-web-tech-content-a-comprehensive-guide-for-smart-84-5/">navigating web tech content a comprehensive guide for smart </a> 
@@ -799,6 +802,3 @@
 <a href="https://cmdslot.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
 <a href="https://cmdslot.xyz/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
 <a href="https://cmdslot.xyz/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
-<a href="https://cmdslot.xyz/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
-<a href="https://cmdslot.xyz/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://cmdslot.xyz/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 

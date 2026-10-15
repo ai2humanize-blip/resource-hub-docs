@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://fabulouspoetry.it.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://fabulouspoetry.it.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://fabulouspoetry.it.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://fabulouspoetry.it.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
@@ -401,6 +410,7 @@
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-13/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-14/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-15/">essential digital tools online resources for modern living 2</a> 
+<a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-16/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-2/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-3/">essential digital tools online resources for modern living 2</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-living-28-5-4/">essential digital tools online resources for modern living 2</a> 
@@ -422,6 +432,7 @@
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-needs-28-5/">essential digital tools online resources for modern needs 28</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-producti-28-5-2/">essential digital tools online resources for modern producti</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-producti-28-5-3/">essential digital tools online resources for modern producti</a> 
+<a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-producti-28-5-4/">essential digital tools online resources for modern producti</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-producti-28-5/">essential digital tools online resources for modern producti</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-2/">essential digital tools online resources for modern professi</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-professi-28-5-3/">essential digital tools online resources for modern professi</a> 
@@ -759,6 +770,7 @@
 <a href="https://fideleturfturf.it.com/maximizing-business-and-personal-success-with-digital-tools-28-5/">maximizing business and personal success with digital tools </a> 
 <a href="https://fideleturfturf.it.com/maximizing-efficiency-top-digital-tools-productivity-habits-28-5/">maximizing efficiency top digital tools productivity habits </a> 
 <a href="https://fideleturfturf.it.com/maximizing-financial-health-top-digital-tools-online-resourc-28-5/">maximizing financial health top digital tools online resourc</a> 
+<a href="https://fideleturfturf.it.com/maximizing-your-digital-experience-top-online-tools-resource-28-5/">maximizing your digital experience top online tools resource</a> 
 <a href="https://fideleturfturf.it.com/maximizing-your-online-presence-digital-tools-resources-for-28-5/">maximizing your online presence digital tools resources for </a> 
 <a href="https://fideleturfturf.it.com/navigating-age-restrictions-digital-tools-in-the-world-of-ga-28-5/">navigating age restrictions digital tools in the world of ga</a> 
 <a href="https://fideleturfturf.it.com/navigating-modern-career-choices-a-guide-to-finding-your-ide/">navigating modern career choices a guide to finding your ide</a> 
@@ -790,15 +802,3 @@
 <a href="https://fideleturfturf.it.com/navigating-the-web-a-comprehensive-guide-to-web-tech-content-28-6/">navigating the web a comprehensive guide to web tech content</a> 
 <a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-essential-online-resou-28-6-2/">navigating the web a curated guide to essential online resou</a> 
 <a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-essential-online-resou-28-6/">navigating the web a curated guide to essential online resou</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-essential-tech-content-28-6-2/">navigating the web a curated guide to essential tech content</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-essential-tech-content-28-6/">navigating the web a curated guide to essential tech content</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-tech-content-and-relia-28-6-2/">navigating the web a curated guide to tech content and relia</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-tech-content-and-relia-28-6/">navigating the web a curated guide to tech content and relia</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-tech-content-and-usefu-28-6/">navigating the web a curated guide to tech content and usefu</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-essential-online-res-28-6-2/">navigating the web a practical guide to essential online res</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-essential-online-res-28-6-3/">navigating the web a practical guide to essential online res</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-essential-online-res-28-6/">navigating the web a practical guide to essential online res</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-reliable-tech-conten-28-6/">navigating the web a practical guide to reliable tech conten</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-trustworthy-tech-con-28-6/">navigating the web a practical guide to trustworthy tech con</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-valuable-online-reso-28-6/">navigating the web a practical guide to valuable online reso</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-habits-and-skills-for-smart-internet-read-28-6/">navigating the web habits and skills for smart internet read</a> 

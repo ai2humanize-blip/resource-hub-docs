@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bigwin691.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://bigwin691.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://bigwin691.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://bigwin691.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://bit.ly/46V4ZK5">46V4ZK5</a> 
 <a href="https://bit.ly/46fjGaS">46fjGaS</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/tashbazzi-716eac1a/">tashbazzi 716eac1a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tashbazzi/">tashbazzi</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tbnexpress-com/">tbnexpress com</a> 
-<a href="https://boostelearning.mataroa.blog/blog/technofee/">technofee</a> 
-<a href="https://boostelearning.mataroa.blog/blog/techvantor-95916add/">techvantor 95916add</a> 
-<a href="https://boostelearning.mataroa.blog/blog/techvantor-b29d2224/">techvantor b29d2224</a> 

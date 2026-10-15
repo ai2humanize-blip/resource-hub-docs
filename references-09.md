@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
 <a href="https://autumnfallsinterview.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-legal-information-and-staying-updated-with-leg/">understanding legal information and staying updated with leg</a> 
 <a href="https://autumnfallsinterview.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://bigwin691.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://bigwin691.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://bigwin691.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://bigwin691.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://bigwin691.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://bigwin691.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 

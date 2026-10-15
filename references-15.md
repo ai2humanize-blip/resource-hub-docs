@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
+<a href="https://cmdslot.xyz/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://cmdslot.xyz/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
 <a href="https://cmdslot.xyz/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
 <a href="https://cmdslot.xyz/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
 <a href="https://cmdslot.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
 <a href="https://crediblenews24.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
-<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-3/">how to avoid misinformation and hype a practical guide 3</a> 
-<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-4/">how to avoid misinformation and hype a practical guide 4</a> 
-<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/technofee/">technofee</a> 
+<a href="https://boostelearning.mataroa.blog/blog/techvantor-95916add/">techvantor 95916add</a> 
+<a href="https://boostelearning.mataroa.blog/blog/techvantor-b29d2224/">techvantor b29d2224</a> 
 <a href="https://boostelearning.mataroa.blog/blog/techvantor-b42bc1d6/">techvantor b42bc1d6</a> 
 <a href="https://boostelearning.mataroa.blog/blog/techvantor-e3938e27/">techvantor e3938e27</a> 
 <a href="https://boostelearning.mataroa.blog/blog/techvantor/">techvantor</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-the-art-of-business-finance-personal-wealth-and-ma-82-2/">mastering the art of business finance personal wealth and ma</a> 
 <a href="https://captainjackinterview.com/mastering-the-art-of-business-personal-finance-and-marketing-82-4/">mastering the art of business personal finance and marketing</a> 
 <a href="https://captainjackinterview.com/mastering-the-art-of-effective-email-communication-tips-and/">mastering the art of effective email communication tips and</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-personal-finance-in-business-a-marketin/">mastering the art of personal finance in business a marketin</a> 
-<a href="https://captainjackinterview.com/mastering-the-web-a-comprehensive-guide-to-trustworthy-tech-82-2/">mastering the web a comprehensive guide to trustworthy tech </a> 
-<a href="https://captainjackinterview.com/mastering-web-tech-and-content-a-comprehensive-guide-for-the-82-2/">mastering web tech and content a comprehensive guide for the</a> 

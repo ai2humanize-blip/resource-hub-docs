@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://ezoterizm.com/how-to-incorporate-sustainable-fashion-into-your-lifestyle-2/">how to incorporate sustainable fashion into your lifestyle 2</a> 
+<a href="https://ezoterizm.com/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
+<a href="https://ezoterizm.com/how-to-organize-the-information-you-find-online-explained-si-2/">how to organize the information you find online explained si</a> 
+<a href="https://ezoterizm.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
+<a href="https://ezoterizm.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
+<a href="https://ezoterizm.com/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
 <a href="https://ezoterizm.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://ezoterizm.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
 <a href="https://ezoterizm.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabbusinesssolutions.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
 <a href="https://fabulous-valkyrie-be860a.netlify.app/simple-habits-of-a-smart-internet-reader-a-practical-guide.html">simple habits of a smart internet reader a practical guide</a> 
 <a href="https://fabulous-yeot-40d948.netlify.app/aavotcom.html">aavotcom</a> 
-<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-bitcoin-gambling-what-you-need-to-know-27-5/">a beginner s guide to bitcoin gambling what you need to know</a> 
-<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-navigating-the-world-of-bitcoin-busine-27-5/">a beginner s guide to navigating the world of bitcoin busine</a> 
-<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-27-4/">a beginner s guide to understanding and starting with crypto</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 

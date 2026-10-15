@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://forotesis.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://forotesis.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://forotesis.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://forotesis.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://forotesis.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://forotesis.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://forotesis.com/how-ai-driven-apps-are-transforming-everyday-life-and-work/">how ai driven apps are transforming everyday life and work</a> 
+<a href="https://forotesis.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://forotesis.com/how-ai-powered-apps-are-revolutionizing-daily-life-and-produ/">how ai powered apps are revolutionizing daily life and produ</a> 
+<a href="https://forotesis.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://forotesis.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://forotesis.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://forotesis.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
 <a href="https://forotesis.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
 <a href="https://forotesis.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
@@ -790,15 +802,3 @@
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-97-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

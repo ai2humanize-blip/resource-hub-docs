@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
 <a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
 <a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-the-basics-2/">how to avoid misinformation and hype the basics 2</a> 
 <a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/navigating-the-web-a-comprehensive-guide-to-digital-tools-on-84-4-2/">navigating the web a comprehensive guide to digital tools on</a> 
 <a href="https://cbdpuffbars.com/navigating-the-web-a-comprehensive-guide-to-digital-tools-on-84-4/">navigating the web a comprehensive guide to digital tools on</a> 
 <a href="https://cbdpuffbars.com/navigating-the-web-a-curated-guide-to-digital-tools-online-r-84-4/">navigating the web a curated guide to digital tools online r</a> 
-<a href="https://cbdpuffbars.com/navigating-the-web-mastering-tech-content-and-digital-litera-84-5/">navigating the web mastering tech content and digital litera</a> 
-<a href="https://cbdpuffbars.com/navigating-the-world-of-crypto-cards-custodial-vs-self-custo-84-5/">navigating the world of crypto cards custodial vs self custo</a> 
-<a href="https://cbdpuffbars.com/navigating-today-s-media-landscape-current-news-explainers-a/">navigating today s media landscape current news explainers a</a> 

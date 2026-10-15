@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-3/">how to avoid misinformation and hype a practical guide 3</a> 
+<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-4/">how to avoid misinformation and hype a practical guide 4</a> 
+<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://crediblenews24.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/pqrnewscom-your-trusted-source-for-news.html">pqrnewscom your trusted source for news</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/professional-construction-network.html">professional construction network</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/programmes-et-types-de-paris-pmu-bien.html">programmes et types de paris pmu bien</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/pronostics-turf-gratuits-ce-quils.html">pronostics turf gratuits ce quils</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/real-estate-tips.html">real estate tips</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/recognising-and-avoiding-common-online.html">recognising and avoiding common online</a> 

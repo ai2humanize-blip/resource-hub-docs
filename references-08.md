@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://autolinkrush.mex.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://autolinkrush.mex.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
 <a href="https://autolinkrush.mex.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://autolinkrush.mex.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://autolinkrush.mex.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://autumnfallsinterview.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://autumnfallsinterview.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://autumnfallsinterview.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
