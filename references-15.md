@@ -2,6 +2,30 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/a-practical-guide-to-working-with-independent-publishers/">a practical guide to working with independent publishers</a> 
+<a href="https://cmdslot.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cmdslot.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://cmdslot.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cmdslot.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cmdslot.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
+<a href="https://cmdslot.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cmdslot.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
+<a href="https://cmdslot.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://cmdslot.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://cmdslot.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cmdslot.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
+<a href="https://cmdslot.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cmdslot.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://cmdslot.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://cmdslot.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
+<a href="https://cmdslot.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
+<a href="https://cmdslot.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
+<a href="https://cmdslot.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cmdslot.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cmdslot.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://cmdslot.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cmdslot.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
 <a href="https://cmdslot.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
 <a href="https://cmdslot.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
 <a href="https://cmdslot.xyz/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
@@ -36,6 +60,7 @@
 <a href="https://cmdslot.xyz/media-partnerships-in-the-independent-web/">media partnerships in the independent web</a> 
 <a href="https://cmdslot.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://cmdslot.xyz/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
+<a href="https://cmdslot.xyz/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
 <a href="https://cmdslot.xyz/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
 <a href="https://cmdslot.xyz/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
 <a href="https://cmdslot.xyz/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
@@ -205,6 +230,7 @@
 <a href="https://cnlawblog.jpn.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://cnlawblog.jpn.com/what-to-know-about-understanding-how-search-engines-rank-pages/">what to know about understanding how search engines rank pag</a> 
 <a href="https://cnlawblog.jpn.com/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cnlawblog.jpn.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
 <a href="https://cnlawblog.jpn.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://cnlawblog.jpn.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://cnlawblog.jpn.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
@@ -240,6 +266,7 @@
 <a href="https://cochesdeocasion.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
 <a href="https://cochesdeocasion.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
 <a href="https://cochesdeocasion.xyz/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://cochesdeocasion.xyz/how-crypto-debit-cards-work-and-what-the-fees-really-are/">how crypto debit cards work and what the fees really are</a> 
 <a href="https://cochesdeocasion.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://cochesdeocasion.xyz/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
 <a href="https://cochesdeocasion.xyz/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
@@ -357,6 +384,7 @@
 <a href="https://competitorscreenshots.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
 <a href="https://competitorscreenshots.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
 <a href="https://competitorscreenshots.com/cota-es-de-cripto-no-brasil/">cota es de cripto no brasil</a> 
+<a href="https://competitorscreenshots.com/crypto-credit-cards-explained-how-they-differ-from-debit-car/">crypto credit cards explained how they differ from debit car</a> 
 <a href="https://competitorscreenshots.com/crypto-taxes-explained-records-events-and-reporting-basics/">crypto taxes explained records events and reporting basics</a> 
 <a href="https://competitorscreenshots.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://competitorscreenshots.com/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
@@ -609,6 +637,7 @@
 <a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
 <a href="https://cplemaire.us.org/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://cplemaire.us.org/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
+<a href="https://cplemaire.us.org/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
 <a href="https://cplemaire.us.org/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
 <a href="https://cplemaire.us.org/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
 <a href="https://cplemaire.us.org/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
@@ -773,32 +802,3 @@
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-seo-success-in-86-7/">essential digital tools online resources for seo success in </a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smart-internet-86-7-2/">essential digital tools online resources for smart internet </a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smart-internet-86-7/">essential digital tools online resources for smart internet </a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smart-navigatio-86-7/">essential digital tools online resources for smart navigatio</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smarter-reading-86-7/">essential digital tools online resources for smarter reading</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smarter-researc-86-7-2/">essential digital tools online resources for smarter researc</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smarter-researc-86-7/">essential digital tools online resources for smarter researc</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-virginia-childh-86-7/">essential digital tools online resources for virginia childh</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-to-safeguard-agains-86-7/">essential digital tools online resources to safeguard agains</a> 
-<a href="https://crediblenews24.com/essential-online-resources-for-business-finance-productivity-86-6/">essential online resources for business finance productivity</a> 
-<a href="https://crediblenews24.com/essential-tips-for-business-finance-and-productivity-in-the-86-6/">essential tips for business finance and productivity in the </a> 
-<a href="https://crediblenews24.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://crediblenews24.com/expert-guides-reviews-and-how-tos-transform-your-life-with-i-86-9/">expert guides reviews and how tos transform your life with i</a> 
-<a href="https://crediblenews24.com/exploring-ai-in-business-finance-and-productivity-a-comprehe-86-6/">exploring ai in business finance and productivity a comprehe</a> 
-<a href="https://crediblenews24.com/exploring-business-finance-productivity-and-entertainment-a-86-6/">exploring business finance productivity and entertainment a </a> 
-<a href="https://crediblenews24.com/exploring-business-finance-productivity-essential-tools-and-86-6/">exploring business finance productivity essential tools and </a> 
-<a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-2-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-7-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-7/">exploring essential digital tools online resources for moder</a> 
-<a href="https://crediblenews24.com/exploring-the-best-digital-tools-online-resources-for-modern-86-2-2/">exploring the best digital tools online resources for modern</a> 
-<a href="https://crediblenews24.com/exploring-the-best-digital-tools-online-resources-for-modern-86-2/">exploring the best digital tools online resources for modern</a> 
-<a href="https://crediblenews24.com/exploring-the-best-digital-tools-online-resources-for-modern-86-7/">exploring the best digital tools online resources for modern</a> 
-<a href="https://crediblenews24.com/exploring-the-best-guides-reviews-how-tos-across-top-resourc-86-4/">exploring the best guides reviews how tos across top resourc</a> 
-<a href="https://crediblenews24.com/exploring-the-best-in-web-tech-content-a-comprehensive-round-86-8/">exploring the best in web tech content a comprehensive round</a> 
-<a href="https://crediblenews24.com/exploring-the-best-in-web-tech-content-a-curated-guide-86-8/">exploring the best in web tech content a curated guide 86 8</a> 
-<a href="https://crediblenews24.com/exploring-the-best-independent-web-tech-crypto-resources-86-8/">exploring the best independent web tech crypto resources 86 </a> 
-<a href="https://crediblenews24.com/exploring-the-future-of-marketing-seo-growth-in-the-ai-era-86-10/">exploring the future of marketing seo growth in the ai era 8</a> 
-<a href="https://crediblenews24.com/exploring-the-future-of-sports-news-ai-data-analytics-and-fa-86-8/">exploring the future of sports news ai data analytics and fa</a> 
-<a href="https://crediblenews24.com/exploring-the-intersection-of-web-tech-and-content-editor-s-86-8/">exploring the intersection of web tech and content editor s </a> 
-<a href="https://crediblenews24.com/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
-<a href="https://crediblenews24.com/exploring-the-world-of-online-casinos-guides-reviews-how-tos-86-9/">exploring the world of online casinos guides reviews how tos</a> 

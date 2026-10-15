@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/ultimate-guide-to-browser-games-reviews-how-tos-why-they-re-80-5/">ultimate guide to browser games reviews how tos why they re </a> 
+<a href="https://autumnfallsinterview.com/ultimate-guide-to-independent-crypto-finance-and-news-resour-80-5/">ultimate guide to independent crypto finance and news resour</a> 
+<a href="https://autumnfallsinterview.com/ultimate-roundup-guides-reviews-and-how-tos-for-every-enthus-80-10/">ultimate roundup guides reviews and how tos for every enthus</a> 
+<a href="https://autumnfallsinterview.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://autumnfallsinterview.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-crypto-media-a-beginner-s-guide-to-staying-inf-80-9/">understanding crypto media a beginner s guide to staying inf</a> 
+<a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -69,6 +83,7 @@
 <a href="https://autumnfallsinterview.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://autumnfallsinterview.com/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://autumnfallsinterview.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
 <a href="https://autumnfallsinterview.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://autumnfallsinterview.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://autumnfallsinterview.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
@@ -620,6 +635,7 @@
 <a href="https://bandemusic.com/what-to-know-about-what-to-look-for-in-a-good-news-website-3/">what to know about what to look for in a good news website 3</a> 
 <a href="https://bandemusic.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://bandemusic.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://bandemusic.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
 <a href="https://bandemusic.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://bandemusic.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://bandemusic.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
@@ -786,19 +802,3 @@
 <a href="https://betjili1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://betjili1.xyz/hello-world/">hello world</a> 
 <a href="https://betjili1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://betjili1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://betjili1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://betjili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://betjili1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://betjili1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://betjili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://better1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://better1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://better1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://better1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://better1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://better1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://better1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://better1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://better1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://better1.xyz/hello-world/">hello world</a> 
