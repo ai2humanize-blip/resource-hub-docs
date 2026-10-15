@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://autolinkrush.mex.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://autolinkrush.mex.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
 <a href="https://autolinkrush.mex.com/how-classic-card-games-are-played/">how classic card games are played</a> 
 <a href="https://autolinkrush.mex.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
 <a href="https://autolinkrush.mex.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-2/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
 <a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://autumnfallsinterview.com/understanding-daily-prayer-times-and-optimizing-instagram-fo-80-9/">understanding daily prayer times and optimizing instagram fo</a> 
-<a href="https://autumnfallsinterview.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 

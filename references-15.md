@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
 <a href="https://cmdslot.xyz/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
 <a href="https://cmdslot.xyz/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
 <a href="https://cmdslot.xyz/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/getting-the-difference-between-skimming-and-deep-reading-online-right/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://crediblenews24.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://crediblenews24.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://crediblenews24.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://crediblenews24.com/how-ai-and-machine-learning-are-transforming-mobile-app-deve/">how ai and machine learning are transforming mobile app deve</a> 
-<a href="https://crediblenews24.com/how-ai-powered-apps-are-revolutionizing-daily-life/">how ai powered apps are revolutionizing daily life</a> 

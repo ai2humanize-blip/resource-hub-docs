@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide-3/">how to compare sources on the same story a quick guide 3</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-explained-simply-2/">how to compare sources on the same story explained simply 2</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
 <a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://ezoterizm.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://ezoterizm.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabbusinesssolutions.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://fabbusinesssolutions.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://fabbusinesssolutions.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://fabbusinesssolutions.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://fabbusinesssolutions.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://fabbusinesssolutions.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 

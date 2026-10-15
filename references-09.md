@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://autumnfallsinterview.com/understanding-daily-prayer-times-and-optimizing-instagram-fo-80-9/">understanding daily prayer times and optimizing instagram fo</a> 
+<a href="https://autumnfallsinterview.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://bigwin691.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://bigwin691.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://bigwin691.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://bigwin691.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://bigwin691.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://bigwin691.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
