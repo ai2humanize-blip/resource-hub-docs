@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
+<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
+<a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online-3/">what to know about recognizing credible experts online 3</a> 
+<a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
 <a href="https://ecomhuntreviews.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://ecomhuntreviews.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://ecomhuntreviews.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
@@ -796,9 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4a7b73a/banner-ad-sites.html">banner ad sites</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4b10c55/editorial-standards.html">editorial standards</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4c405ea/viirelaid-empire-bigwater-transform-viirelaid-into-carbon-ne.html">viirelaid empire bigwater transform viirelaid into carbon ne</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4cc5b9e/mycoinpartner.html">mycoinpartner</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4cd7e3e/footyntel.html">footyntel</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4cfba23/about-us.html">about us</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4d25ae7/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4d7c0fb/cloudstacklinks.html">cloudstacklinks</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4d93998/reading-whitepaper.html">reading whitepaper</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://dev.to/ai2humanizeblip/what-makes-an-explainer-article-genuinely-useful-the-basics-4197">what makes an explainer article genuinely useful the basics </a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-a-simple-framework-for-researching-any-topic-online-4fgd">what to know about a simple framework for researching any to</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-building-a-healthy-daily-reading-habit-kp3">what to know about building a healthy daily reading habit kp</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-how-to-build-a-personal-reading-list-2g7o">what to know about how to build a personal reading list 2g7o</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-how-to-find-balanced-coverage-of-a-topic-3406">what to know about how to find balanced coverage of a topic </a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-recognizing-credible-experts-online-28mp">what to know about recognizing credible experts online 28mp</a> 
 <a href="https://dev.to/ai2humanizeblip/what-to-know-about-recognizing-credible-experts-online-5ld">what to know about recognizing credible experts online 5ld</a> 
 <a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-difference-between-skimming-and-deep-reading-online-mc">what to know about the difference between skimming and deep </a> 
 <a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-value-of-slow-careful-reading-3im1">what to know about the value of slow careful reading 3im1</a> 
@@ -796,9 +802,3 @@
 <a href="https://ecomhuntreviews.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://ecomhuntreviews.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://ecomhuntreviews.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online-3/">what to know about recognizing credible experts online 3</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 

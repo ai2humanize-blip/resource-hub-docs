@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bigwin691.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://bigwin691.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://bigwin691.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://bigwin691.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://bigwin691.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://bigwin691.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/tablets-vs-laptops-which-one-do-you-really/">tablets vs laptops which one do you really</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tashbazzi-2ff50bee/">tashbazzi 2ff50bee</a> 
 <a href="https://boostelearning.mataroa.blog/blog/tashbazzi-4fa43efc/">tashbazzi 4fa43efc</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tashbazzi-716eac1a/">tashbazzi 716eac1a</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tashbazzi/">tashbazzi</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tbnexpress-com/">tbnexpress com</a> 

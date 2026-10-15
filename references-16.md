@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://crediblenews24.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://crediblenews24.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-3/">how to avoid misinformation and hype a practical guide 3</a> 
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-4/">how to avoid misinformation and hype a practical guide 4</a> 
 <a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/pista-meaning.html">pista meaning</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/politics-briefing.html">politics briefing</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/positive-news-india.html">positive news india</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/pqrnewscom-your-trusted-source-for-news.html">pqrnewscom your trusted source for news</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/professional-construction-network.html">professional construction network</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/programmes-et-types-de-paris-pmu-bien.html">programmes et types de paris pmu bien</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/mastering-the-art-of-business-finance-personal-wealth-and-ma-82-2/">mastering the art of business finance personal wealth and ma</a> 
+<a href="https://captainjackinterview.com/mastering-the-art-of-business-personal-finance-and-marketing-82-4/">mastering the art of business personal finance and marketing</a> 
+<a href="https://captainjackinterview.com/mastering-the-art-of-effective-email-communication-tips-and/">mastering the art of effective email communication tips and</a> 
 <a href="https://captainjackinterview.com/mastering-the-art-of-personal-finance-in-business-a-marketin/">mastering the art of personal finance in business a marketin</a> 
 <a href="https://captainjackinterview.com/mastering-the-web-a-comprehensive-guide-to-trustworthy-tech-82-2/">mastering the web a comprehensive guide to trustworthy tech </a> 
 <a href="https://captainjackinterview.com/mastering-web-tech-and-content-a-comprehensive-guide-for-the-82-2/">mastering web tech and content a comprehensive guide for the</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
 <a href="https://cbd-stone.com/how-ai-driven-apps-are-transforming-our-daily-digital-lives/">how ai driven apps are transforming our daily digital lives</a> 
 <a href="https://cbd-stone.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://cbd-stone.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://cbd-stone.com/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://cbd-stone.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 

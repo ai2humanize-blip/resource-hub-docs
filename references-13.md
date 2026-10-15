@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://cbd-stone.com/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://cbd-stone.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
 <a href="https://cbd-stone.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://cbd-stone.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/navigating-the-intersection-of-web-tech-content-a-comprehens-84-5/">navigating the intersection of web tech content a comprehens</a> 
 <a href="https://cbdpuffbars.com/navigating-the-latest-trends-in-cryptocurrency-news-and-anal/">navigating the latest trends in cryptocurrency news and anal</a> 
 <a href="https://cbdpuffbars.com/navigating-the-modern-news-landscape-insights-on-business-fi-84-8/">navigating the modern news landscape insights on business fi</a> 
-<a href="https://cbdpuffbars.com/navigating-the-web-a-comprehensive-guide-to-digital-tools-on-84-4-2/">navigating the web a comprehensive guide to digital tools on</a> 
-<a href="https://cbdpuffbars.com/navigating-the-web-a-comprehensive-guide-to-digital-tools-on-84-4/">navigating the web a comprehensive guide to digital tools on</a> 
-<a href="https://cbdpuffbars.com/navigating-the-web-a-curated-guide-to-digital-tools-online-r-84-4/">navigating the web a curated guide to digital tools online r</a> 

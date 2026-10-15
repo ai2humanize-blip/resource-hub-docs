@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://autolinkrush.mex.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://autolinkrush.mex.com/how-to-build-a-personal-reading-list-2/">how to build a personal reading list 2</a> 
 <a href="https://autolinkrush.mex.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
 <a href="https://autolinkrush.mex.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
 <a href="https://autolinkrush.mex.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://autumnfallsinterview.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://autumnfallsinterview.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://autumnfallsinterview.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 

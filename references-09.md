@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
+<a href="https://autumnfallsinterview.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
@@ -799,6 +802,3 @@
 <a href="https://bigwin691.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://bigwin691.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://bigwin691.xyz/hello-world/">hello world</a> 
-<a href="https://bigwin691.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://bigwin691.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://bigwin691.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 

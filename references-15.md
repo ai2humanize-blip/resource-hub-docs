@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://cmdslot.xyz/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
+<a href="https://cmdslot.xyz/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
 <a href="https://cmdslot.xyz/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
 <a href="https://cmdslot.xyz/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
 <a href="https://cmdslot.xyz/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
 <a href="https://crediblenews24.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
 <a href="https://crediblenews24.com/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://crediblenews24.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://crediblenews24.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
