@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-43.md) · [‹ prev](references-41.md)
 
+<a href="https://livejournal.micro.blog/2026/10/07/161625.html">161625</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/161707.html">161707</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/162839.html">162839</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/162850.html">162850</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/162911.html">162911</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/162927.html">162927</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/164120.html">164120</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/164123.html">164123</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/164144.html">164144</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/165306.html">165306</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/165344.html">165344</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/165346.html">165346</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/165356.html">165356</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/170611.html">170611</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/170704.html">170704</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/170716.html">170716</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/170807.html">170807</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/171841.html">171841</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/171904.html">171904</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/171933.html">171933</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/171942.html">171942</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/173308.html">173308</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/173354.html">173354</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/173355.html">173355</a> 
@@ -781,24 +802,3 @@
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-17/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-18/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-19/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-20/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-21/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-22/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-23/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-24/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-25/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-26/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-27/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-28/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-29/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-30/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-31/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-32/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-33/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-34/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-35/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-36/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-37/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-productivity-a-comprehensive-guid-32-10-38/">mastering business finance productivity a comprehensive guid</a> 

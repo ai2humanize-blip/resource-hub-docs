@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://autolinkrush.mex.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://autolinkrush.mex.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://autolinkrush.mex.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://autolinkrush.mex.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
 <a href="https://autolinkrush.mex.com/how-to-build-a-personal-reading-list-2/">how to build a personal reading list 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
 <a href="https://autumnfallsinterview.com/understanding-daily-prayer-times-and-optimizing-instagram-fo-80-9/">understanding daily prayer times and optimizing instagram fo</a> 
 <a href="https://autumnfallsinterview.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
-<a href="https://autumnfallsinterview.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://autumnfallsinterview.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://autumnfallsinterview.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 

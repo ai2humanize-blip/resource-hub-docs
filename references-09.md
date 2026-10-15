@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
+<a href="https://autumnfallsinterview.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://autumnfallsinterview.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://autumnfallsinterview.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
 <a href="https://autumnfallsinterview.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://bigwin691.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://bigwin691.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://bigwin691.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://bigwin691.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://bigwin691.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://bigwin691.xyz/hello-world/">hello world</a> 

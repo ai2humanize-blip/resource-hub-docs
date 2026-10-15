@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bigwin691.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://bigwin691.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://bigwin691.xyz/hello-world/">hello world</a> 
 <a href="https://bigwin691.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://bigwin691.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://bigwin691.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/stealthgram-9af5f5ef/">stealthgram 9af5f5ef</a> 
 <a href="https://boostelearning.mataroa.blog/blog/stealthgram/">stealthgram</a> 
 <a href="https://boostelearning.mataroa.blog/blog/superlot2com/">superlot2com</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tablets-vs-laptops-which-one-do-you-really/">tablets vs laptops which one do you really</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tashbazzi-2ff50bee/">tashbazzi 2ff50bee</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tashbazzi-4fa43efc/">tashbazzi 4fa43efc</a> 
