@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ">QmeurAt6GcJVXChqZecvudyD4RLFrT9rkRWyVVJ7KeYhxQ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB">QmeyFbdhgZvNVj8hwr1JVaYUqq5ShN496iwMrDAbTLaiEB</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd">Qmf4rpegQPCF6Ei2CBRchroLTkgPZ7XC5nJd9iNvQLM5nd</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR">Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G">QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv">QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R">QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource-2/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
@@ -784,21 +802,3 @@
 <a href="https://labmagickite.com/essential-digital-tools-online-resources-for-understanding-c-104-4-2/">essential digital tools online resources for understanding c</a> 
 <a href="https://labmagickite.com/essential-digital-tools-online-resources-for-understanding-c-104-4-3/">essential digital tools online resources for understanding c</a> 
 <a href="https://labmagickite.com/essential-digital-tools-online-resources-for-understanding-c-104-4/">essential digital tools online resources for understanding c</a> 
-<a href="https://labmagickite.com/essential-guides-reviews-how-tos-for-a-better-life-104-6/">essential guides reviews how tos for a better life 104 6</a> 
-<a href="https://labmagickite.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://labmagickite.com/exploring-digital-tools-online-resources-for-cryptocurrency-104-4/">exploring digital tools online resources for cryptocurrency </a> 
-<a href="https://labmagickite.com/exploring-essential-digital-tools-online-resources-for-crypt-104-4/">exploring essential digital tools online resources for crypt</a> 
-<a href="https://labmagickite.com/exploring-essential-digital-tools-online-resources-for-moder-104-4/">exploring essential digital tools online resources for moder</a> 
-<a href="https://labmagickite.com/exploring-independent-music-and-ai-apps-a-comprehensive-guid-104-6/">exploring independent music and ai apps a comprehensive guid</a> 
-<a href="https://labmagickite.com/exploring-the-future-how-ai-and-apps-are-transforming-our-di/">exploring the future how ai and apps are transforming our di</a> 
-<a href="https://labmagickite.com/exploring-the-intersection-of-business-finance-and-productiv-104-8/">exploring the intersection of business finance and productiv</a> 
-<a href="https://labmagickite.com/exploring-the-intersection-of-marketing-seo-and-growth-for-b-104-7/">exploring the intersection of marketing seo and growth for b</a> 
-<a href="https://labmagickite.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-104-5-2/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://labmagickite.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-104-5/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://labmagickite.com/exploring-the-intersection-of-web-tech-and-content-in-crypto-104-5/">exploring the intersection of web tech and content in crypto</a> 
-<a href="https://labmagickite.com/exploring-the-vast-world-of-web-tech-content-resources-104-5/">exploring the vast world of web tech content resources 104 5</a> 
-<a href="https://labmagickite.com/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
-<a href="https://labmagickite.com/exploring-the-world-of-online-casinos-marketing-seo-growth-s-104-7/">exploring the world of online casinos marketing seo growth s</a> 
-<a href="https://labmagickite.com/exploring-web-tech-content-a-comprehensive-roundup-for-enthu-104-5/">exploring web tech content a comprehensive roundup for enthu</a> 
-<a href="https://labmagickite.com/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://labmagickite.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 

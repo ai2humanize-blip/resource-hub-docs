@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bigwin691.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://bigwin691.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://bigwin691.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://bigwin691.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://bigwin691.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://bigwin691.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-informed-the-latest-online-casino-and-gambling-news/">staying safe and informed the latest online casino and gambl</a> 
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-in-online-casino-and-gambling-news-04be7072/">staying safe and responsible the latest in online casino and</a> 
 <a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-in-online-casino-and-gambling-news/">staying safe and responsible the latest in online casino and</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-online-casino-and-gambling-news-40d6c682/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-online-casino-and-gambling-news-e4836bf8/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-online-casino-and-gambling-news/">staying safe and responsible the latest online casino and ga</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cmdslot.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
 <a href="https://cmdslot.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
 <a href="https://cmdslot.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
 <a href="https://cmdslot.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://crediblenews24.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
 <a href="https://crediblenews24.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://crediblenews24.com/getting-the-difference-between-skimming-and-deep-reading-online-right/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://crediblenews24.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://crediblenews24.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 

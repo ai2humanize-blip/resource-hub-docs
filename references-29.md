@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://forotesis.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
+<a href="https://forotesis.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
+<a href="https://forotesis.com/comprehensive-guides-reviews-and-how-tos-for-every-need-96-9/">comprehensive guides reviews and how tos for every need 96 9</a> 
+<a href="https://forotesis.com/cplemaire-quoi-sert-un-annuaire-du-turf/">cplemaire quoi sert un annuaire du turf</a> 
+<a href="https://forotesis.com/cyberkannadig/">cyberkannadig</a> 
+<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-96-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
+<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-96-5/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://forotesis.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://forotesis.com/digital-tools-online-resources-50-resources-worth-bookmarkin-96-2/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://forotesis.com/digital-tools-online-resources-a-comprehensive-roundup-for-m-96-7/">digital tools online resources a comprehensive roundup for m</a> 
+<a href="https://forotesis.com/digital-tools-online-resources-navigating-the-modern-news-la-96-7/">digital tools online resources navigating the modern news la</a> 
 <a href="https://forotesis.com/discover-essential-digital-tools-online-resources-for-every-96-2/">discover essential digital tools online resources for every </a> 
 <a href="https://forotesis.com/discover-the-art-of-mindful-eating-transform-your-relationsh/">discover the art of mindful eating transform your relationsh</a> 
 <a href="https://forotesis.com/discover-the-best-browser-games-digital-tools-for-endless-en-96-2/">discover the best browser games digital tools for endless en</a> 
@@ -790,15 +802,3 @@
 <a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-5/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/techvantor-xyz-resource-1-2/">techvantor xyz resource 1 2</a> 
-<a href="https://getolive.org/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-and-why-it-matters-2/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
-<a href="https://getolive.org/the-best-free-browser-games-to-play-instantly/">the best free browser games to play instantly</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 

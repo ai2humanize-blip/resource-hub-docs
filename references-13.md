@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://cbd-stone.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://cbd-stone.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://cbd-stone.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
 <a href="https://cbd-stone.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://cbd-stone.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/navigating-the-digital-world-essential-tools-resources-for-m-84-4/">navigating the digital world essential tools resources for m</a> 
 <a href="https://cbdpuffbars.com/navigating-the-digital-world-essential-tools-resources-for-o-84-4/">navigating the digital world essential tools resources for o</a> 
 <a href="https://cbdpuffbars.com/navigating-the-digital-world-how-ai-powered-apps-are-transfo-84-7/">navigating the digital world how ai powered apps are transfo</a> 
-<a href="https://cbdpuffbars.com/navigating-the-future-how-blockchain-is-transforming-cryptoc/">navigating the future how blockchain is transforming cryptoc</a> 
-<a href="https://cbdpuffbars.com/navigating-the-future-of-media-trends-ai-impact-and-expert-a-84-5/">navigating the future of media trends ai impact and expert a</a> 
-<a href="https://cbdpuffbars.com/navigating-the-future-of-news-ai-misinformation-and-the-role/">navigating the future of news ai misinformation and the role</a> 

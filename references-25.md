@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://ezoterizm.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matters/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
 <a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
 <a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide-3/">how to compare sources on the same story a quick guide 3</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-tell-explainer-journalism-from-opinion/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://fabbusinesssolutions.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
