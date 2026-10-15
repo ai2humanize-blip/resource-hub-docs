@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://cmdslot.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cmdslot.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cmdslot.xyz/a-guide-to-guest-contributing-and-press-outreach/">a guide to guest contributing and press outreach</a> 
+<a href="https://cmdslot.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cmdslot.xyz/a-practical-guide-to-working-with-independent-publishers/">a practical guide to working with independent publishers</a> 
 <a href="https://cmdslot.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -796,9 +802,3 @@
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-living-86-7/">essential digital tools online resources for modern living 8</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-producti-86-2/">essential digital tools online resources for modern producti</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-professi-86-2-2/">essential digital tools online resources for modern professi</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-professi-86-2/">essential digital tools online resources for modern professi</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-readers-86-7/">essential digital tools online resources for modern readers </a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-news-and-respon-86-7/">essential digital tools online resources for news and respon</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-seo-success-in-86-7/">essential digital tools online resources for seo success in </a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smart-internet-86-7-2/">essential digital tools online resources for smart internet </a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smart-internet-86-7/">essential digital tools online resources for smart internet </a> 

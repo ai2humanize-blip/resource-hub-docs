@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-38.md) · [‹ prev](references-36.md)
 
+<a href="https://jollibeecasino.xyz/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://jollibeecasino.xyz/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://jollibeecasino.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://jollibeecasino.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://jollibeecasino.xyz/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://jollibeecasino.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://jollibeecasino.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://jollibeecasino.xyz/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
+<a href="https://jollibeecasino.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://jollibeecasino.xyz/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://jollibeecasino.xyz/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://jollibeecasino.xyz/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://jollibeecasino.xyz/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
+<a href="https://jollibeecasino.xyz/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
+<a href="https://jollibeecasino.xyz/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://jollibeecasino.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://jollibeecasino.xyz/media-partnerships-in-the-independent-web/">media partnerships in the independent web</a> 
+<a href="https://jollibeecasino.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://jollibeecasino.xyz/oxpoll-cc-resource-3/">oxpoll cc resource 3</a> 
+<a href="https://jollibeecasino.xyz/phonespeakerclean-com-resource-3/">phonespeakerclean com resource 3</a> 
+<a href="https://jollibeecasino.xyz/practical-tech-tips-worth-knowing/">practical tech tips worth knowing</a> 
+<a href="https://jollibeecasino.xyz/quikconsolecom-net-resource-3/">quikconsolecom net resource 3</a> 
+<a href="https://jollibeecasino.xyz/renew-your-philippine-passport/">renew your philippine passport</a> 
 <a href="https://jollibeecasino.xyz/robthecoins-xyz-resource-3/">robthecoins xyz resource 3</a> 
 <a href="https://jollibeecasino.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://jollibeecasino.xyz/techvantor-xyz-resource-3/">techvantor xyz resource 3</a> 
@@ -779,26 +802,3 @@
 <a href="https://lapzoocom.it.com/comprehensive-guides-how-tos-essential-resources-for-filipin-31-9/">comprehensive guides how tos essential resources for filipin</a> 
 <a href="https://lapzoocom.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-31-9-2/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://lapzoocom.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-31-9-3/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-31-9-4/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-31-9-5/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-31-9-6/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-31-9-7/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-31-9-8/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-31-9/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-everything-you-need-31-9/">comprehensive guides reviews and how tos everything you need</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-ai-art-gpsitesl-31-9/">comprehensive guides reviews and how tos for ai art gpsitesl</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-common-phone-sp-31-9/">comprehensive guides reviews and how tos for common phone sp</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-effective-onlin-31-9/">comprehensive guides reviews and how tos for effective onlin</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-every-need-31-9/">comprehensive guides reviews and how tos for every need 31 9</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-everyday-nigeri-31-9/">comprehensive guides reviews and how tos for everyday nigeri</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-independent-cry-31-9/">comprehensive guides reviews and how tos for independent cry</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-job-seekers-and-31-9/">comprehensive guides reviews and how tos for job seekers and</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-kerala-lottery-31-9/">comprehensive guides reviews and how tos for kerala lottery </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-mastering-teen-31-9/">comprehensive guides reviews and how tos for mastering teen </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-for-tech-career-suc-31-9/">comprehensive guides reviews and how tos for tech career suc</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-navigating-key-reso-31-9/">comprehensive guides reviews and how tos navigating key reso</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-on-the-air-quality-31-9/">comprehensive guides reviews and how tos on the air quality </a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-31-9-2/">comprehensive guides reviews and how tos your go to resource</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-31-9-3/">comprehensive guides reviews and how tos your go to resource</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-31-9-4/">comprehensive guides reviews and how tos your go to resource</a> 
-<a href="https://lapzoocom.it.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-31-9-5/">comprehensive guides reviews and how tos your go to resource</a> 

@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://betjili1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://betjili1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://betjili1.xyz/hello-world/">hello world</a> 
+<a href="https://betjili1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://betjili1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://betjili1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://betjili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
@@ -798,7 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-a1f186f6/">seminole casino coconut creek gaming dining and entertainmen</a> 
 <a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-a60af273/">seminole casino coconut creek gaming dining and entertainmen</a> 
 <a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-f82fa944/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-f8a20e47/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seo-content-strategy-modest-business-navigate-ai-win/">seo content strategy modest business navigate ai win</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serp-insight-link-insertion/">serp insight link insertion</a> 
