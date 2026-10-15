@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://cmdslot.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://cmdslot.xyz/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://cmdslot.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://cmdslot.xyz/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cmdslot.xyz/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://cmdslot.xyz/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cmdslot.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://cmdslot.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
+<a href="https://cmdslot.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://cmdslot.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://cmdslot.xyz/how-small-publishers-keep-advertising-transparent/">how small publishers keep advertising transparent</a> 
+<a href="https://cmdslot.xyz/how-surnames-get-their-meanings-a-practical-guide/">how surnames get their meanings a practical guide</a> 
 <a href="https://cmdslot.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://cmdslot.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://cmdslot.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
@@ -343,6 +356,7 @@
 <a href="https://competitorscreenshots.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
 <a href="https://competitorscreenshots.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
 <a href="https://competitorscreenshots.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
+<a href="https://competitorscreenshots.com/cota-es-de-cripto-no-brasil/">cota es de cripto no brasil</a> 
 <a href="https://competitorscreenshots.com/crypto-taxes-explained-records-events-and-reporting-basics/">crypto taxes explained records events and reporting basics</a> 
 <a href="https://competitorscreenshots.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://competitorscreenshots.com/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
@@ -728,6 +742,7 @@
 <a href="https://crediblenews24.com/comprehensive-guides-reviews-and-how-tos-for-every-need-86-9/">comprehensive guides reviews and how tos for every need 86 9</a> 
 <a href="https://crediblenews24.com/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
 <a href="https://crediblenews24.com/creating-online-polls-and-surveys-and-reading-results-what-t/">creating online polls and surveys and reading results what t</a> 
+<a href="https://crediblenews24.com/criptano/">criptano</a> 
 <a href="https://crediblenews24.com/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
 <a href="https://crediblenews24.com/decoding-the-latest-global-news-trends-expert-analysis-and-i/">decoding the latest global news trends expert analysis and i</a> 
 <a href="https://crediblenews24.com/decoding-today-s-news-landscape-in-depth-analysis-and-expert/">decoding today s news landscape in depth analysis and expert</a> 
@@ -787,18 +802,3 @@
 <a href="https://crediblenews24.com/exploring-the-intersection-of-web-tech-and-content-editor-s-86-8/">exploring the intersection of web tech and content editor s </a> 
 <a href="https://crediblenews24.com/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
 <a href="https://crediblenews24.com/exploring-the-world-of-online-casinos-guides-reviews-how-tos-86-9/">exploring the world of online casinos guides reviews how tos</a> 
-<a href="https://crediblenews24.com/exploring-web-tech-content-from-online-casinos-to-crypto-new-86-8/">exploring web tech content from online casinos to crypto new</a> 
-<a href="https://crediblenews24.com/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://crediblenews24.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://crediblenews24.com/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://crediblenews24.com/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
-<a href="https://crediblenews24.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://crediblenews24.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://crediblenews24.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://crediblenews24.com/getting-how-to-fact-check-something-in-five-minutes-right-2/">getting how to fact check something in five minutes right 2</a> 
-<a href="https://crediblenews24.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://crediblenews24.com/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://crediblenews24.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://crediblenews24.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://crediblenews24.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://crediblenews24.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 

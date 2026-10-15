@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://358casino.co.bz/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
 <a href="https://358casino.co.bz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
 <a href="https://358casino.co.bz/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
 <a href="https://358casino.co.bz/turf-pour-d-butants-par-o-commencer/">turf pour d butants par o commencer</a> 
@@ -537,6 +538,7 @@
 <a href="https://agenciainmobiliaria.xyz/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
 <a href="https://agenciainmobiliaria.xyz/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://agenciainmobiliaria.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://agenciainmobiliaria.xyz/mercado-de-criptomoedas/">mercado de criptomoedas</a> 
 <a href="https://agenciainmobiliaria.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://agenciainmobiliaria.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
 <a href="https://agenciainmobiliaria.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
@@ -800,5 +802,3 @@
 <a href="https://agriculture-lawyer.com/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
 <a href="https://agriculture-lawyer.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
 <a href="https://agriculture-lawyer.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://agriculture-lawyer.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it-matters/">how to read the news without getting overwhelmed and why it </a> 
-<a href="https://agriculture-lawyer.com/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 

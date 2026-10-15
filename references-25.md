@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://ezoterizm.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://ezoterizm.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://ezoterizm.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://ezoterizm.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://ezoterizm.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://ezoterizm.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://ezoterizm.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
+<a href="https://ezoterizm.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://ezoterizm.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://ezoterizm.com/how-ai-driven-apps-are-transforming-our-daily-digital-experi/">how ai driven apps are transforming our daily digital experi</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-revolutionizing-daily-life-and-work/">how ai powered apps are revolutionizing daily life and work</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-privacy/">how ai powered apps are transforming daily life and privacy</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work-3/">how ai powered apps are transforming daily life and work 3</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://ezoterizm.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://ezoterizm.com/how-recent-economic-trends-are-shaping-global-currency-marke/">how recent economic trends are shaping global currency marke</a> 
+<a href="https://ezoterizm.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
 <a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://ezoterizm.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matters/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://fabbusinesssolutions.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-94-5/">unpacking today s top news in depth analysis and expert insi</a> 
 <a href="https://fabbusinesssolutions.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
 <a href="https://fabbusinesssolutions.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
-<a href="https://fabbusinesssolutions.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-50-resources-worth-bookmarking-94-10-2/">web tech content 50 resources worth bookmarking 94 10 2</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-50-resources-worth-bookmarking-94-10-3/">web tech content 50 resources worth bookmarking 94 10 3</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-50-resources-worth-bookmarking-94-10/">web tech content 50 resources worth bookmarking 94 10</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-94-5/">web tech content a comprehensive guide to navigating the dig</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-your-ultimate-guide-to-digital-productivity-94-5/">web tech content your ultimate guide to digital productivity</a> 
-<a href="https://fabbusinesssolutions.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
-<a href="https://fabbusinesssolutions.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://fabbusinesssolutions.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://fabbusinesssolutions.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-compare-sources-on-the-same-story-2/">what to know about how to compare sources on the same story </a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-fact-check-something-in-five-minutes/">what to know about how to fact check something in five minut</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-read-the-news-without-getting-over-2/">what to know about how to read the news without getting over</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-tell-explainer-journalism-from-opinion/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 

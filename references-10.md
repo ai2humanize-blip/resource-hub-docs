@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://better1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://better1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://better1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://better1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://better1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://better1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://better1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://bigwin691.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://bigwin691.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://bigwin691.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://bigwin691.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -374,6 +382,8 @@
 <a href="https://boostelearning.mataroa.blog/blog/couple-gagnant-place-ordre-4dbf19bf/">couple gagnant place ordre 4dbf19bf</a> 
 <a href="https://boostelearning.mataroa.blog/blog/couple-gagnant-place-ordre-99bae58a/">couple gagnant place ordre 99bae58a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/couple-gagnant-place-ordre/">couple gagnant place ordre</a> 
+<a href="https://boostelearning.mataroa.blog/blog/criptano/">criptano</a> 
+<a href="https://boostelearning.mataroa.blog/blog/criptanocom/">criptanocom</a> 
 <a href="https://boostelearning.mataroa.blog/blog/crypto-card-vs-bank-card-5497334b/">crypto card vs bank card 5497334b</a> 
 <a href="https://boostelearning.mataroa.blog/blog/crypto-card-vs-bank-card-840f3f0a/">crypto card vs bank card 840f3f0a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/crypto-card-vs-bank-card-85c8b30a/">crypto card vs bank card 85c8b30a</a> 
@@ -792,13 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/staking-explained-4c6681ec/">staking explained 4c6681ec</a> 
 <a href="https://boostelearning.mataroa.blog/blog/staking-explained-d6b64f75/">staking explained d6b64f75</a> 
 <a href="https://boostelearning.mataroa.blog/blog/staking-explained/">staking explained</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staycluedup-7404f4b2/">staycluedup 7404f4b2</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staycluedup-9dd44fe4/">staycluedup 9dd44fe4</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staycluedup-ab8393a3/">staycluedup ab8393a3</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staycluedup-c2b557ea/">staycluedup c2b557ea</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staycluedup-eae0ad7e/">staycluedup eae0ad7e</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staycluedup/">staycluedup</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-informed-the-latest-in-online-casino-and-gambling-news/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-informed-the-latest-online-casino-and-gambling-news/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-in-online-casino-and-gambling-news-04be7072/">staying safe and responsible the latest in online casino and</a> 
-<a href="https://boostelearning.mataroa.blog/blog/staying-safe-and-responsible-the-latest-in-online-casino-and-gambling-news/">staying safe and responsible the latest in online casino and</a> 

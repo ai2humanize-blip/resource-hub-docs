@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-explained-simp-2/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
 <a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-explained-simply/">how to tell explainer journalism from opinion explained simp</a> 
 <a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
 <a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
@@ -799,6 +802,3 @@
 <a href="https://alientapereviews.com/revolutionizing-daily-life-how-smart-apps-are-transforming-o/">revolutionizing daily life how smart apps are transforming o</a> 
 <a href="https://alientapereviews.com/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
 <a href="https://alientapereviews.com/serpinsightlinkinsertion-overview-and-latest-updates/">serpinsightlinkinsertion overview and latest updates</a> 
-<a href="https://alientapereviews.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
-<a href="https://alientapereviews.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://alientapereviews.com/stay-updated-guides-reviews-how-tos-for-new-movies-and-shows-78-7/">stay updated guides reviews how tos for new movies and shows</a> 
