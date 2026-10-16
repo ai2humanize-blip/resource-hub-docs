@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/navigating-the-future-of-business-finance-productivity-key-t-25-2/">navigating the future of business finance productivity key t</a> 
+<a href="https://app.zentrack.net/navigating-the-future-of-finance-understanding-bitcoin-block-25-2/">navigating the future of finance understanding bitcoin block</a> 
+<a href="https://app.zentrack.net/navigating-the-future-of-news-business-finance-and-ai-in-mod-25-2/">navigating the future of news business finance and ai in mod</a> 
 <a href="https://app.zentrack.net/navigating-the-future-of-news-expert-analysis-and-key-insigh-25-2/">navigating the future of news expert analysis and key insigh</a> 
 <a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-and-producti-25-2-10/">navigating the intersection of business finance and producti</a> 
 <a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-and-producti-25-2-2/">navigating the intersection of business finance and producti</a> 
@@ -799,6 +802,3 @@
 <a href="https://autolinkrush.mex.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://autolinkrush.mex.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://autolinkrush.mex.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://autolinkrush.mex.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://autolinkrush.mex.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://autolinkrush.mex.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 

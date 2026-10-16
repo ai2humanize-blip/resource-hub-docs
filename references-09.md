@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
+<a href="https://autumnfallsinterview.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
+<a href="https://autumnfallsinterview.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
 <a href="https://autumnfallsinterview.com/transform-your-life-with-these-essential-digital-tools-onlin-80-3/">transform your life with these essential digital tools onlin</a> 
 <a href="https://autumnfallsinterview.com/transforming-daily-life-a-deep-dive-into-ai-powered-apps-and-80-10/">transforming daily life a deep dive into ai powered apps and</a> 
 <a href="https://autumnfallsinterview.com/transforming-daily-life-the-impact-of-ai-powered-apps-on-mod/">transforming daily life the impact of ai powered apps on mod</a> 
@@ -799,6 +802,3 @@
 <a href="https://bespoke-sorbet-0255c9.netlify.app/festivals.html">festivals</a> 
 <a href="https://bespoke-starlight-e8a311.netlify.app/end-to-end-encryption-what-it-protects.html">end to end encryption what it protects</a> 
 <a href="https://betjili1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://betjili1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://betjili1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://betjili1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 

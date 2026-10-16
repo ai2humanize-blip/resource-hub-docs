@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://betjili1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://betjili1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://betjili1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://betjili1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://betjili1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://betjili1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-343430b7/">see why blck tokens fantastic investment 343430b7</a> 
 <a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-5f801258/">see why blck tokens fantastic investment 5f801258</a> 
 <a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-7d21518e/">see why blck tokens fantastic investment 7d21518e</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-aace945f/">see why blck tokens fantastic investment aace945f</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-d90b2ea6/">see why blck tokens fantastic investment d90b2ea6</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment/">see why blck tokens fantastic investment</a> 

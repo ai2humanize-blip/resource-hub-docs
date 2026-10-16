@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://autolinkrush.mex.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://autolinkrush.mex.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
 <a href="https://autolinkrush.mex.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
 <a href="https://autolinkrush.mex.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
 <a href="https://autolinkrush.mex.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
 <a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
 <a href="https://autumnfallsinterview.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://autumnfallsinterview.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
-<a href="https://autumnfallsinterview.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
-<a href="https://autumnfallsinterview.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
