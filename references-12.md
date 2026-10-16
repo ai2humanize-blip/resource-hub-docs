@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters-2/">how to tell if a website is trustworthy and why it matters 2</a> 
+<a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://captainjackinterview.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
 <a href="https://captainjackinterview.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
 <a href="https://captainjackinterview.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
 <a href="https://captainjackinterview.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://cbd-stone.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-o/">breaking down the latest news in depth analysis and expert o</a> 
 <a href="https://cbd-stone.com/breaking-down-today-s-top-news-analysis-insights-and-what-it/">breaking down today s top news analysis insights and what it</a> 
-<a href="https://cbd-stone.com/breaking-down-today-s-top-news-in-depth-analysis-and-expert/">breaking down today s top news in depth analysis and expert</a> 
-<a href="https://cbd-stone.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://cbd-stone.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
