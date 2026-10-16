@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bespoke-figolla-d1d214.netlify.app/ai-policy.html">ai policy</a> 
+<a href="https://bespoke-horse-83b6c6.netlify.app/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://bespoke-rolypoly-56c3ad.netlify.app/daily-aqi.html">daily aqi</a> 
+<a href="https://bespoke-sorbet-0255c9.netlify.app/festivals.html">festivals</a> 
+<a href="https://bespoke-starlight-e8a311.netlify.app/end-to-end-encryption-what-it-protects.html">end to end encryption what it protects</a> 
+<a href="https://betjili1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://betjili1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://betjili1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://betjili1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -409,6 +415,7 @@
 <a href="https://boostelearning.mataroa.blog/blog/couple-gagnant-place-ordre-4dbf19bf/">couple gagnant place ordre 4dbf19bf</a> 
 <a href="https://boostelearning.mataroa.blog/blog/couple-gagnant-place-ordre-99bae58a/">couple gagnant place ordre 99bae58a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/couple-gagnant-place-ordre/">couple gagnant place ordre</a> 
+<a href="https://boostelearning.mataroa.blog/blog/criptano-2cc2c4f6/">criptano 2cc2c4f6</a> 
 <a href="https://boostelearning.mataroa.blog/blog/criptano/">criptano</a> 
 <a href="https://boostelearning.mataroa.blog/blog/criptanocom/">criptanocom</a> 
 <a href="https://boostelearning.mataroa.blog/blog/crypto-card-vs-bank-card-5497334b/">crypto card vs bank card 5497334b</a> 
@@ -795,10 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/satsspindecom-fd5eaa2b/">satsspindecom fd5eaa2b</a> 
 <a href="https://boostelearning.mataroa.blog/blog/satsspindecom/">satsspindecom</a> 
 <a href="https://boostelearning.mataroa.blog/blog/scenefordummies-1fb014fc/">scenefordummies 1fb014fc</a> 
-<a href="https://boostelearning.mataroa.blog/blog/scenefordummies-806c239d/">scenefordummies 806c239d</a> 
-<a href="https://boostelearning.mataroa.blog/blog/scenefordummies-9bfe8b29/">scenefordummies 9bfe8b29</a> 
-<a href="https://boostelearning.mataroa.blog/blog/scenefordummies-ebf257b7/">scenefordummies ebf257b7</a> 
-<a href="https://boostelearning.mataroa.blog/blog/scenefordummies/">scenefordummies</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-343430b7/">see why blck tokens fantastic investment 343430b7</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-5f801258/">see why blck tokens fantastic investment 5f801258</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-7d21518e/">see why blck tokens fantastic investment 7d21518e</a> 

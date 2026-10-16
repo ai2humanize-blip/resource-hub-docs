@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/navigating-the-future-of-business-finance-productivity-in-cr-25-2-2/">navigating the future of business finance productivity in cr</a> 
+<a href="https://app.zentrack.net/navigating-the-future-of-business-finance-productivity-in-cr-25-2/">navigating the future of business finance productivity in cr</a> 
+<a href="https://app.zentrack.net/navigating-the-future-of-business-finance-productivity-in-e-25-2/">navigating the future of business finance productivity in e </a> 
 <a href="https://app.zentrack.net/navigating-the-future-of-business-finance-productivity-key-t-25-2/">navigating the future of business finance productivity key t</a> 
 <a href="https://app.zentrack.net/navigating-the-future-of-finance-understanding-bitcoin-block-25-2/">navigating the future of finance understanding bitcoin block</a> 
 <a href="https://app.zentrack.net/navigating-the-future-of-news-business-finance-and-ai-in-mod-25-2/">navigating the future of news business finance and ai in mod</a> 
@@ -799,6 +802,3 @@
 <a href="https://autolinkrush.mex.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://autolinkrush.mex.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://autolinkrush.mex.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://autolinkrush.mex.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://autolinkrush.mex.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://autolinkrush.mex.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 

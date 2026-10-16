@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
+<a href="https://autumnfallsinterview.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://autumnfallsinterview.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
 <a href="https://autumnfallsinterview.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
 <a href="https://autumnfallsinterview.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
@@ -694,6 +697,7 @@
 <a href="https://be1.ru/stat/coinpric.com">coinpric.com</a> 
 <a href="https://be1.ru/stat/conisec.com">conisec.com</a> 
 <a href="https://be1.ru/stat/cplemaire.co">cplemaire.co</a> 
+<a href="https://be1.ru/stat/criptano.com">criptano.com</a> 
 <a href="https://be1.ru/stat/crunchbanglinux.org">crunchbanglinux.org</a> 
 <a href="https://be1.ru/stat/crypto-house.net">crypto house.net</a> 
 <a href="https://be1.ru/stat/cryptocardscout.com">cryptocardscout.com</a> 
@@ -715,6 +719,7 @@
 <a href="https://be1.ru/stat/ecoinsupply.com">ecoinsupply.com</a> 
 <a href="https://be1.ru/stat/ecoonomia.com">ecoonomia.com</a> 
 <a href="https://be1.ru/stat/etherelysium.com">etherelysium.com</a> 
+<a href="https://be1.ru/stat/footyntel.com">footyntel.com</a> 
 <a href="https://be1.ru/stat/foxperiodical.com">foxperiodical.com</a> 
 <a href="https://be1.ru/stat/fullimedia.com.co">fullimedia.com.co</a> 
 <a href="https://be1.ru/stat/getcryptomedia.com">getcryptomedia.com</a> 
@@ -749,6 +754,7 @@
 <a href="https://be1.ru/stat/robthecoins.xyz">robthecoins.xyz</a> 
 <a href="https://be1.ru/stat/roo2ya.com">roo2ya.com</a> 
 <a href="https://be1.ru/stat/sabiguide.com">sabiguide.com</a> 
+<a href="https://be1.ru/stat/safar.to">safar.to</a> 
 <a href="https://be1.ru/stat/satsspin.de.com">satsspin.de.com</a> 
 <a href="https://be1.ru/stat/sattapedia.com">sattapedia.com</a> 
 <a href="https://be1.ru/stat/scenefordummies.com">scenefordummies.com</a> 
@@ -796,9 +802,3 @@
 <a href="https://beamish-crostata-ff3227.netlify.app/navigating-the-latest-news-expert-insights-and-analysis-for-.html">navigating the latest news expert insights and analysis for</a> 
 <a href="https://beautiful-manatee-47cb7d.netlify.app/a-simple-framework-for-researching-any-topic-online-the-basi.html">a simple framework for researching any topic online the basi</a> 
 <a href="https://bespoke-dragon-c0e891.netlify.app/best-time-to-visit-japan.html">best time to visit japan</a> 
-<a href="https://bespoke-figolla-d1d214.netlify.app/ai-policy.html">ai policy</a> 
-<a href="https://bespoke-horse-83b6c6.netlify.app/banner-ad-sites.html">banner ad sites</a> 
-<a href="https://bespoke-rolypoly-56c3ad.netlify.app/daily-aqi.html">daily aqi</a> 
-<a href="https://bespoke-sorbet-0255c9.netlify.app/festivals.html">festivals</a> 
-<a href="https://bespoke-starlight-e8a311.netlify.app/end-to-end-encryption-what-it-protects.html">end to end encryption what it protects</a> 
-<a href="https://betjili1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 

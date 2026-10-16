@@ -143,6 +143,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://tokentimes.in/">tokentimes.in</a> 
 <a href="https://footyntel.com/">footyntel.com</a> 
 <a href="https://safar.to/">safar.to</a> 
+<a href="https://criptano.com/">criptano.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -214,7 +215,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 67](references-67.md)
 - [Reference set 68](references-68.md)
 
-_53,721 curated references across 68 sets._
+_53,785 curated references across 68 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)

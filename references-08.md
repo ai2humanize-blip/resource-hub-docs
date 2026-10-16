@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://autolinkrush.mex.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://autolinkrush.mex.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
 <a href="https://autolinkrush.mex.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
 <a href="https://autolinkrush.mex.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
 <a href="https://autolinkrush.mex.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
 <a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
-<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
-<a href="https://autumnfallsinterview.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
