@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://358casino.co.bz/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://358casino.co.bz/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
 <a href="https://358casino.co.bz/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
 <a href="https://358casino.co.bz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
@@ -97,6 +98,7 @@
 <a href="https://5starsstocks.it.com/creating-online-polls-and-surveys-and-reading-results-what-t/">creating online polls and surveys and reading results what t</a> 
 <a href="https://5starsstocks.it.com/cryptocurrency-news-and-market-explainers-what-to-know/">cryptocurrency news and market explainers what to know</a> 
 <a href="https://5starsstocks.it.com/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
+<a href="https://5starsstocks.it.com/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
 <a href="https://5starsstocks.it.com/finding-a-unique-baby-name-without-going-too-far-a-quick-gui/">finding a unique baby name without going too far a quick gui</a> 
 <a href="https://5starsstocks.it.com/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
 <a href="https://5starsstocks.it.com/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
@@ -310,6 +312,7 @@
 <a href="https://666game.com.im/blog/understanding-taxable-events-in-cryptocurrency/">understanding taxable events in cryptocurrency</a> 
 <a href="https://666game.com.im/blog/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
 <a href="https://666game.com.im/blog/water-stuck-in-your-phone-speaker-what-actually-helps/">water stuck in your phone speaker what actually helps</a> 
+<a href="https://666game.com.im/blog/what-a-blockchain-actually-is-and-how-it-works/">what a blockchain actually is and how it works</a> 
 <a href="https://666game.com.im/blog/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
 <a href="https://6bet1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://6bet1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
@@ -505,6 +508,7 @@
 <a href="https://agenciainmobiliaria.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://agenciainmobiliaria.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
 <a href="https://agenciainmobiliaria.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://agenciainmobiliaria.xyz/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
 <a href="https://agenciainmobiliaria.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://agenciainmobiliaria.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://agenciainmobiliaria.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
@@ -772,6 +776,7 @@
 <a href="https://agriculture-lawyer.com/how-ai-powered-apps-are-revolutionizing-our-digital-lives/">how ai powered apps are revolutionizing our digital lives</a> 
 <a href="https://agriculture-lawyer.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
 <a href="https://agriculture-lawyer.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://agriculture-lawyer.com/how-crypto-exchanges-work-and-what-to-understand-before-usin/">how crypto exchanges work and what to understand before usin</a> 
 <a href="https://agriculture-lawyer.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://agriculture-lawyer.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://agriculture-lawyer.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
@@ -797,8 +802,3 @@
 <a href="https://agriculture-lawyer.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
 <a href="https://agriculture-lawyer.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
 <a href="https://agriculture-lawyer.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://agriculture-lawyer.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://agriculture-lawyer.com/how-to-leverage-personal-finance-strategies-for-business-gro/">how to leverage personal finance strategies for business gro</a> 
-<a href="https://agriculture-lawyer.com/how-to-leverage-technology-and-apps-for-enhanced-productivit/">how to leverage technology and apps for enhanced productivit</a> 
-<a href="https://agriculture-lawyer.com/how-to-optimize-your-digital-life-apps-and-tools-for-a-more/">how to optimize your digital life apps and tools for a more</a> 
-<a href="https://agriculture-lawyer.com/how-to-organize-the-information-you-find-online-and-why-it-matters/">how to organize the information you find online and why it m</a> 
