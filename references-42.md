@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-43.md) · [‹ prev](references-41.md)
 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-compare-sources-on.html">how to compare sources on</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-evaluate-online-reviews.html">how to evaluate online reviews</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-factcheck-something-in.html">how to factcheck something in</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-find-balanced-coverage.html">how to find balanced coverage</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-find-reliable-howto.html">how to find reliable howto</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-get-the-most.html">how to get the most</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-read-the-news.html">how to read the news</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-tell-explainer-journalism.html">how to tell explainer journalism</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-tell-if-a.html">how to tell if a</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/how-to-use-the-web.html">how to use the web</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/making-sense-of-complex-topics.html">making sense of complex topics</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/recognizing-credible-experts-online-a.html">recognizing credible experts online a</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/recognizing-credible-experts-online-explained.html">recognizing credible experts online explained</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/simple-habits-of-a-smart.html">simple habits of a smart</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/the-basics-of-staying-safe.html">the basics of staying safe</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/the-difference-between-skimming-and.html">the difference between skimming and</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/the-value-of-slow-careful.html">the value of slow careful</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/understanding-digital-literacy-the-basics.html">understanding digital literacy the basics</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/understanding-digital-literacy.html">understanding digital literacy</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/understanding-how-search-engines-rank.html">understanding how search engines rank</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/what-to-know-about-how.html">what to know about how</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/what-to-know-about-the.html">what to know about the</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/what-to-know-about-what.html">what to know about what</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/what-to-know-about-why.html">what to know about why</a> 
@@ -781,24 +802,3 @@
 <a href="https://llmseoservices.org/exploring-the-synergy-of-marketing-seo-growth-in-today-s-tec-32-4/">exploring the synergy of marketing seo growth in today s tec</a> 
 <a href="https://llmseoservices.org/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
 <a href="https://llmseoservices.org/exploring-the-world-of-online-casinos-marketing-seo-growth-s-32-9/">exploring the world of online casinos marketing seo growth s</a> 
-<a href="https://llmseoservices.org/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://llmseoservices.org/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
-<a href="https://llmseoservices.org/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://llmseoservices.org/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
-<a href="https://llmseoservices.org/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://llmseoservices.org/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://llmseoservices.org/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://llmseoservices.org/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
-<a href="https://llmseoservices.org/getting-building-a-healthy-daily-reading-habit-right-3/">getting building a healthy daily reading habit right 3</a> 
-<a href="https://llmseoservices.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://llmseoservices.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://llmseoservices.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://llmseoservices.org/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://llmseoservices.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://llmseoservices.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://llmseoservices.org/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://llmseoservices.org/getting-what-to-look-for-in-a-good-news-website-right-2/">getting what to look for in a good news website right 2</a> 
-<a href="https://llmseoservices.org/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://llmseoservices.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://llmseoservices.org/guides-reviews-how-tos-32-resources-worth-bookmarking-32-8/">guides reviews how tos 32 resources worth bookmarking 32 8</a> 
-<a href="https://llmseoservices.org/guides-reviews-how-tos-40-resources-worth-bookmarking-32-8/">guides reviews how tos 40 resources worth bookmarking 32 8</a> 

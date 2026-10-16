@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://betjili1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://betjili1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://betjili1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://betjili1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://betjili1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://betjili1.xyz/hello-world/">hello world</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-aace945f/">see why blck tokens fantastic investment aace945f</a> 
 <a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-d90b2ea6/">see why blck tokens fantastic investment d90b2ea6</a> 
 <a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment/">see why blck tokens fantastic investment</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-a1f186f6/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-a60af273/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-f82fa944/">seminole casino coconut creek gaming dining and entertainmen</a> 

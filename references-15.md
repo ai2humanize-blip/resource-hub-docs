@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cmdslot.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-makes-an-explainer-article-genuinely-useful/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
 <a href="https://cmdslot.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://cmdslot.xyz/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://cmdslot.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-crypto-enthusia-86-7/">essential digital tools online resources for crypto enthusia</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-informed-resear-86-7/">essential digital tools online resources for informed resear</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-learning-and-re-86-7/">essential digital tools online resources for learning and re</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-living-86-7/">essential digital tools online resources for modern living 8</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-producti-86-2/">essential digital tools online resources for modern producti</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-professi-86-2-2/">essential digital tools online resources for modern professi</a> 
