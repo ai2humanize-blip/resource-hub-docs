@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cheerful-puppy-82ee92.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://cheerful-starburst-03062f.netlify.app/hbar-price-consolidates-below-155-as-momentum-remains.html">hbar price consolidates below 155 as momentum remains</a> 
+<a href="https://cheery-gumdrop-041658.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
+<a href="https://chic-dolphin-58d29d.netlify.app/safar.html">safar</a> 
 <a href="https://chic-lebkuchen-987391.netlify.app/navigating-the-complex-world-of-today-s-news-explainer-analy.html">navigating the complex world of today s news explainer analy</a> 
 <a href="https://chic-rugelach-51d637.netlify.app/how-to-evaluate-online-reviews-and-recommendations-and-why-i.html">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://chic-treacle-53b6d3.netlify.app/getting-building-a-healthy-daily-reading-habit-right.html">getting building a healthy daily reading habit right</a> 
@@ -798,7 +802,3 @@
 <a href="https://crediblenews24.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://crediblenews24.com/digital-tools-online-resources-50-resources-worth-bookmarkin-86-2/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://crediblenews24.com/discover-essential-digital-tools-online-resources-for-every-86-2/">discover essential digital tools online resources for every </a> 
-<a href="https://crediblenews24.com/discover-the-art-of-home-coffee-brewing-a-beginner-s-guide/">discover the art of home coffee brewing a beginner s guide</a> 
-<a href="https://crediblenews24.com/discover-the-best-ai-art-prompt-generators-online-creative-t-86-7/">discover the best ai art prompt generators online creative t</a> 
-<a href="https://crediblenews24.com/discover-the-best-browser-games-digital-tools-for-endless-en-86-2/">discover the best browser games digital tools for endless en</a> 
-<a href="https://crediblenews24.com/discover-the-best-digital-tools-online-resources-for-success-86-2/">discover the best digital tools online resources for success</a> 

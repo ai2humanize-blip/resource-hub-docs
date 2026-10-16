@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-38.md) · [‹ prev](references-36.md)
 
+<a href="https://jocular-mochi-a6bb1f.netlify.app/thecryptoonline.html">thecryptoonline</a> 
+<a href="https://jocular-sorbet-c06007.netlify.app/verify-crypto-claim.html">verify crypto claim</a> 
+<a href="https://jocular-twilight-448119.netlify.app/understanding-today-s-news-landscape-analysis-trends-and-rel.html">understanding today s news landscape analysis trends and rel</a> 
+<a href="https://john-doe-1234-curated-web.static.hf.space/index.html">index</a> 
+<a href="https://jollibee7771.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://jollibee7771.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://jollibee7771.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://jollibee7771.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://jollibee7771.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://jollibee7771.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://jollibee7771.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://jollibee7771.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://jollibee7771.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://jollibee7771.xyz/hello-world/">hello world</a> 
+<a href="https://jollibee7771.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://jollibee7771.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://jollibee7771.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://jollibee7771.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://jollibee7771.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://jollibee7771.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://jollibee7771.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://jollibeecasino.xyz/a-beginner-s-guide-to-understanding-ai-image-generation/">a beginner s guide to understanding ai image generation</a> 
@@ -783,22 +802,3 @@
 <a href="https://landscape-paintings.net/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
 <a href="https://landscape-paintings.net/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
 <a href="https://landscape-paintings.net/understanding-how-search-engines-rank-pages-and-why-it-matte-2/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://landscape-paintings.net/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://landscape-paintings.net/understanding-legal-information-and-news-a-comprehensive-gui/">understanding legal information and news a comprehensive gui</a> 
-<a href="https://landscape-paintings.net/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
-<a href="https://landscape-paintings.net/understanding-the-impact-of-ai-on-modern-news-consumption-an/">understanding the impact of ai on modern news consumption an</a> 
-<a href="https://landscape-paintings.net/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://landscape-paintings.net/understanding-the-intersection-of-marketing-seo-growth-a-com-105-6/">understanding the intersection of marketing seo growth a com</a> 
-<a href="https://landscape-paintings.net/understanding-the-latest-developments-in-ai-and-their-impact/">understanding the latest developments in ai and their impact</a> 
-<a href="https://landscape-paintings.net/understanding-the-latest-trends-in-news-consumption-a-deep-d/">understanding the latest trends in news consumption a deep d</a> 
-<a href="https://landscape-paintings.net/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://landscape-paintings.net/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
-<a href="https://landscape-paintings.net/unleashing-the-ultimate-event-planning-guide-creative-ideas-105-7/">unleashing the ultimate event planning guide creative ideas </a> 
-<a href="https://landscape-paintings.net/unlocking-growth-mastering-marketing-seo-and-beyond-105-6/">unlocking growth mastering marketing seo and beyond 105 6</a> 
-<a href="https://landscape-paintings.net/unlocking-the-power-of-compound-interest-a-beginner-s-guide/">unlocking the power of compound interest a beginner s guide</a> 
-<a href="https://landscape-paintings.net/unlocking-the-power-of-emotional-intelligence-in-everyday-li/">unlocking the power of emotional intelligence in everyday li</a> 
-<a href="https://landscape-paintings.net/web-tech-content-50-resources-worth-bookmarking-105-9-2/">web tech content 50 resources worth bookmarking 105 9 2</a> 
-<a href="https://landscape-paintings.net/web-tech-content-50-resources-worth-bookmarking-105-9/">web tech content 50 resources worth bookmarking 105 9</a> 
-<a href="https://landscape-paintings.net/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
-<a href="https://landscape-paintings.net/what-makes-an-explainer-article-genuinely-useful-2/">what makes an explainer article genuinely useful 2</a> 
-<a href="https://landscape-paintings.net/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 

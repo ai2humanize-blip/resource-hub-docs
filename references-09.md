@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
 <a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
 <a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
 <a href="https://autumnfallsinterview.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
@@ -799,6 +802,3 @@
 <a href="https://be1.ru/stat/voozon.xyz">voozon.xyz</a> 
 <a href="https://be1.ru/stat/wellorganichealth.in.net">wellorganichealth.in.net</a> 
 <a href="https://be1.ru/stat/worldgeek.net">worldgeek.net</a> 
-<a href="https://beamish-crostata-ff3227.netlify.app/navigating-the-latest-news-expert-insights-and-analysis-for-.html">navigating the latest news expert insights and analysis for</a> 
-<a href="https://beautiful-manatee-47cb7d.netlify.app/a-simple-framework-for-researching-any-topic-online-the-basi.html">a simple framework for researching any topic online the basi</a> 
-<a href="https://bespoke-dragon-c0e891.netlify.app/best-time-to-visit-japan.html">best time to visit japan</a> 

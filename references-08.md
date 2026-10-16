@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://autolinkrush.mex.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://autolinkrush.mex.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://autolinkrush.mex.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://autolinkrush.mex.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://autolinkrush.mex.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://autolinkrush.mex.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/the-ultimate-guide-to-casinos-without-spelpaus-top-brands-ti-80-6/">the ultimate guide to casinos without spelpaus top brands ti</a> 
 <a href="https://autumnfallsinterview.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-any-occ/">the ultimate guide to choosing the perfect watch for any occ</a> 
 <a href="https://autumnfallsinterview.com/the-ultimate-guide-to-starting-a-home-based-online-business-80-10/">the ultimate guide to starting a home based online business </a> 
-<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
-<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://autumnfallsinterview.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 

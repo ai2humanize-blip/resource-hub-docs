@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-5-2/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-5/">mastering business finance productivity a comprehensive guid</a> 
+<a href="https://captainjackinterview.com/mastering-business-personal-finance-and-marketing-a-comprehe/">mastering business personal finance and marketing a comprehe</a> 
+<a href="https://captainjackinterview.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-82-3/">mastering digital literacy guides reviews and how tos for th</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-guides-reviews-and-how-tos-a-comprehensive-guide-t-82-3/">mastering guides reviews and how tos a comprehensive guide t</a> 
 <a href="https://captainjackinterview.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-82-3/">mastering guides reviews and how tos a comprehensive roundup</a> 
@@ -798,7 +802,3 @@
 <a href="https://cbd-stone.com/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 
 <a href="https://cbd-stone.com/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
 <a href="https://cbd-stone.com/creating-online-polls-and-surveys-and-reading-results-what-t/">creating online polls and surveys and reading results what t</a> 
-<a href="https://cbd-stone.com/criptano/">criptano</a> 
-<a href="https://cbd-stone.com/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://cbd-stone.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-83-3/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
-<a href="https://cbd-stone.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
