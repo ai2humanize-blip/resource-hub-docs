@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://charming-medovik-8d449b.netlify.app/getting-how-to-fact-check-something-in-five-minutes-right.html">getting how to fact check something in five minutes right</a> 
+<a href="https://charming-swallow.staticdomains.app/">charming-swallow.staticdomains.app</a> 
+<a href="https://cheerful-malasada-491fa0.netlify.app/rare-boy-names.html">rare boy names</a> 
 <a href="https://cheerful-puppy-82ee92.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cheerful-starburst-03062f.netlify.app/hbar-price-consolidates-below-155-as-momentum-remains.html">hbar price consolidates below 155 as momentum remains</a> 
 <a href="https://cheery-gumdrop-041658.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/decoding-the-latest-global-news-trends-expert-analysis-and-i/">decoding the latest global news trends expert analysis and i</a> 
 <a href="https://crediblenews24.com/decoding-today-s-news-landscape-in-depth-analysis-and-expert/">decoding today s news landscape in depth analysis and expert</a> 
 <a href="https://crediblenews24.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-86-6/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://crediblenews24.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://crediblenews24.com/digital-tools-online-resources-50-resources-worth-bookmarkin-86-2/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://crediblenews24.com/discover-essential-digital-tools-online-resources-for-every-86-2/">discover essential digital tools online resources for every </a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://cbdpuffbars.com/mastering-online-research-guides-reviews-how-tos-for-smarter-84-6/">mastering online research guides reviews how tos for smarter</a> 
+<a href="https://cbdpuffbars.com/mastering-personal-finance-and-marketing-for-business-growth/">mastering personal finance and marketing for business growth</a> 
+<a href="https://cbdpuffbars.com/mastering-the-art-of-business-finance-and-marketing-integrat/">mastering the art of business finance and marketing integrat</a> 
 <a href="https://cbdpuffbars.com/mastering-the-art-of-business-growth-personal-finance-and-ma/">mastering the art of business growth personal finance and ma</a> 
 <a href="https://cbdpuffbars.com/mastering-the-art-of-home-coffee-brewing-a-comprehensive-gui/">mastering the art of home coffee brewing a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-the-digital-landscape-essential-tools-resources-fo-84-4-2/">mastering the digital landscape essential tools resources fo</a> 
@@ -799,6 +802,3 @@
 <a href="https://celebrated-gaufre-016892.netlify.app/cloud-backlinks.html">cloud backlinks</a> 
 <a href="https://cerulean-bublanina-f42bdd.netlify.app/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen.html">a closer look at how to evaluate online reviews and recommen</a> 
 <a href="https://cerulean-nasturtium-0d72ff.netlify.app/the-value-of-slow-careful-reading-explained-simply.html">the value of slow careful reading explained simply</a> 
-<a href="https://charming-medovik-8d449b.netlify.app/getting-how-to-fact-check-something-in-five-minutes-right.html">getting how to fact check something in five minutes right</a> 
-<a href="https://charming-swallow.staticdomains.app/">charming-swallow.staticdomains.app</a> 
-<a href="https://cheerful-malasada-491fa0.netlify.app/rare-boy-names.html">rare boy names</a> 
