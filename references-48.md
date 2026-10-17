@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-49.md) · [‹ prev](references-47.md)
 
+<a href="https://marketingslave.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://marketingslave.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://marketingslave.com/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
+<a href="https://marketingslave.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://marketingslave.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://marketingslave.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://marketingslave.com/guides-reviews-how-tos-50-resources-worth-bookmarking-108-2/">guides reviews how tos 50 resources worth bookmarking 108 2</a> 
+<a href="https://marketingslave.com/how-ai-and-machine-learning-are-transforming-everyday-apps-2/">how ai and machine learning are transforming everyday apps 2</a> 
+<a href="https://marketingslave.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://marketingslave.com/how-ai-and-machine-learning-are-transforming-news-reporting/">how ai and machine learning are transforming news reporting</a> 
+<a href="https://marketingslave.com/how-ai-powered-apps-are-transforming-everyday-life-for-the-b/">how ai powered apps are transforming everyday life for the b</a> 
+<a href="https://marketingslave.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://marketingslave.com/how-crypto-cashback-and-rewards-cards-actually-work/">how crypto cashback and rewards cards actually work</a> 
+<a href="https://marketingslave.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://marketingslave.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype-a-quick-guide-2/">how to avoid misinformation and hype a quick guide 2</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype-explained-simply-2/">how to avoid misinformation and hype explained simply 2</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://marketingslave.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://marketingslave.com/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
 <a href="https://marketingslave.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://marketingslave.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://marketingslave.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
@@ -781,24 +802,3 @@
 <a href="https://modernwritingdesk.com/common-questions-answered-14/">common questions answered 14</a> 
 <a href="https://modernwritingdesk.com/common-questions-answered-15/">common questions answered 15</a> 
 <a href="https://modernwritingdesk.com/common-questions-answered-16/">common questions answered 16</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-17/">common questions answered 17</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-18/">common questions answered 18</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-19/">common questions answered 19</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-2/">common questions answered 2</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-20/">common questions answered 20</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-21/">common questions answered 21</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-22/">common questions answered 22</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-6/">common questions answered 6</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-7/">common questions answered 7</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-8/">common questions answered 8</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://modernwritingdesk.com/common-questions-answered/">common questions answered</a> 
-<a href="https://modernwritingdesk.com/comprehensive-guides-reviews-and-how-tos-navigating-legal-an-110-10/">comprehensive guides reviews and how tos navigating legal an</a> 
-<a href="https://modernwritingdesk.com/comprehensive-roundup-guides-reviews-how-tos-for-every-inter-110-10/">comprehensive roundup guides reviews how tos for every inter</a> 
-<a href="https://modernwritingdesk.com/cplemaire-quoi-sert-un-annuaire-du-turf/">cplemaire quoi sert un annuaire du turf</a> 
-<a href="https://modernwritingdesk.com/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
-<a href="https://modernwritingdesk.com/demystifying-cryptocurrency-a-practical-guide-to-bitcoin-and/">demystifying cryptocurrency a practical guide to bitcoin and</a> 
-<a href="https://modernwritingdesk.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
