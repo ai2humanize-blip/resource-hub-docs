@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://crackstube7.wordpress.com/2026/09/02/explainer-journalism-making-sense-of-how-the-world-works/">explainer journalism making sense of how the world works</a> 
+<a href="https://crackstube7.wordpress.com/2026/09/02/independent-crypto-and-finance-news-to-follow-in-2026/">independent crypto and finance news to follow in 2026</a> 
+<a href="https://crackstube7.wordpress.com/2026/09/02/independent-news-and-explainer-sites-worth-following-in-2026/">independent news and explainer sites worth following in 2026</a> 
 <a href="https://crackstube7.wordpress.com/2026/09/02/practical-tech-guides-and-digital-resources-worth-bookmarking/">practical tech guides and digital resources worth bookmarkin</a> 
 <a href="https://creative-dieffenbachia-31cde3.netlify.app/a-closer-look-at-the-basics-of-staying-safe-while-browsing.html">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://creativecasinoties.com/gindex.html">gindex</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/daily-watch-reports.html">daily watch reports</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/dailywatchreportscom-your-trusted.html">dailywatchreportscom your trusted</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/dalle-3-prompts.html">dalle 3 prompts</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/debtforecom-your-trusted-source-for.html">debtforecom your trusted source for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/demystifying-cryptocurrency.html">demystifying cryptocurrency</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/digital-literacy-karnataka.html">digital literacy karnataka</a> 

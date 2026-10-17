@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/master-digital-tools-online-resources-for-smarter-browsing-a-84-4/">master digital tools online resources for smarter browsing a</a> 
 <a href="https://cbdpuffbars.com/master-event-planning-your-ultimate-guide-to-organizing-memo/">master event planning your ultimate guide to organizing memo</a> 
 <a href="https://cbdpuffbars.com/master-the-digital-world-essential-tools-resources-for-smart-84-4/">master the digital world essential tools resources for smart</a> 
-<a href="https://cbdpuffbars.com/master-the-web-a-comprehensive-guide-to-essential-digital-to-84-4/">master the web a comprehensive guide to essential digital to</a> 
-<a href="https://cbdpuffbars.com/master-the-web-essential-digital-tools-online-resources-for-84-4/">master the web essential digital tools online resources for </a> 
-<a href="https://cbdpuffbars.com/mastering-business-finance-and-productivity-a-comprehensive-84-3-2/">mastering business finance and productivity a comprehensive </a> 
