@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cplemaire.us.org/how-to-keep-clean-auditable-cryptocurrency-transaction-recor/">how to keep clean auditable cryptocurrency transaction recor</a> 
+<a href="https://cplemaire.us.org/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
+<a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
+<a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
+<a href="https://cplemaire.us.org/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
+<a href="https://cplemaire.us.org/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
+<a href="https://cplemaire.us.org/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
+<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://cplemaire.us.org/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
+<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
+<a href="https://cplemaire.us.org/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
+<a href="https://cplemaire.us.org/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://cplemaire.us.org/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
+<a href="https://cplemaire.us.org/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
+<a href="https://cplemaire.us.org/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
+<a href="https://cplemaire.us.org/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
 <a href="https://cplemaire.us.org/licensing-and-player-protections-in-regulated-gambling-marke/">licensing and player protections in regulated gambling marke</a> 
 <a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
 <a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
@@ -646,6 +664,7 @@
 <a href="https://croginalcats.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://croginalcats.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://croginalcats.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://croginalcats.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
 <a href="https://croginalcats.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://croginalcats.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
 <a href="https://croginalcats.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
@@ -783,22 +802,3 @@
 <a href="https://cup88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://cup88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cup88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://cup88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cup88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://cup88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-write-for-fashion-blogs-guest-posting-guide.html">how to write for fashion blogs guest posting guide</a> 
-<a href="https://curated-resource-hub-na0i.bolt.host/">curated-resource-hub-na0i.bolt.host</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/curated-independent-resources">curated independent resources</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-asianpinay-3">resource asianpinay 3</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-baginda168-13">resource baginda168 13</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-beauty-tips-well-health-organic-8">resource beauty tips well health organic 8</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-chandlerweekly-com-4">resource chandlerweekly com 4</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-dailywatchreports-com-5">resource dailywatchreports com 5</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-getjobsnews-com-11">resource getjobsnews com 11</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-illicitlabel-com-underground-music-authority-14">resource illicitlabel com underground music authority 14</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-litigationlawyer-12">resource litigationlawyer 12</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-peopleonthenews-com-6">resource peopleonthenews com 6</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-reportspedia-com-7">resource reportspedia com 7</a> 

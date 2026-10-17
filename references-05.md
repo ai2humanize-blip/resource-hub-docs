@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://algiamedical.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://algiamedical.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://algiamedical.com/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
+<a href="https://algiamedical.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
 <a href="https://algiamedical.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://algiamedical.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
 <a href="https://algiamedical.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
@@ -798,7 +802,3 @@
 <a href="https://alientapereviews.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
 <a href="https://alientapereviews.com/mastering-personal-finance-business-and-marketing-a-comprehe-78-2/">mastering personal finance business and marketing a comprehe</a> 
 <a href="https://alientapereviews.com/mastering-personal-finance-how-strategic-debt-management-can-2/">mastering personal finance how strategic debt management can</a> 
-<a href="https://alientapereviews.com/mastering-personal-finance-marketing-and-business-growth-a-s-78-8/">mastering personal finance marketing and business growth a s</a> 
-<a href="https://alientapereviews.com/mastering-the-art-of-business-finance-and-productivity-a-com-78-9/">mastering the art of business finance and productivity a com</a> 
-<a href="https://alientapereviews.com/mastering-the-art-of-business-personal-finance-and-marketing-78-8/">mastering the art of business personal finance and marketing</a> 
-<a href="https://alientapereviews.com/mastering-the-art-of-online-music-discovery-a-practical-guid-78-8/">mastering the art of online music discovery a practical guid</a> 

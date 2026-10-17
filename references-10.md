@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://be1.ru/stat/bitcoindigital.info">bitcoindigital.info</a> 
+<a href="https://be1.ru/stat/bitcoinlogical.com">bitcoinlogical.com</a> 
+<a href="https://be1.ru/stat/bitcoinprime.info">bitcoinprime.info</a> 
+<a href="https://be1.ru/stat/bitcointalk.co.bz">bitcointalk.co.bz</a> 
+<a href="https://be1.ru/stat/bitjackpot.de.com">bitjackpot.de.com</a> 
+<a href="https://be1.ru/stat/blackpearlbitcoin.com">blackpearlbitcoin.com</a> 
 <a href="https://be1.ru/stat/blocklist.co.kr">blocklist.co.kr</a> 
 <a href="https://be1.ru/stat/blueflamepublishingblog.xyz">blueflamepublishingblog.xyz</a> 
 <a href="https://be1.ru/stat/boostelearning.com">boostelearning.com</a> 
@@ -578,6 +584,11 @@
 <a href="https://boostelearning.mataroa.blog/blog/currencynews-b9dc193b/">currencynews b9dc193b</a> 
 <a href="https://boostelearning.mataroa.blog/blog/currencynews/">currencynews</a> 
 <a href="https://boostelearning.mataroa.blog/blog/daily-news-briefing/">daily news briefing</a> 
+<a href="https://boostelearning.mataroa.blog/blog/daily-results-today-6f4867da/">daily results today 6f4867da</a> 
+<a href="https://boostelearning.mataroa.blog/blog/daily-results-today-93030015/">daily results today 93030015</a> 
+<a href="https://boostelearning.mataroa.blog/blog/daily-results-today-dbc435ad/">daily results today dbc435ad</a> 
+<a href="https://boostelearning.mataroa.blog/blog/daily-results-today-fd7d7aa0/">daily results today fd7d7aa0</a> 
+<a href="https://boostelearning.mataroa.blog/blog/daily-results-today/">daily results today</a> 
 <a href="https://boostelearning.mataroa.blog/blog/dba-or-phd-how-to-choose-the-business/">dba or phd how to choose the business</a> 
 <a href="https://boostelearning.mataroa.blog/blog/demystifying-cryptocurrency-a-beginners-guide-to-bitcoin-and-blockchain/">demystifying cryptocurrency a beginners guide to bitcoin and</a> 
 <a href="https://boostelearning.mataroa.blog/blog/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practical-guide-for-beginners-b25f3aa2/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
@@ -791,14 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/methods-d78a1889/">methods d78a1889</a> 
 <a href="https://boostelearning.mataroa.blog/blog/methods-ec21094d/">methods ec21094d</a> 
 <a href="https://boostelearning.mataroa.blog/blog/methods-f19f1d3f/">methods f19f1d3f</a> 
-<a href="https://boostelearning.mataroa.blog/blog/methods/">methods</a> 
-<a href="https://boostelearning.mataroa.blog/blog/micannamarketing/">micannamarketing</a> 
-<a href="https://boostelearning.mataroa.blog/blog/mining-profitability-explained-the-only-four-numbers-0b64cb75/">mining profitability explained the only four numbers 0b64cb7</a> 
-<a href="https://boostelearning.mataroa.blog/blog/mining-profitability-explained-the-only-four-numbers-44539cb0/">mining profitability explained the only four numbers 44539cb</a> 
-<a href="https://boostelearning.mataroa.blog/blog/mining-profitability-explained-the-only-four-numbers-64872fd5/">mining profitability explained the only four numbers 64872fd</a> 
-<a href="https://boostelearning.mataroa.blog/blog/mining-profitability-explained-the-only-four-numbers-c5a3bd77/">mining profitability explained the only four numbers c5a3bd7</a> 
-<a href="https://boostelearning.mataroa.blog/blog/mining-profitability-explained-the-only-four-numbers/">mining profitability explained the only four numbers</a> 
-<a href="https://boostelearning.mataroa.blog/blog/momin-khan-momin-04affab9/">momin khan momin 04affab9</a> 
-<a href="https://boostelearning.mataroa.blog/blog/momin-khan-momin-4ee59aee/">momin khan momin 4ee59aee</a> 
-<a href="https://boostelearning.mataroa.blog/blog/momin-khan-momin-9fc71dca/">momin khan momin 9fc71dca</a> 
-<a href="https://boostelearning.mataroa.blog/blog/momin-khan-momin-eea6ad33/">momin khan momin eea6ad33</a> 

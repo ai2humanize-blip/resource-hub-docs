@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://casinonutanlicens.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://casinonutanlicens.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://casinonutanlicens.xyz/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://casinonutanlicens.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://casinonutanlicens.xyz/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://casinonutanlicens.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://casinonutanlicens.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://casinonutanlicens.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://casinonutanlicens.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://casinonutanlicens.xyz/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://casinonutanlicens.xyz/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://casinonutanlicens.xyz/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://casinonutanlicens.xyz/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://casinonutanlicens.xyz/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
 <a href="https://casinonutanlicens.xyz/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
 <a href="https://casinonutanlicens.xyz/how-to-find-trustworthy-websites-and-tools-online-2/">how to find trustworthy websites and tools online 2</a> 
 <a href="https://casinonutanlicens.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
@@ -788,17 +802,3 @@
 <a href="https://cbdpuffbars.com/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
 <a href="https://cbdpuffbars.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
 <a href="https://cbdpuffbars.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://cbdpuffbars.com/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
-<a href="https://cbdpuffbars.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://cbdpuffbars.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://cbdpuffbars.com/getting-how-to-evaluate-online-reviews-and-recommendations-r-2/">getting how to evaluate online reviews and recommendations r</a> 
-<a href="https://cbdpuffbars.com/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
-<a href="https://cbdpuffbars.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
-<a href="https://cbdpuffbars.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://cbdpuffbars.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://cbdpuffbars.com/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
-<a href="https://cbdpuffbars.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://cbdpuffbars.com/getting-the-basics-of-staying-safe-while-browsing-right-2/">getting the basics of staying safe while browsing right 2</a> 
-<a href="https://cbdpuffbars.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://cbdpuffbars.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://cbdpuffbars.com/getting-understanding-how-search-engines-rank-pages-right-2/">getting understanding how search engines rank pages right 2</a> 
