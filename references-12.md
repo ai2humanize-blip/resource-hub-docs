@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
+<a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
 <a href="https://captainjackinterview.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
 <a href="https://captainjackinterview.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
 <a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://casinonutanlicens.xyz/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://casinonutanlicens.xyz/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://casinonutanlicens.xyz/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
-<a href="https://cbd-stone.com/10-organic-living-tips-for-a-healthier-mind-body-and-home/">10 organic living tips for a healthier mind body and home</a> 
-<a href="https://cbd-stone.com/5-innovative-apps-transforming-the-digital-world-in-2023/">5 innovative apps transforming the digital world in 2023</a> 
-<a href="https://cbd-stone.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 

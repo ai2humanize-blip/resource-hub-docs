@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/10-organic-living-tips-for-a-healthier-mind-body-and-home/">10 organic living tips for a healthier mind body and home</a> 
+<a href="https://cbd-stone.com/5-innovative-apps-transforming-the-digital-world-in-2023/">5 innovative apps transforming the digital world in 2023</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
 <a href="https://cbdpuffbars.com/independent-daily-reporting/">independent daily reporting</a> 
 <a href="https://cbdpuffbars.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://cbdpuffbars.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://cbdpuffbars.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
-<a href="https://cbdpuffbars.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 

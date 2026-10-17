@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-145c5dd5/">proof of work vs proof of stake 145c5dd5</a> 
+<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-5c62dbff/">proof of work vs proof of stake 5c62dbff</a> 
+<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-820b8037/">proof of work vs proof of stake 820b8037</a> 
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-9e306d7a/">proof of work vs proof of stake 9e306d7a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-fc0f3275/">proof of work vs proof of stake fc0f3275</a> 
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake/">proof of work vs proof of stake</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
 <a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://captainjackinterview.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
-<a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
-<a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 

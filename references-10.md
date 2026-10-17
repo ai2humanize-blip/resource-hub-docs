@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://be1.ru/stat/phonespeakerclean.com">phonespeakerclean.com</a> 
+<a href="https://be1.ru/stat/pqrnews.com">pqrnews.com</a> 
+<a href="https://be1.ru/stat/quikconsolecom.net">quikconsolecom.net</a> 
 <a href="https://be1.ru/stat/reportspedia.com">reportspedia.com</a> 
 <a href="https://be1.ru/stat/retirewithcrypto.net">retirewithcrypto.net</a> 
 <a href="https://be1.ru/stat/robthecoins.xyz">robthecoins.xyz</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-insurance-to-be-added-738357f2/">proof of insurance to be added 738357f2</a> 
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-insurance-to-be-added-d7574a48/">proof of insurance to be added d7574a48</a> 
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-insurance-to-be-added/">proof of insurance to be added</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-145c5dd5/">proof of work vs proof of stake 145c5dd5</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-5c62dbff/">proof of work vs proof of stake 5c62dbff</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-820b8037/">proof of work vs proof of stake 820b8037</a> 
