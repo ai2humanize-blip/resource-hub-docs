@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-38.md) · [‹ prev](references-36.md)
 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://ireplicadealers.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://jade-beijinho-3b8585.netlify.app/getting-how-to-compare-sources-on-the-same-story-right.html">getting how to compare sources on the same story right</a> 
+<a href="https://jade-frangipane-89c0aa.netlify.app/getting-how-to-tell-if-a-website-is-trustworthy-right.html">getting how to tell if a website is trustworthy right</a> 
+<a href="https://jade-kleicha-7f0232.netlify.app/uk-gambling-age-explained.html">uk gambling age explained</a> 
+<a href="https://jade-longma-010dbd.netlify.app/bitcoincasinosnews.html">bitcoincasinosnews</a> 
+<a href="https://jade-tapioca-2356ad.netlify.app/how-ai-powered-apps-are-revolutionizing-daily-life.html">how ai powered apps are revolutionizing daily life</a> 
+<a href="https://jazzy-kataifi-a35f21.netlify.app/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://jiliok1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://jiliok1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://jiliok1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://jiliok1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://jiliok1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://jiliok1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://jiliok1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://jiliok1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://jiliok1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://jiliok1.xyz/hello-world/">hello world</a> 
 <a href="https://jiliok1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://jiliok1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
@@ -784,21 +802,3 @@
 <a href="https://landscape-paintings.net/essential-digital-tools-online-resources-for-modern-needs-105-8/">essential digital tools online resources for modern needs 10</a> 
 <a href="https://landscape-paintings.net/essential-digital-tools-online-resources-for-modern-professi-105-8/">essential digital tools online resources for modern professi</a> 
 <a href="https://landscape-paintings.net/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://landscape-paintings.net/exploring-cryptocurrency-bitcoin-and-blockchain-guides-revie-105-5/">exploring cryptocurrency bitcoin and blockchain guides revie</a> 
-<a href="https://landscape-paintings.net/exploring-essential-digital-tools-online-resources-for-moder-105-8/">exploring essential digital tools online resources for moder</a> 
-<a href="https://landscape-paintings.net/exploring-the-best-in-web-tech-content-a-comprehensive-round-105-9/">exploring the best in web tech content a comprehensive round</a> 
-<a href="https://landscape-paintings.net/exploring-the-future-of-news-ai-trends-and-reliable-sources-105-5/">exploring the future of news ai trends and reliable sources </a> 
-<a href="https://landscape-paintings.net/exploring-the-intersection-of-web-tech-and-content-a-compreh-105-4/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://landscape-paintings.net/exploring-the-intersection-of-web-tech-and-content-in-the-di-105-4/">exploring the intersection of web tech and content in the di</a> 
-<a href="https://landscape-paintings.net/exploring-the-latest-trends-in-online-gambling-and-cryptocur-105-5/">exploring the latest trends in online gambling and cryptocur</a> 
-<a href="https://landscape-paintings.net/exploring-the-latest-trends-in-web-tech-and-content-for-a-sm-105-4/">exploring the latest trends in web tech and content for a sm</a> 
-<a href="https://landscape-paintings.net/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
-<a href="https://landscape-paintings.net/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://landscape-paintings.net/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://landscape-paintings.net/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://landscape-paintings.net/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
-<a href="https://landscape-paintings.net/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://landscape-paintings.net/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://landscape-paintings.net/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://landscape-paintings.net/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://landscape-paintings.net/getting-how-to-compare-sources-on-the-same-story-right-2/">getting how to compare sources on the same story right 2</a> 

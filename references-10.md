@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://be1.ru/stat/roo2ya.com">roo2ya.com</a> 
+<a href="https://be1.ru/stat/sabiguide.com">sabiguide.com</a> 
+<a href="https://be1.ru/stat/safar.to">safar.to</a> 
 <a href="https://be1.ru/stat/satsspin.de.com">satsspin.de.com</a> 
 <a href="https://be1.ru/stat/sattapedia.com">sattapedia.com</a> 
 <a href="https://be1.ru/stat/scenefordummies.com">scenefordummies.com</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-9e306d7a/">proof of work vs proof of stake 9e306d7a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-fc0f3275/">proof of work vs proof of stake fc0f3275</a> 
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake/">proof of work vs proof of stake</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-08069893/">quikconsolecom 08069893</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-2ebf9264/">quikconsolecom 2ebf9264</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-3f34b222/">quikconsolecom 3f34b222</a> 

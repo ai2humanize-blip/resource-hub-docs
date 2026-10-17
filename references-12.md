@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://captainjackinterview.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://captainjackinterview.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
 <a href="https://captainjackinterview.com/how-to-evaluate-online-reviews-and-recommendations-the-basics/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://captainjackinterview.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://cbd-stone.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://cbd-stone.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-3/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://cbd-stone.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 

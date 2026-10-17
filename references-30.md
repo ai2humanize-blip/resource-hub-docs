@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://getolive.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://getolive.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://getolive.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine-2/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://getolive.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://getolive.org/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
+<a href="https://getolive.org/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://getolive.org/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
+<a href="https://getolive.org/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://getolive.org/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
+<a href="https://getolive.org/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://getolive.org/boosting-business-mastering-finance-and-amplifying-productiv-97-5/">boosting business mastering finance and amplifying productiv</a> 
 <a href="https://getolive.org/boosting-your-business-and-personal-finances-smart-marketing/">boosting your business and personal finances smart marketing</a> 
 <a href="https://getolive.org/breaking-down-the-latest-sports-news-and-in-depth-analysis-f/">breaking down the latest sports news and in depth analysis f</a> 
@@ -493,6 +505,7 @@
 <a href="https://globespro.it.com/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
 <a href="https://globespro.it.com/building-your-personal-web-toolkit-guides-reviews-how-tos-29-6/">building your personal web toolkit guides reviews how tos 29</a> 
 <a href="https://globespro.it.com/casinon-utan-spelpaus-en-guide-till-alternativ-utanf-r-speli/">casinon utan spelpaus en guide till alternativ utanf r speli</a> 
+<a href="https://globespro.it.com/choosing-the-perfect-baby-name-guides-reviews-how-tos-29-6/">choosing the perfect baby name guides reviews how tos 29 6</a> 
 <a href="https://globespro.it.com/choosing-the-perfect-restaurant-a-guide-to-culinary-delight-29-7/">choosing the perfect restaurant a guide to culinary delight </a> 
 <a href="https://globespro.it.com/choosing-the-right-elearning-platform-for-your-learning-goal/">choosing the right elearning platform for your learning goal</a> 
 <a href="https://globespro.it.com/comprehensive-guide-to-ai-art-generators-online-safety-and-s-29-6/">comprehensive guide to ai art generators online safety and s</a> 
@@ -789,16 +802,3 @@
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6/">guides reviews how tos 50 resources worth bookmarking 29 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-mastering-crypto-and-blockchain-topic-29-6/">guides reviews how tos mastering crypto and blockchain topic</a> 
 <a href="https://globespro.it.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
-<a href="https://globespro.it.com/how-ai-is-transforming-news-reporting-current-trends-and-fut/">how ai is transforming news reporting current trends and fut</a> 
-<a href="https://globespro.it.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
-<a href="https://globespro.it.com/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
-<a href="https://globespro.it.com/how-crypto-cards-work-and-how-to-compare-them/">how crypto cards work and how to compare them</a> 
-<a href="https://globespro.it.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
-<a href="https://globespro.it.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
-<a href="https://globespro.it.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
-<a href="https://globespro.it.com/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
-<a href="https://globespro.it.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
-<a href="https://globespro.it.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
-<a href="https://globespro.it.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
-<a href="https://globespro.it.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
-<a href="https://globespro.it.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cplemaire.us.org/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://cplemaire.us.org/why-phone-speakers-sound-muffled-and-how-to-fix-it/">why phone speakers sound muffled and how to fix it</a> 
+<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
 <a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://cplemaire.us.org/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/currencynewsco-your-trusted-source-for.html">currencynewsco your trusted source for</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/cyber-kannadigas.html">cyber kannadigas</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/cyberkannadig-your-go-to-source-for.html">cyberkannadig your go to source for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/cyberkannadig.html">cyberkannadig</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/cybersecurity-awareness-india.html">cybersecurity awareness india</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/daily-news-briefing.html">daily news briefing</a> 

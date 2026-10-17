@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://arcadefloristbedford.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://arcadefloristbedford.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
+<a href="https://arcadefloristbedford.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
 <a href="https://arcadefloristbedford.com/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
 <a href="https://arcadefloristbedford.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://arcadefloristbedford.com/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/navigating-the-world-of-cryptocurrency-a-fresh-perspective-o/">navigating the world of cryptocurrency a fresh perspective o</a> 
 <a href="https://autumnfallsinterview.com/navigating-the-world-of-cryptocurrency-bitcoin-and-blockchai/">navigating the world of cryptocurrency bitcoin and blockchai</a> 
 <a href="https://autumnfallsinterview.com/navigating-the-world-of-cryptocurrency-bitcoin-blockchain-an/">navigating the world of cryptocurrency bitcoin blockchain an</a> 
-<a href="https://autumnfallsinterview.com/navigating-zakat-a-comprehensive-guide-to-obligations-calcul-80-9/">navigating zakat a comprehensive guide to obligations calcul</a> 
-<a href="https://autumnfallsinterview.com/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
-<a href="https://autumnfallsinterview.com/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-3/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini-2/">a closer look at how to tell explainer journalism from opini</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 
 <a href="https://cbdpuffbars.com/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
 <a href="https://cbdpuffbars.com/le-turf-pour-d-butants-lire-et-suivre-les-courses-hippiques/">le turf pour d butants lire et suivre les courses hippiques</a> 
-<a href="https://cbdpuffbars.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-84-5/">making sense of today s fast paced news cycle a comprehensiv</a> 
-<a href="https://cbdpuffbars.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://cbdpuffbars.com/master-digital-tools-online-resources-a-comprehensive-guide-84-4/">master digital tools online resources a comprehensive guide </a> 
