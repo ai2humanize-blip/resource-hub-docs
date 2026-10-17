@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini-2/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online/">a closer look at the difference between skimming and deep re</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-84-5/">making sense of today s fast paced news cycle a comprehensiv</a> 
 <a href="https://cbdpuffbars.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cbdpuffbars.com/master-digital-tools-online-resources-a-comprehensive-guide-84-4/">master digital tools online resources a comprehensive guide </a> 
-<a href="https://cbdpuffbars.com/master-digital-tools-online-resources-for-smarter-browsing-a-84-4/">master digital tools online resources for smarter browsing a</a> 
-<a href="https://cbdpuffbars.com/master-event-planning-your-ultimate-guide-to-organizing-memo/">master event planning your ultimate guide to organizing memo</a> 
-<a href="https://cbdpuffbars.com/master-the-digital-world-essential-tools-resources-for-smart-84-4/">master the digital world essential tools resources for smart</a> 

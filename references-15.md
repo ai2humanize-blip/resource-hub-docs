@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cbdstent.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
+<a href="https://cbdstent.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
+<a href="https://cbdstent.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
 <a href="https://cbdstent.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
 <a href="https://cbdstent.com/understanding-legal-news-how-to-stay-informed-and-make-sense/">understanding legal news how to stay informed and make sense</a> 
 <a href="https://cbdstent.com/understanding-ott-platforms-where-new-shows-and-movies-premi/">understanding ott platforms where new shows and movies premi</a> 
@@ -799,6 +802,3 @@
 <a href="https://cplemaire.us.org/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
 <a href="https://cplemaire.us.org/why-phone-speakers-sound-muffled-and-how-to-fix-it/">why phone speakers sound muffled and how to fix it</a> 
 <a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://cplemaire.us.org/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 

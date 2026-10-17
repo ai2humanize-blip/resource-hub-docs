@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://cplemaire.us.org/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
 <a href="https://crackstube7.wordpress.com/2026/09/02/explainer-journalism-making-sense-of-how-the-world-works/">explainer journalism making sense of how the world works</a> 
 <a href="https://crackstube7.wordpress.com/2026/09/02/independent-crypto-and-finance-news-to-follow-in-2026/">independent crypto and finance news to follow in 2026</a> 
 <a href="https://crackstube7.wordpress.com/2026/09/02/independent-news-and-explainer-sites-worth-following-in-2026/">independent news and explainer sites worth following in 2026</a> 
@@ -799,6 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/cyberkannadig.html">cyberkannadig</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/cybersecurity-awareness-india.html">cybersecurity awareness india</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/daily-news-briefing.html">daily news briefing</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/daily-watch-reports.html">daily watch reports</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/dailywatchreportscom-your-trusted.html">dailywatchreportscom your trusted</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/dalle-3-prompts.html">dalle 3 prompts</a> 

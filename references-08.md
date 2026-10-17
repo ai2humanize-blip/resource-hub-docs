@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://arcadefloristbedford.com/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
+<a href="https://arcadefloristbedford.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://arcadefloristbedford.com/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://arcadefloristbedford.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://arcadefloristbedford.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
 <a href="https://arcadefloristbedford.com/what-to-know-about-why-context-matters-when-reading-online-3/">what to know about why context matters when reading online 3</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/navigating-zakat-a-comprehensive-guide-to-obligations-calcul-80-9/">navigating zakat a comprehensive guide to obligations calcul</a> 
 <a href="https://autumnfallsinterview.com/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
 <a href="https://autumnfallsinterview.com/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
-<a href="https://autumnfallsinterview.com/pronostics-turf-gratuits-ce-qu-ils-valent-vraiment/">pronostics turf gratuits ce qu ils valent vraiment</a> 
-<a href="https://autumnfallsinterview.com/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
-<a href="https://autumnfallsinterview.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
