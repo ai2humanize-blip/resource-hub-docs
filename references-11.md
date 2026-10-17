@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-9e306d7a/">proof of work vs proof of stake 9e306d7a</a> 
+<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-fc0f3275/">proof of work vs proof of stake fc0f3275</a> 
+<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake/">proof of work vs proof of stake</a> 
 <a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-08069893/">quikconsolecom 08069893</a> 
 <a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-2ebf9264/">quikconsolecom 2ebf9264</a> 
 <a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-3f34b222/">quikconsolecom 3f34b222</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
 <a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
 <a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://captainjackinterview.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://captainjackinterview.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
-<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 

@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://genuine-nougat-24966b.netlify.app/discover-the-transformative-power-of-music-education-for-chi.html">discover the transformative power of music education for chi</a> 
+<a href="https://getolive.org/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opinion/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy-2/">a closer look at how to tell if a website is trustworthy 2</a> 
+<a href="https://getolive.org/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://getolive.org/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://getolive.org/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://getolive.org/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://getolive.org/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://getolive.org/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://getolive.org/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://getolive.org/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -522,6 +534,7 @@
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-13/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-14/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-15/">comprehensive guides in depth reviews and practical how tos </a> 
+<a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-16/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-2/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-3/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://globespro.it.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-29-6-4/">comprehensive guides in depth reviews and practical how tos </a> 
@@ -549,6 +562,7 @@
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-29-6-5/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-29-6-6/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-29-6-7/">comprehensive guides reviews and how tos for crypto enthusia</a> 
+<a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-29-6-8/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-29-6/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-cryptocurrency-29-6/">comprehensive guides reviews and how tos for cryptocurrency </a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-daily-aqi-hijri-29-6/">comprehensive guides reviews and how tos for daily aqi hijri</a> 
@@ -563,6 +577,7 @@
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-optimizing-your-29-6/">comprehensive guides reviews and how tos for optimizing your</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-seo-and-content-29-6/">comprehensive guides reviews and how tos for seo and content</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-sports-enthusia-29-6/">comprehensive guides reviews and how tos for sports enthusia</a> 
+<a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-travelers-etias-29-6/">comprehensive guides reviews and how tos for travelers etias</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-for-turf-pmu-and-ho-29-6/">comprehensive guides reviews and how tos for turf pmu and ho</a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-from-entertainment-29-6/">comprehensive guides reviews and how tos from entertainment </a> 
 <a href="https://globespro.it.com/comprehensive-guides-reviews-and-how-tos-from-language-trans-29-6/">comprehensive guides reviews and how tos from language trans</a> 
@@ -787,18 +802,3 @@
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-64/">guides reviews how tos 50 resources worth bookmarking 29 6 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-65/">guides reviews how tos 50 resources worth bookmarking 29 6 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-66/">guides reviews how tos 50 resources worth bookmarking 29 6 6</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-67/">guides reviews how tos 50 resources worth bookmarking 29 6 6</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-68/">guides reviews how tos 50 resources worth bookmarking 29 6 6</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-69/">guides reviews how tos 50 resources worth bookmarking 29 6 6</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-7/">guides reviews how tos 50 resources worth bookmarking 29 6 7</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-70/">guides reviews how tos 50 resources worth bookmarking 29 6 7</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-71/">guides reviews how tos 50 resources worth bookmarking 29 6 7</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-72/">guides reviews how tos 50 resources worth bookmarking 29 6 7</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-73/">guides reviews how tos 50 resources worth bookmarking 29 6 7</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-74/">guides reviews how tos 50 resources worth bookmarking 29 6 7</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-75/">guides reviews how tos 50 resources worth bookmarking 29 6 7</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-8/">guides reviews how tos 50 resources worth bookmarking 29 6 8</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-9/">guides reviews how tos 50 resources worth bookmarking 29 6 9</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6/">guides reviews how tos 50 resources worth bookmarking 29 6</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-mastering-crypto-and-blockchain-topic-29-6/">guides reviews how tos mastering crypto and blockchain topic</a> 
-<a href="https://globespro.it.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 

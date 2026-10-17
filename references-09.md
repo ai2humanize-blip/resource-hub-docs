@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/navigating-the-world-of-cryptocurrency-a-fresh-perspective-o/">navigating the world of cryptocurrency a fresh perspective o</a> 
+<a href="https://autumnfallsinterview.com/navigating-the-world-of-cryptocurrency-bitcoin-and-blockchai/">navigating the world of cryptocurrency bitcoin and blockchai</a> 
+<a href="https://autumnfallsinterview.com/navigating-the-world-of-cryptocurrency-bitcoin-blockchain-an/">navigating the world of cryptocurrency bitcoin blockchain an</a> 
 <a href="https://autumnfallsinterview.com/navigating-zakat-a-comprehensive-guide-to-obligations-calcul-80-9/">navigating zakat a comprehensive guide to obligations calcul</a> 
 <a href="https://autumnfallsinterview.com/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
 <a href="https://autumnfallsinterview.com/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://be1.ru/stat/phonespeakerclean.com">phonespeakerclean.com</a> 
 <a href="https://be1.ru/stat/pqrnews.com">pqrnews.com</a> 
 <a href="https://be1.ru/stat/quikconsolecom.net">quikconsolecom.net</a> 
-<a href="https://be1.ru/stat/reportspedia.com">reportspedia.com</a> 
-<a href="https://be1.ru/stat/retirewithcrypto.net">retirewithcrypto.net</a> 
-<a href="https://be1.ru/stat/robthecoins.xyz">robthecoins.xyz</a> 
