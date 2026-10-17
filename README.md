@@ -144,6 +144,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://footyntel.com/">footyntel.com</a> 
 <a href="https://safar.to/">safar.to</a> 
 <a href="https://criptano.com/">criptano.com</a> 
+<a href="https://sattaresultnow.com/">sattaresultnow.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -214,8 +215,9 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 66](references-66.md)
 - [Reference set 67](references-67.md)
 - [Reference set 68](references-68.md)
+- [Reference set 69](references-69.md)
 
-_54,368 curated references across 68 sets._
+_54,461 curated references across 69 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)
