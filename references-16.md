@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online-2/">a closer look at recognizing credible experts online 2</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://cplemaire.us.org/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cplemaire.us.org/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://cplemaire.us.org/a-short-introduction-to-urdu-poetry-and-its-major-poets-2/">a short introduction to urdu poetry and its major poets 2</a> 
+<a href="https://cplemaire.us.org/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://cplemaire.us.org/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cplemaire.us.org/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cplemaire.us.org/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
+<a href="https://cplemaire.us.org/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cplemaire.us.org/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
+<a href="https://cplemaire.us.org/arcenturf-co-resource-2-3/">arcenturf co resource 2 3</a> 
+<a href="https://cplemaire.us.org/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://cplemaire.us.org/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
 <a href="https://cplemaire.us.org/blueflamepublishingblog-xyz-resource-2-2/">blueflamepublishingblog xyz resource 2 2</a> 
 <a href="https://cplemaire.us.org/blueflamepublishingblog-xyz-resource-2/">blueflamepublishingblog xyz resource 2</a> 
 <a href="https://cplemaire.us.org/book-publishing-and-the-business-of-being-an-author-what-to/">book publishing and the business of being an author what to</a> 
@@ -781,24 +802,3 @@
 <a href="https://croginalcats.xyz/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
 <a href="https://croginalcats.xyz/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
 <a href="https://croginalcats.xyz/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://croginalcats.xyz/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://croginalcats.xyz/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
-<a href="https://croginalcats.xyz/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://croginalcats.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://croginalcats.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://croginalcats.xyz/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
-<a href="https://croginalcats.xyz/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
-<a href="https://croginalcats.xyz/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://croginalcats.xyz/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://croginalcats.xyz/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://croginalcats.xyz/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://croginalcats.xyz/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://croginalcats.xyz/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
-<a href="https://croginalcats.xyz/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
-<a href="https://croginalcats.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://croginalcats.xyz/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
-<a href="https://croginalcats.xyz/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
-<a href="https://croginalcats.xyz/techvantor/">techvantor</a> 
-<a href="https://croginalcats.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://croginalcats.xyz/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
-<a href="https://croginalcats.xyz/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 

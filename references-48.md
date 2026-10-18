@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-49.md) · [‹ prev](references-47.md)
 
+<a href="https://madeleine-dore.com/the-rise-of-ai-in-newsrooms-transforming-journalism-in-2023-2/">the rise of ai in newsrooms transforming journalism in 2023 </a> 
+<a href="https://madeleine-dore.com/the-rise-of-ai-in-newsrooms-transforming-journalism-in-2023/">the rise of ai in newsrooms transforming journalism in 2023</a> 
+<a href="https://madeleine-dore.com/the-rise-of-ai-powered-apps-transforming-the-digital-landsca/">the rise of ai powered apps transforming the digital landsca</a> 
+<a href="https://madeleine-dore.com/the-rise-of-sustainable-fashion-how-eco-friendly-trends-are/">the rise of sustainable fashion how eco friendly trends are</a> 
+<a href="https://madeleine-dore.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-any-occ/">the ultimate guide to choosing the perfect watch for any occ</a> 
+<a href="https://madeleine-dore.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-every-o-107-9/">the ultimate guide to choosing the perfect watch for every o</a> 
+<a href="https://madeleine-dore.com/the-ultimate-guide-to-choosing-the-perfect-wine-for-any-occa/">the ultimate guide to choosing the perfect wine for any occa</a> 
+<a href="https://madeleine-dore.com/the-ultimate-guide-to-mastering-web-tech-content-for-success-107-7/">the ultimate guide to mastering web tech content for success</a> 
+<a href="https://madeleine-dore.com/the-ultimate-roundup-guides-reviews-and-how-tos-for-cryptocu-107-8/">the ultimate roundup guides reviews and how tos for cryptocu</a> 
+<a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-the-basics-2/">the value of slow careful reading the basics 2</a> 
+<a href="https://madeleine-dore.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://madeleine-dore.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
+<a href="https://madeleine-dore.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
+<a href="https://madeleine-dore.com/tlt-ng-resource-3/">tlt ng resource 3</a> 
+<a href="https://madeleine-dore.com/todaykeralalotteryresult-net-resource-3/">todaykeralalotteryresult net resource 3</a> 
+<a href="https://madeleine-dore.com/transformative-tech-ai-apps-cryptocurrency-and-blockchain-gu-107-8/">transformative tech ai apps cryptocurrency and blockchain gu</a> 
+<a href="https://madeleine-dore.com/transforming-daily-life-and-sports-ai-apps-and-data-driven-i-107-8/">transforming daily life and sports ai apps and data driven i</a> 
+<a href="https://madeleine-dore.com/transforming-daily-life-and-work-the-impact-of-ai-driven-app-107-10/">transforming daily life and work the impact of ai driven app</a> 
+<a href="https://madeleine-dore.com/transforming-your-digital-life-top-apps-for-productivity-and/">transforming your digital life top apps for productivity and</a> 
 <a href="https://madeleine-dore.com/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
 <a href="https://madeleine-dore.com/turf-pour-d-butants-par-o-commencer/">turf pour d butants par o commencer</a> 
 <a href="https://madeleine-dore.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
@@ -781,24 +802,3 @@
 <a href="https://metromsk.se.net/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
 <a href="https://metromsk.se.net/a-closer-look-at-how-to-pick-a-middle-name-that-fits/">a closer look at how to pick a middle name that fits</a> 
 <a href="https://metromsk.se.net/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u-2/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://metromsk.se.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://metromsk.se.net/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://metromsk.se.net/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://metromsk.se.net/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://metromsk.se.net/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://metromsk.se.net/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://metromsk.se.net/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://metromsk.se.net/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://metromsk.se.net/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://metromsk.se.net/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://metromsk.se.net/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://metromsk.se.net/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://metromsk.se.net/best-moscow-neighbourhoods-to-explore/">best moscow neighbourhoods to explore</a> 
