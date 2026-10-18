@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://croginalcats.xyz/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
+<a href="https://croginalcats.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://croyale88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://croyale88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://croyale88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://croyale88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://croyale88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://croyale88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://croyale88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://croyale88.xyz/hello-world/">hello world</a> 
+<a href="https://croyale88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://croyale88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://croyale88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://croyale88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://croyale88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://croyale88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://croyale88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cup88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cup88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cup88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cup88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cup88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -781,24 +802,3 @@
 <a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://cyberkannadig.it.com/how-to-safely-clean-your-phone-speaker/">how to safely clean your phone speaker</a> 
 <a href="https://cyberkannadig.it.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
-<a href="https://cyberkannadig.it.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://cyberkannadig.it.com/how-to-stay-informed-in-the-digital-age-a-practical-guide-26-4/">how to stay informed in the digital age a practical guide 26</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion-2/">how to tell explainer journalism from opinion 2</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion-explained-simp-2/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
-<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
-<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
-<a href="https://cyberkannadig.it.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
-<a href="https://cyberkannadig.it.com/how-washington-s-policies-not-charts-are-shaping-the-crypto-26-3/">how washington s policies not charts are shaping the crypto </a> 
-<a href="https://cyberkannadig.it.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://cyberkannadig.it.com/le-turf-pour-d-butants-lire-et-suivre-les-courses-hippiques/">le turf pour d butants lire et suivre les courses hippiques</a> 
-<a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://cyberkannadig.it.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-26-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/master-cheap-flight-booking-guides-reviews-how-tos-for-real-26-4/">master cheap flight booking guides reviews how tos for real </a> 
-<a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4-2/">master guides reviews how tos your ultimate resource roundup</a> 
-<a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4/">master guides reviews how tos your ultimate resource roundup</a> 
-<a href="https://cyberkannadig.it.com/master-news-consumption-guides-reviews-how-tos-for-savvy-rea-26-4/">master news consumption guides reviews how tos for savvy rea</a> 

@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://algiamedical.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://algiamedical.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://algiamedical.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://algiamedical.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://algiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-77-3-2/">guides reviews how tos 50 resources worth bookmarking 77 3 2</a> 
+<a href="https://algiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-77-3-3/">guides reviews how tos 50 resources worth bookmarking 77 3 3</a> 
+<a href="https://algiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-77-3/">guides reviews how tos 50 resources worth bookmarking 77 3</a> 
+<a href="https://algiamedical.com/guides-reviews-how-tos-navigating-online-casinos-and-crypto-77-8/">guides reviews how tos navigating online casinos and crypto </a> 
+<a href="https://algiamedical.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://algiamedical.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
 <a href="https://algiamedical.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
 <a href="https://algiamedical.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
@@ -481,14 +490,17 @@
 <a href="https://alientapereviews.com/choosing-the-perfect-restaurant-a-guide-to-culinary-delight-78-8/">choosing the perfect restaurant a guide to culinary delight </a> 
 <a href="https://alientapereviews.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
 <a href="https://alientapereviews.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
+<a href="https://alientapereviews.com/comprehensive-guide-to-crypto-visa-cards-regional-insights-t-78-7/">comprehensive guide to crypto visa cards regional insights t</a> 
 <a href="https://alientapereviews.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-78-2/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-and-how-tos-for-cryptocurrency-78-7/">comprehensive guides reviews and how tos for cryptocurrency </a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-78-2/">comprehensive guides reviews and how tos for every interest </a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-and-how-tos-from-language-trans-78-7/">comprehensive guides reviews and how tos from language trans</a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-how-tos-a-deep-dive-into-storkw-78-7/">comprehensive guides reviews how tos a deep dive into storkw</a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-how-tos-and-key-crypto-concepts-78-2/">comprehensive guides reviews how tos and key crypto concepts</a> 
+<a href="https://alientapereviews.com/comprehensive-guides-reviews-how-tos-for-islamic-practices-a-78-7/">comprehensive guides reviews how tos for islamic practices a</a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-how-tos-for-islamic-practices-z-78-7/">comprehensive guides reviews how tos for islamic practices z</a> 
 <a href="https://alientapereviews.com/comprehensive-guides-reviews-how-tos-your-ultimate-resource-78-7/">comprehensive guides reviews how tos your ultimate resource </a> 
+<a href="https://alientapereviews.com/crypto-cards-vs-bank-cards-a-comprehensive-guide-to-choosing-78-7/">crypto cards vs bank cards a comprehensive guide to choosing</a> 
 <a href="https://alientapereviews.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-78-2/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://alientapereviews.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://alientapereviews.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
@@ -790,15 +802,3 @@
 <a href="https://alientapereviews.com/mastering-marketing-seo-growth-strategies-for-success-in-a-c-78-8/">mastering marketing seo growth strategies for success in a c</a> 
 <a href="https://alientapereviews.com/mastering-marketing-seo-growth-strategies-for-success-in-the-78-8-2/">mastering marketing seo growth strategies for success in the</a> 
 <a href="https://alientapereviews.com/mastering-marketing-seo-growth-strategies-for-success-in-the-78-8-3/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-growth-strategies-for-success-in-the-78-8/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-growth-the-ultimate-guide-to-startin-78-8/">mastering marketing seo growth the ultimate guide to startin</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-growth-top-online-resources-for-succ-78-8/">mastering marketing seo growth top online resources for succ</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-78-3/">mastering marketing seo growth your guide to building a succ</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-growth-your-ultimate-guide-78-8-2/">mastering marketing seo growth your ultimate guide 78 8 2</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-growth-your-ultimate-guide-78-8/">mastering marketing seo growth your ultimate guide 78 8</a> 
-<a href="https://alientapereviews.com/mastering-marketing-seo-growth-your-ultimate-guide-to-online-78-8/">mastering marketing seo growth your ultimate guide to online</a> 
-<a href="https://alientapereviews.com/mastering-mobile-apps-navigating-the-digital-world-with-ease/">mastering mobile apps navigating the digital world with ease</a> 
-<a href="https://alientapereviews.com/mastering-modern-fashion-how-to-incorporate-2023-s-top-trend/">mastering modern fashion how to incorporate 2023 s top trend</a> 
-<a href="https://alientapereviews.com/mastering-online-information-guides-reviews-how-tos-for-smar-78-7/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://alientapereviews.com/mastering-online-research-guides-reviews-how-tos-for-effecti-78-7/">mastering online research guides reviews how tos for effecti</a> 
-<a href="https://alientapereviews.com/mastering-online-research-guides-reviews-how-tos-for-smarter-78-7/">mastering online research guides reviews how tos for smarter</a> 
