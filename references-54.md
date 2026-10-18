@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-55.md) · [‹ prev](references-53.md)
 
+<a href="https://oceaniccleaningservice.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://oceaniccleaningservice.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://oceaniccleaningservice.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://oceaniccleaningservice.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://oceaniccleaningservice.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://oceaniccleaningservice.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://oceaniccleaningservice.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://oceaniccleaningservice.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://oceaniccleaningservice.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://oceaniccleaningservice.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
+<a href="https://oceaniccleaningservice.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
+<a href="https://oceaniccleaningservice.com/a-simple-framework-for-researching-any-topic-online-and-why-2/">a simple framework for researching any topic online and why </a> 
+<a href="https://oceaniccleaningservice.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://oceaniccleaningservice.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://oceaniccleaningservice.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
+<a href="https://oceaniccleaningservice.com/a-simple-framework-for-researching-any-topic-online-the-basi-3/">a simple framework for researching any topic online the basi</a> 
+<a href="https://oceaniccleaningservice.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://oceaniccleaningservice.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://oceaniccleaningservice.com/avoid-online-loan-and-text-scams/">avoid online loan and text scams</a> 
+<a href="https://oceaniccleaningservice.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://oceaniccleaningservice.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://oceaniccleaningservice.com/boost-your-business-and-personal-finances-with-strategic-mar/">boost your business and personal finances with strategic mar</a> 
 <a href="https://oceaniccleaningservice.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://oceaniccleaningservice.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
@@ -781,24 +802,3 @@
 <a href="https://pharmacoplus.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://pharmacoplus.com/discover-the-best-digital-tools-online-resources-for-success-117-1/">discover the best digital tools online resources for success</a> 
 <a href="https://pharmacoplus.com/embrace-organic-living-your-guide-to-holistic-health-and-wel/">embrace organic living your guide to holistic health and wel</a> 
-<a href="https://pharmacoplus.com/essential-digital-tools-online-resources-for-modern-needs-117-1/">essential digital tools online resources for modern needs 11</a> 
-<a href="https://pharmacoplus.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
-<a href="https://pharmacoplus.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://pharmacoplus.com/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
-<a href="https://pharmacoplus.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://pharmacoplus.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://pharmacoplus.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
-<a href="https://pharmacoplus.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://pharmacoplus.com/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://pharmacoplus.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://pharmacoplus.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://pharmacoplus.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://pharmacoplus.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://pharmacoplus.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
-<a href="https://pharmacoplus.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://pharmacoplus.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://pharmacoplus.com/guides-reviews-how-tos-50-resources-worth-bookmarking-117-3/">guides reviews how tos 50 resources worth bookmarking 117 3</a> 
-<a href="https://pharmacoplus.com/how-ai-and-apps-are-transforming-daily-life-a-fresh-perspect/">how ai and apps are transforming daily life a fresh perspect</a> 
-<a href="https://pharmacoplus.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
-<a href="https://pharmacoplus.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
-<a href="https://pharmacoplus.com/how-ai-powered-apps-are-transforming-our-daily-digital-lives/">how ai powered apps are transforming our daily digital lives</a> 

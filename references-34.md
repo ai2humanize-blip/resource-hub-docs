@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://heatherburrisphotography.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://heatherburrisphotography.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://heatherburrisphotography.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
+<a href="https://heatherburrisphotography.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
+<a href="https://heatherburrisphotography.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
+<a href="https://heatherburrisphotography.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://heatherburrisphotography.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://heatherburrisphotography.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
+<a href="https://heatherburrisphotography.com/how-to-leverage-google-my-business-for-local-seo-success/">how to leverage google my business for local seo success</a> 
+<a href="https://heatherburrisphotography.com/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
+<a href="https://heatherburrisphotography.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
+<a href="https://heatherburrisphotography.com/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
+<a href="https://heatherburrisphotography.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://heatherburrisphotography.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://heatherburrisphotography.com/how-to-spot-low-quality-content-online-2/">how to spot low quality content online 2</a> 
 <a href="https://heatherburrisphotography.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
 <a href="https://heatherburrisphotography.com/how-to-streamline-your-digital-life-top-apps-for-productivit/">how to streamline your digital life top apps for productivit</a> 
 <a href="https://heatherburrisphotography.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
@@ -781,24 +802,3 @@
 <a href="https://hedaroibergroup.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://hedaroibergroup.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
 <a href="https://hedaroibergroup.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://hedaroibergroup.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://hedaroibergroup.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://hedaroibergroup.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
-<a href="https://hedaroibergroup.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://hedaroibergroup.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://helpful-basbousa-cb40fe.netlify.app/serpinsightlinkinsertion-overview-and-latest-updates.html">serpinsightlinkinsertion overview and latest updates</a> 
-<a href="https://helpful-lamington-d53613.netlify.app/how-to-evaluate-online-reviews-and-recommendations-and-why-i.html">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://helpful-liger-997c3d.netlify.app/how-to-bookmark-and-revisit-useful-resources-the-basics.html">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://heroic-dango-453a25.netlify.app/what-is-crypto-wallet-how-to-keep.html">what is crypto wallet how to keep</a> 
-<a href="https://homaryreviews.com/10-organic-living-tips-for-a-healthier-more-balanced-lifesty/">10 organic living tips for a healthier more balanced lifesty</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
