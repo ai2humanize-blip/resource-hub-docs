@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/methods-144ad8ca/">methods 144ad8ca</a> 
+<a href="https://boostelearning.mataroa.blog/blog/methods-496b2509/">methods 496b2509</a> 
+<a href="https://boostelearning.mataroa.blog/blog/methods-4efda4de/">methods 4efda4de</a> 
+<a href="https://boostelearning.mataroa.blog/blog/methods-6507612d/">methods 6507612d</a> 
+<a href="https://boostelearning.mataroa.blog/blog/methods-8c22197e/">methods 8c22197e</a> 
+<a href="https://boostelearning.mataroa.blog/blog/methods-d78a1889/">methods d78a1889</a> 
+<a href="https://boostelearning.mataroa.blog/blog/methods-ec21094d/">methods ec21094d</a> 
+<a href="https://boostelearning.mataroa.blog/blog/methods-f19f1d3f/">methods f19f1d3f</a> 
 <a href="https://boostelearning.mataroa.blog/blog/methods/">methods</a> 
 <a href="https://boostelearning.mataroa.blog/blog/micannamarketing/">micannamarketing</a> 
 <a href="https://boostelearning.mataroa.blog/blog/mining-profitability-explained-the-only-four-numbers-0b64cb75/">mining profitability explained the only four numbers 0b64cb7</a> 
@@ -794,11 +802,3 @@
 <a href="https://captainjackinterview.com/essential-guides-and-tips-for-staying-safe-from-online-scams-82-3/">essential guides and tips for staying safe from online scams</a> 
 <a href="https://captainjackinterview.com/essential-independent-web-tech-and-crypto-resources-you-shou-82-7/">essential independent web tech and crypto resources you shou</a> 
 <a href="https://captainjackinterview.com/essential-web-tech-content-resources-for-designers-and-devel-82-2/">essential web tech content resources for designers and devel</a> 
-<a href="https://captainjackinterview.com/essential-web-tech-content-resources-for-filipinos-a-compreh-82-2/">essential web tech content resources for filipinos a compreh</a> 
-<a href="https://captainjackinterview.com/essential-web-tech-content-tips-for-modern-living-82-2/">essential web tech content tips for modern living 82 2</a> 
-<a href="https://captainjackinterview.com/ethereum-gas-fees-explained-why-they-exist-and-how-they-are/">ethereum gas fees explained why they exist and how they are</a> 
-<a href="https://captainjackinterview.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
-<a href="https://captainjackinterview.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://captainjackinterview.com/expert-guides-reviews-and-how-tos-to-transform-your-life-and-82-3/">expert guides reviews and how tos to transform your life and</a> 
-<a href="https://captainjackinterview.com/exploring-crypto-guides-reviews-how-tos-from-blockchain-to-s-82-3/">exploring crypto guides reviews how tos from blockchain to s</a> 
-<a href="https://captainjackinterview.com/exploring-cryptocurrency-blockchain-and-online-gambling-guid-82-3/">exploring cryptocurrency blockchain and online gambling guid</a> 

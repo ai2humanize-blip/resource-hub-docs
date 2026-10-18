@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://algiamedical.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://algiamedical.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://algiamedical.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://algiamedical.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
 <a href="https://algiamedical.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
 <a href="https://algiamedical.com/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
@@ -799,6 +802,3 @@
 <a href="https://alientapereviews.com/mastering-online-information-guides-reviews-how-tos-for-smar-78-7/">mastering online information guides reviews how tos for smar</a> 
 <a href="https://alientapereviews.com/mastering-online-research-guides-reviews-how-tos-for-effecti-78-7/">mastering online research guides reviews how tos for effecti</a> 
 <a href="https://alientapereviews.com/mastering-online-research-guides-reviews-how-tos-for-smarter-78-7/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://alientapereviews.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
-<a href="https://alientapereviews.com/mastering-personal-finance-business-and-marketing-a-comprehe-78-2/">mastering personal finance business and marketing a comprehe</a> 
-<a href="https://alientapereviews.com/mastering-personal-finance-how-strategic-debt-management-can-2/">mastering personal finance how strategic debt management can</a> 

@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://captainjackinterview.com/essential-web-tech-content-resources-for-filipinos-a-compreh-82-2/">essential web tech content resources for filipinos a compreh</a> 
+<a href="https://captainjackinterview.com/essential-web-tech-content-tips-for-modern-living-82-2/">essential web tech content tips for modern living 82 2</a> 
+<a href="https://captainjackinterview.com/ethereum-gas-fees-explained-why-they-exist-and-how-they-are/">ethereum gas fees explained why they exist and how they are</a> 
+<a href="https://captainjackinterview.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://captainjackinterview.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://captainjackinterview.com/expert-guides-reviews-and-how-tos-to-transform-your-life-and-82-3/">expert guides reviews and how tos to transform your life and</a> 
+<a href="https://captainjackinterview.com/exploring-crypto-guides-reviews-how-tos-from-blockchain-to-s-82-3/">exploring crypto guides reviews how tos from blockchain to s</a> 
+<a href="https://captainjackinterview.com/exploring-cryptocurrency-blockchain-and-online-gambling-guid-82-3/">exploring cryptocurrency blockchain and online gambling guid</a> 
 <a href="https://captainjackinterview.com/exploring-cyberkannadig-comprehensive-guides-reviews-and-how-82-3/">exploring cyberkannadig comprehensive guides reviews and how</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-6/">exploring essential digital tools online resources for moder</a> 
@@ -794,11 +802,3 @@
 <a href="https://casinonutanlicens.xyz/cota-es-de-cripto-no-brasil/">cota es de cripto no brasil</a> 
 <a href="https://casinonutanlicens.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
 <a href="https://casinonutanlicens.xyz/decentralized-autonomous-organizations-daos-explained-simply/">decentralized autonomous organizations daos explained simply</a> 
-<a href="https://casinonutanlicens.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://casinonutanlicens.xyz/digital-tools-online-resources-50-resources-worth-bookmarkin-243-10/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://casinonutanlicens.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://casinonutanlicens.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://casinonutanlicens.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://casinonutanlicens.xyz/fix-a-stuck-windows-update/">fix a stuck windows update</a> 
-<a href="https://casinonutanlicens.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://casinonutanlicens.xyz/gender-neutral-baby-names-explained-and-why-it-matters/">gender neutral baby names explained and why it matters</a> 

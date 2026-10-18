@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://358casino.co.bz/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://358casino.co.bz/reset-your-bank-transfer-pin/">reset your bank transfer pin</a> 
 <a href="https://358casino.co.bz/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://358casino.co.bz/the-basics-of-staying-safe-while-browsing-and-why-it-matters-2/">the basics of staying safe while browsing and why it matters</a> 
 <a href="https://358casino.co.bz/the-basics-of-staying-safe-while-browsing-and-why-it-matters-3/">the basics of staying safe while browsing and why it matters</a> 
@@ -800,5 +802,3 @@
 <a href="https://agriculture-lawyer.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
 <a href="https://agriculture-lawyer.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
 <a href="https://agriculture-lawyer.com/how-crypto-exchanges-work-and-what-to-understand-before-usin/">how crypto exchanges work and what to understand before usin</a> 
-<a href="https://agriculture-lawyer.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://agriculture-lawyer.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 

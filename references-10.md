@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://be1.ru/stat/asianpinay.in.net">asianpinay.in.net</a> 
+<a href="https://be1.ru/stat/baginda168.gb.net">baginda168.gb.net</a> 
+<a href="https://be1.ru/stat/banneradsites.cc">banneradsites.cc</a> 
+<a href="https://be1.ru/stat/bettingagescom.net">bettingagescom.net</a> 
+<a href="https://be1.ru/stat/bitadvent.com">bitadvent.com</a> 
+<a href="https://be1.ru/stat/bitcoincasinosnews.com">bitcoincasinosnews.com</a> 
 <a href="https://be1.ru/stat/bitcoindigital.info">bitcoindigital.info</a> 
 <a href="https://be1.ru/stat/bitcoinlogical.com">bitcoinlogical.com</a> 
 <a href="https://be1.ru/stat/bitcoinprime.info">bitcoinprime.info</a> 
@@ -319,6 +325,8 @@
 <a href="https://bitslots.de.com/responsible-gambling-tools-limits-and-where-to-get-help/">responsible gambling tools limits and where to get help</a> 
 <a href="https://bitslots.de.com/robthecoins-xyz-resource-3/">robthecoins xyz resource 3</a> 
 <a href="https://bitslots.de.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://bitslots.de.com/site-reputation-abuse-2/">site reputation abuse 2</a> 
+<a href="https://bitslots.de.com/site-reputation-abuse/">site reputation abuse</a> 
 <a href="https://bitslots.de.com/techvantor-xyz-resource-3-2/">techvantor xyz resource 3 2</a> 
 <a href="https://bitslots.de.com/techvantor-xyz-resource-3/">techvantor xyz resource 3</a> 
 <a href="https://bitslots.de.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
@@ -794,11 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/media-placements/">media placements</a> 
 <a href="https://boostelearning.mataroa.blog/blog/methods-0adb2bf7/">methods 0adb2bf7</a> 
 <a href="https://boostelearning.mataroa.blog/blog/methods-1269cf61/">methods 1269cf61</a> 
-<a href="https://boostelearning.mataroa.blog/blog/methods-144ad8ca/">methods 144ad8ca</a> 
-<a href="https://boostelearning.mataroa.blog/blog/methods-496b2509/">methods 496b2509</a> 
-<a href="https://boostelearning.mataroa.blog/blog/methods-4efda4de/">methods 4efda4de</a> 
-<a href="https://boostelearning.mataroa.blog/blog/methods-6507612d/">methods 6507612d</a> 
-<a href="https://boostelearning.mataroa.blog/blog/methods-8c22197e/">methods 8c22197e</a> 
-<a href="https://boostelearning.mataroa.blog/blog/methods-d78a1889/">methods d78a1889</a> 
-<a href="https://boostelearning.mataroa.blog/blog/methods-ec21094d/">methods ec21094d</a> 
-<a href="https://boostelearning.mataroa.blog/blog/methods-f19f1d3f/">methods f19f1d3f</a> 
