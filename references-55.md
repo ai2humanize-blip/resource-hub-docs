@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-56.md) · [‹ prev](references-54.md)
 
+<a href="https://ph444casino.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://ph444casino.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://ph444casino.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://ph444casino.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://ph444casino.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://ph444casino.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ph444casino.xyz/hello-world/">hello world</a> 
+<a href="https://ph444casino.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ph444casino.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://ph444casino.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://ph444casino.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://ph444casino.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://ph444casino.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://ph444casino.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://ph777login.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://ph777login.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://ph777login.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://ph777login.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://ph777login.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://ph777login.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://ph777login.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://ph777login.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://ph777login.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://ph777login.xyz/hello-world/">hello world</a> 
@@ -781,24 +802,3 @@
 <a href="https://pixect.xyz/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
 <a href="https://pixect.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
 <a href="https://pixect.xyz/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
-<a href="https://pixect.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 
-<a href="https://pixect.xyz/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
-<a href="https://pixect.xyz/travel-authorisations-compared-etias-esta-and-the-uk-eta/">travel authorisations compared etias esta and the uk eta</a> 
-<a href="https://pixect.xyz/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
-<a href="https://pixect.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://pixect.xyz/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
-<a href="https://pixect.xyz/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
-<a href="https://pixect.xyz/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
-<a href="https://pixect.xyz/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
-<a href="https://pixect.xyz/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
-<a href="https://pixect.xyz/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://pixect.xyz/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
-<a href="https://pixect.xyz/understanding-cryptocurrency-a-plain-language-introduction-f/">understanding cryptocurrency a plain language introduction f</a> 
-<a href="https://pixect.xyz/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://pixect.xyz/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://pixect.xyz/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://pixect.xyz/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://pixect.xyz/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://pixect.xyz/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
-<a href="https://pixect.xyz/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://pixect.xyz/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 

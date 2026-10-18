@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-38.md) · [‹ prev](references-36.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmbXZ5JUJBZnNHaioh6axCfhaKLWcqDhfhhXDLmUYraYt2">QmbXZ5JUJBZnNHaioh6axCfhaKLWcqDhfhhXDLmUYraYt2</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbXoMvni9RjQXJ2DARU2TDw5cHtWD5VpaAEMiFR4YTYKi">QmbXoMvni9RjQXJ2DARU2TDw5cHtWD5VpaAEMiFR4YTYKi</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbiB4mrCbSCL4RCfgQbrCctBJi93GP4hpNKVCxwB5GA8X">QmbiB4mrCbSCL4RCfgQbrCctBJi93GP4hpNKVCxwB5GA8X</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf">QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6">QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496">Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW">Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcBf4ZBsovyRtUMq153bJT97aPmc1dN1cBPZeyGExJ3Bk">QmcBf4ZBsovyRtUMq153bJT97aPmc1dN1cBPZeyGExJ3Bk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk">QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT">QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki">QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F">QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H">QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE">QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ">QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc">QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY">Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB">QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7">QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6">Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH">Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY">Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn">QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE">QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE</a> 
@@ -781,24 +802,3 @@
 <a href="https://labmagickite.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
 <a href="https://labmagickite.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://labmagickite.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://labmagickite.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://labmagickite.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://labmagickite.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://labmagickite.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://labmagickite.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://labmagickite.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://labmagickite.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://labmagickite.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://labmagickite.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://labmagickite.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://labmagickite.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://labmagickite.com/a-simple-framework-for-researching-any-topic-online-the-basics/">a simple framework for researching any topic online the basi</a> 
-<a href="https://labmagickite.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://labmagickite.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://labmagickite.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://labmagickite.com/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
-<a href="https://labmagickite.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://labmagickite.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://labmagickite.com/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
-<a href="https://labmagickite.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 

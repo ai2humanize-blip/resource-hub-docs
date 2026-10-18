@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-44.md) · [‹ prev](references-42.md)
 
+<a href="https://livejournal.micro.blog/2026/09/04/what-to-know-about-why.html">what to know about why</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/what-to-look-for-in.html">what to look for in</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/why-context-matters-when-reading.html">why context matters when reading</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/why-niche-blogs-still-matter.html">why niche blogs still matter</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/a-closer-look-at-how.html">a closer look at how</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/a-closer-look-at-what.html">a closer look at what</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/building-a-healthy-daily-reading.html">building a healthy daily reading</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/getting-how-to-bookmark-and.html">getting how to bookmark and</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/getting-how-to-factcheck-something.html">getting how to factcheck something</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/getting-why-context-matters-when.html">getting why context matters when</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/how-to-evaluate-online-reviews.html">how to evaluate online reviews</a> 
+<a href="https://livejournal.micro.blog/2026/09/06/how-to-spot-lowquality-content.html">how to spot lowquality content</a> 
+<a href="https://livejournal.micro.blog/2026/09/09/how-to-find-balanced-coverage.html">how to find balanced coverage</a> 
+<a href="https://livejournal.micro.blog/2026/09/09/what-to-know-about-how.html">what to know about how</a> 
+<a href="https://livejournal.micro.blog/2026/09/09/what-to-know-about-recognizing.html">what to know about recognizing</a> 
+<a href="https://livejournal.micro.blog/2026/09/16/font-pairing-resources-worth-bookmarking.html">font pairing resources worth bookmarking</a> 
+<a href="https://livejournal.micro.blog/2026/09/16/the-space-grotesk-and-ibm.html">the space grotesk and ibm</a> 
+<a href="https://livejournal.micro.blog/2026/09/26/instagram-carousel-dimensions-stop-the.html">instagram carousel dimensions stop the</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/061652.html">061652</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/061701.html">061701</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063121.html">063121</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/063141.html">063141</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/063143.html">063143</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/063213.html">063213</a> 
@@ -781,24 +802,3 @@
 <a href="https://llmseoservices.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://llmseoservices.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
 <a href="https://llmseoservices.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://llmseoservices.org/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://llmseoservices.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://llmseoservices.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://llmseoservices.org/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://llmseoservices.org/getting-what-to-look-for-in-a-good-news-website-right-2/">getting what to look for in a good news website right 2</a> 
-<a href="https://llmseoservices.org/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://llmseoservices.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://llmseoservices.org/guides-reviews-how-tos-32-resources-worth-bookmarking-32-8/">guides reviews how tos 32 resources worth bookmarking 32 8</a> 
-<a href="https://llmseoservices.org/guides-reviews-how-tos-40-resources-worth-bookmarking-32-8/">guides reviews how tos 40 resources worth bookmarking 32 8</a> 
-<a href="https://llmseoservices.org/guides-reviews-how-tos-45-resources-worth-bookmarking-32-8/">guides reviews how tos 45 resources worth bookmarking 32 8</a> 
-<a href="https://llmseoservices.org/how-ai-and-machine-learning-are-revolutionizing-mobile-app-d/">how ai and machine learning are revolutionizing mobile app d</a> 
-<a href="https://llmseoservices.org/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
-<a href="https://llmseoservices.org/how-ai-and-machine-learning-are-transforming-everyday-mobile/">how ai and machine learning are transforming everyday mobile</a> 
-<a href="https://llmseoservices.org/how-ai-is-revolutionizing-news-reporting-current-trends-and/">how ai is revolutionizing news reporting current trends and</a> 
-<a href="https://llmseoservices.org/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://llmseoservices.org/how-ai-powered-apps-are-transforming-our-daily-lives/">how ai powered apps are transforming our daily lives</a> 
-<a href="https://llmseoservices.org/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
-<a href="https://llmseoservices.org/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://llmseoservices.org/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://llmseoservices.org/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://llmseoservices.org/how-dailywatchreports-is-transforming-news-consumption-in-in/">how dailywatchreports is transforming news consumption in in</a> 
