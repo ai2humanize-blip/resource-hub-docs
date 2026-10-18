@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-44.md) · [‹ prev](references-42.md)
 
+<a href="https://livejournal.micro.blog/2026/10/07/072757.html">072757</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/074123.html">074123</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/074127.html">074127</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/074144.html">074144</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/074159.html">074159</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/074245.html">074245</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/075543.html">075543</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/075619.html">075619</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/075632.html">075632</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/075707.html">075707</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081053.html">081053</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081054.html">081054</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081143.html">081143</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081144.html">081144</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081158.html">081158</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/082521.html">082521</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/082548.html">082548</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/082551.html">082551</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/082614.html">082614</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/084012.html">084012</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/084101.html">084101</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/084105.html">084105</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/084149.html">084149</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/085348.html">085348</a> 
@@ -781,24 +802,3 @@
 <a href="https://llmseoservices.org/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://llmseoservices.org/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
 <a href="https://llmseoservices.org/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://llmseoservices.org/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://llmseoservices.org/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://llmseoservices.org/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://llmseoservices.org/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://llmseoservices.org/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://llmseoservices.org/how-to-keep-clean-auditable-cryptocurrency-transaction-recor/">how to keep clean auditable cryptocurrency transaction recor</a> 
-<a href="https://llmseoservices.org/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
-<a href="https://llmseoservices.org/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://llmseoservices.org/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
-<a href="https://llmseoservices.org/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://llmseoservices.org/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://llmseoservices.org/how-to-revitalize-your-home-with-a-fresh-coat-of-paint-a-ste/">how to revitalize your home with a fresh coat of paint a ste</a> 
-<a href="https://llmseoservices.org/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
-<a href="https://llmseoservices.org/how-to-spot-low-quality-content-online-the-basics-2/">how to spot low quality content online the basics 2</a> 
-<a href="https://llmseoservices.org/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
-<a href="https://llmseoservices.org/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
-<a href="https://llmseoservices.org/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://llmseoservices.org/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
-<a href="https://llmseoservices.org/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://llmseoservices.org/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
-<a href="https://llmseoservices.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://competitorscreenshots.com/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://competitorscreenshots.com/understanding-europe-s-etias-travel-authorisation-a-general/">understanding europe s etias travel authorisation a general</a> 
+<a href="https://competitorscreenshots.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
+<a href="https://competitorscreenshots.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
+<a href="https://competitorscreenshots.com/understanding-thefontworld-a-practical-guide/">understanding thefontworld a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-tlt-a-practical-guide/">understanding tlt a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-todaykeralalotteryresult-a-practical-guide/">understanding todaykeralalotteryresult a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
+<a href="https://competitorscreenshots.com/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
 <a href="https://competitorscreenshots.com/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
 <a href="https://competitorscreenshots.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
 <a href="https://competitorscreenshots.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
@@ -781,24 +802,3 @@
 <a href="https://croginalcats.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://croginalcats.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://croginalcats.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://croginalcats.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://croginalcats.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://croginalcats.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
-<a href="https://croginalcats.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://croginalcats.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://croginalcats.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://croginalcats.xyz/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://croginalcats.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://croginalcats.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://croginalcats.xyz/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
-<a href="https://croginalcats.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
-<a href="https://croginalcats.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://croginalcats.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
-<a href="https://croginalcats.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://croginalcats.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://croginalcats.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://croginalcats.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://croginalcats.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://croginalcats.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://croginalcats.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://croginalcats.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 

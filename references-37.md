@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-38.md) · [‹ prev](references-36.md)
 
+<a href="https://ipfs.filebase.io/ipfs/Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR">Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G">QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv">QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R">QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource-2/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://ireplicadealers.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://ireplicadealers.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://ireplicadealers.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
@@ -781,24 +802,3 @@
 <a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-2/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-3/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://labmagickite.com/demystifying-web-tech-content-a-comprehensive-guide-to-crypt-104-5/">demystifying web tech content a comprehensive guide to crypt</a> 
-<a href="https://labmagickite.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://labmagickite.com/digital-tools-online-resources-a-comprehensive-guide-to-cryp-104-4/">digital tools online resources a comprehensive guide to cryp</a> 
-<a href="https://labmagickite.com/discover-the-art-of-event-planning-unique-ideas-and-expert-t/">discover the art of event planning unique ideas and expert t</a> 
-<a href="https://labmagickite.com/discover-the-hidden-benefits-of-urban-gardening-in-small-spa/">discover the hidden benefits of urban gardening in small spa</a> 
-<a href="https://labmagickite.com/discover-the-secrets-of-effective-time-management-for-a-bala/">discover the secrets of effective time management for a bala</a> 
-<a href="https://labmagickite.com/discover-unique-event-ideas-and-expert-planning-tips-for-mem-104-6/">discover unique event ideas and expert planning tips for mem</a> 
-<a href="https://labmagickite.com/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-a-comprehensive-gui-104-4/">essential digital tools online resources a comprehensive gui</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-legal-and-casin-104-9/">essential digital tools online resources for legal and casin</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-modern-living-104-4/">essential digital tools online resources for modern living 1</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-modern-success-104-4/">essential digital tools online resources for modern success </a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-understanding-c-104-4-2/">essential digital tools online resources for understanding c</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-understanding-c-104-4-3/">essential digital tools online resources for understanding c</a> 
-<a href="https://labmagickite.com/essential-digital-tools-online-resources-for-understanding-c-104-4/">essential digital tools online resources for understanding c</a> 
-<a href="https://labmagickite.com/essential-guides-reviews-how-tos-for-a-better-life-104-6/">essential guides reviews how tos for a better life 104 6</a> 
-<a href="https://labmagickite.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://labmagickite.com/exploring-digital-tools-online-resources-for-cryptocurrency-104-4/">exploring digital tools online resources for cryptocurrency </a> 
-<a href="https://labmagickite.com/exploring-essential-digital-tools-online-resources-for-crypt-104-4/">exploring essential digital tools online resources for crypt</a> 
-<a href="https://labmagickite.com/exploring-essential-digital-tools-online-resources-for-moder-104-4/">exploring essential digital tools online resources for moder</a> 
-<a href="https://labmagickite.com/exploring-independent-music-and-ai-apps-a-comprehensive-guid-104-6/">exploring independent music and ai apps a comprehensive guid</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://croginalcats.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://croginalcats.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://croginalcats.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
+<a href="https://croginalcats.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://croginalcats.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://croginalcats.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://croginalcats.xyz/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
+<a href="https://croginalcats.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://croginalcats.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://croginalcats.xyz/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
+<a href="https://croginalcats.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
+<a href="https://croginalcats.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://croginalcats.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
+<a href="https://croginalcats.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://croginalcats.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://croginalcats.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://croginalcats.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
+<a href="https://croginalcats.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://croginalcats.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://croginalcats.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://croginalcats.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
 <a href="https://croginalcats.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
 <a href="https://croginalcats.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
 <a href="https://croginalcats.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
@@ -781,24 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-4/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-5/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-6/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-7/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-curated-reso-26-3-2/">exploring the synergy of web tech and content a curated reso</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-curated-reso-26-3/">exploring the synergy of web tech and content a curated reso</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-for-digital-su-26-3/">exploring the synergy of web tech and content for digital su</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-for-modern-suc-26-3/">exploring the synergy of web tech and content for modern suc</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-modern-busi-26-3-2/">exploring the synergy of web tech and content in modern busi</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-modern-busi-26-3/">exploring the synergy of web tech and content in modern busi</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-modern-indu-26-3/">exploring the synergy of web tech and content in modern indu</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-2/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-3/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-4/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-modern-26-3/">exploring the synergy of web tech and content in the modern </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-today-s-dig-26-3/">exploring the synergy of web tech and content in today s dig</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-2/">exploring the synergy of web tech content a comprehensive ro</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-3/">exploring the synergy of web tech content a comprehensive ro</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-4/">exploring the synergy of web tech content a comprehensive ro</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-5/">exploring the synergy of web tech content a comprehensive ro</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-6/">exploring the synergy of web tech content a comprehensive ro</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-7/">exploring the synergy of web tech content a comprehensive ro</a> 
