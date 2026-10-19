@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cochesdeocasion.xyz/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cochesdeocasion.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cochesdeocasion.xyz/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
+<a href="https://cochesdeocasion.xyz/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://comforting-alfajores-af12f3.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
+<a href="https://comfy-puppy-8bcdd1.netlify.app/navigating-the-shifting-tides-of-2023-news-in-depth-analysis.html">navigating the shifting tides of 2023 news in depth analysis</a> 
+<a href="https://competitorscreenshots.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-a-guide-to-names-that-mean-moon-star-and-su/">a closer look at a guide to names that mean moon star and su</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-build-a-personal-reading-list-3/">a closer look at how to build a personal reading list 3</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
@@ -781,24 +802,3 @@
 <a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-explained-simply-2/">simple habits of a smart internet reader explained simply 2</a> 
 <a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
-<a href="https://crediblenews24.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
-<a href="https://crediblenews24.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://crediblenews24.com/spending-stablecoins-how-usdt-and-stablecoin-cards-work/">spending stablecoins how usdt and stablecoin cards work</a> 
-<a href="https://crediblenews24.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://crediblenews24.com/staying-informed-in-2023-navigating-web-tech-and-content-tre-86-8/">staying informed in 2023 navigating web tech and content tre</a> 
-<a href="https://crediblenews24.com/staying-informed-top-independent-sites-for-web-tech-content-86-8/">staying informed top independent sites for web tech content </a> 
-<a href="https://crediblenews24.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://crediblenews24.com/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
-<a href="https://crediblenews24.com/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
-<a href="https://crediblenews24.com/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
-<a href="https://crediblenews24.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://crediblenews24.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
-<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://crediblenews24.com/the-future-of-ai-in-journalism-trends-and-challenges/">the future of ai in journalism trends and challenges</a> 

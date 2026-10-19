@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-55.md) · [‹ prev](references-53.md)
 
+<a href="https://nicecitydatecraze.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://nicecitydatecraze.com/what-to-know-about-what-makes-an-explainer-article-genuinely-useful/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://nicecitydatecraze.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
+<a href="https://nicecitydatecraze.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://nicecitydatecraze.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://nicecitydatecraze.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://nicecitydatecraze.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://nicecitydatecraze.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://nicecitydatecraze.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://nicecitydatecraze.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://nicecitydatecraze.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://nicecitydatecraze.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://nicecitydatecraze.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://nicecitydatecraze.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://nicecitydatecraze.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://nicecitydatecraze.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
+<a href="https://obesetuber.com/10-essential-tips-for-boosting-your-website-s-seo-in-2023/">10 essential tips for boosting your website s seo in 2023</a> 
+<a href="https://obesetuber.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-surnames-get-their-meanings/">a closer look at how surnames get their meanings</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
 <a href="https://obesetuber.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://obesetuber.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini-2/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://obesetuber.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
@@ -781,24 +802,3 @@
 <a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
 <a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
 <a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://palacsintarecept.hu.net/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://palacsintarecept.hu.net/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://papaya-blini-d4f131.netlify.app/footyntel.html">footyntel</a> 
-<a href="https://paper.wf/1mother/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
-<a href="https://paper.wf/1mother/a-useful-resource-what-to-do-after-a-data-breach">a useful resource what to do after a data breach</a> 
-<a href="https://paper.wf/1mother/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
-<a href="https://paper.wf/1mother/independent-websites-worth-bookmarking">independent websites worth bookmarking</a> 
-<a href="https://paper.wf/1mother/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
-<a href="https://paper.wf/1mother/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
-<a href="https://pastebin.com/0FQdJ0Br">0FQdJ0Br</a> 
-<a href="https://pastebin.com/0PUSy2f3">0PUSy2f3</a> 
-<a href="https://pastebin.com/0QbqeZhW">0QbqeZhW</a> 
-<a href="https://pastebin.com/0QywkJGB">0QywkJGB</a> 
-<a href="https://pastebin.com/0cxSYR0C">0cxSYR0C</a> 
-<a href="https://pastebin.com/18GUjLX1">18GUjLX1</a> 
-<a href="https://pastebin.com/1QWGgGCb">1QWGgGCb</a> 

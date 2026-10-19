@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-47.md) · [‹ prev](references-45.md)
 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-fix-windows-update-error/">how to fix windows update error</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-plan-new-years-eve-party/">how to plan new years eve party</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-set-up-crypto-wallet/">how to set up crypto wallet</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-transfer-photos-from-iphone-to-laptop/">how to transfer photos from iphone to laptop</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://ls-boosting-produc-msro9yji.web.app/how-to-write-poll-question-that-doesnt-bias/">how to write poll question that doesnt bias</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/how-we-research/">how we research</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/hypepresss-com/">hypepresss com</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/idiom-insider/">idiom insider</a> 
@@ -781,24 +802,3 @@
 <a href="https://ls-how-to-back-up-seed-phrase-properly-muyljh44-imncw2y54a-uc.a.run.app">ls-how-to-back-up-seed-phrase-properly-muyljh44-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-how-to-back-up-seed-phrase-properly-muyljzc0-imncw2y54a-uc.a.run.app">ls-how-to-back-up-seed-phrase-properly-muyljzc0-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-how-to-back-up-seed-phrase-properly-muylkaxy-imncw2y54a-uc.a.run.app">ls-how-to-back-up-seed-phrase-properly-muylkaxy-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-back-up-seed-phrase-properly-muylkcod-imncw2y54a-uc.a.run.app">ls-how-to-back-up-seed-phrase-properly-muylkcod-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-back-up-seed-phrase-properly-muylkqnw-imncw2y54a-uc.a.run.app">ls-how-to-back-up-seed-phrase-properly-muylkqnw-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-back-up-seed-phrase-properly-muyllayb-imncw2y54a-uc.a.run.app">ls-how-to-back-up-seed-phrase-properly-muyllayb-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-block-lost-sim-card-in-india-muz0nxde-imncw2y54a-uc.a.run.app">ls-how-to-block-lost-sim-card-in-india-muz0nxde-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-build-a-personal-reading-list-and-wh-mc-imncw2y54a-uc.a.run.app">ls-how-to-build-a-personal-reading-list-and-wh-mc-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-build-a-personal-reading-list-and-wh-mt-imncw2y54a-uc.a.run.app">ls-how-to-build-a-personal-reading-list-and-wh-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-build-a-personal-reading-list-and-why-it-mat.ai2hmnz-rhub.workers.dev/">ls-how-to-build-a-personal-reading-list-and-why-it-mat.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-how-to-build-a-personal-reading-list-explai-mk-imncw2y54a-uc.a.run.app">ls-how-to-build-a-personal-reading-list-explai-mk-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-build-a-personal-reading-list-explai-mt-imncw2y54a-uc.a.run.app">ls-how-to-build-a-personal-reading-list-explai-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-build-a-personal-reading-list.ai2hmnz-rhub.workers.dev/">ls-how-to-build-a-personal-reading-list.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-how-to-build-real-digital-skills-with-online-course.ai2hmnz-rhub.workers.dev/">ls-how-to-build-real-digital-skills-with-online-course.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-muykirbk-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-muykirbk-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-muykjfdn-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-muykjfdn-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-muykjqzu-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-muykjqzu-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-muykjwl3-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-muykjwl3-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-muykkny5-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-muykkny5-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-muykkzpz-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-muykkzpz-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-safely-muyulie2-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-safely-muyulie2-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-safely-muyulpmt-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-safely-muyulpmt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-safely-muyum5j0-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-safely-muyum5j0-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-how-to-buy-your-first-crypto-safely-muyumgb7-imncw2y54a-uc.a.run.app">ls-how-to-buy-your-first-crypto-safely-muyumgb7-imncw2y54a-uc.a.run.app</a> 
