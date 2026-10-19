@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxpruqpz222">3msxpruqpz222</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxqpl2bil2k">3msxqpl2bil2k</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxro2exqo2y">3msxro2exqo2y</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxslslx7w2d">3msxslslx7w2d</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxtisroek22">3msxtisroek22</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxupfitml2a">3msxupfitml2a</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxvkvezof2a">3msxvkvezof2a</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxwiskwzh2d">3msxwiskwzh2d</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxxgj6fuu2d">3msxxgj6fuu2d</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxygpj6ej2u">3msxygpj6ej2u</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxzix5kx626">3msxzix5kx626</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msy2ytrkxh2s">3msy2ytrkxh2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msy3z2tbsy22">3msy3z2tbsy22</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msy4ww7ndp2a">3msy4ww7ndp2a</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msy5xqobfo27">3msy5xqobfo27</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msy6w4oan42u">3msy6w4oan42u</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msy7vctois2q">3msy7vctois2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msyavflq4v26">3msyavflq4v26</a> 
@@ -787,18 +802,3 @@
 <a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
 <a href="https://captainjackinterview.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://captainjackinterview.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://captainjackinterview.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 

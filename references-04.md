@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-get-the-most-out-of-online-guides-and-why-it-matters.html">how to get the most out of online guides and why it matters</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-get-the-most-out-of-online-guides-the-basics.html">how to get the most out of online guides the basics</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-learn-ai-from-scratch.html">how to learn ai from scratch</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-leverage-personal-finance-strategies-for-business-gro.html">how to leverage personal finance strategies for business gro</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-leverage-the-latest-apps-for-a-more-productive-digita.html">how to leverage the latest apps for a more productive digita</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-make-phone-speaker-louder.html">how to make phone speaker louder</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-plan-an-adult-birthday-party.html">how to plan an adult birthday party</a> 
@@ -798,7 +802,3 @@
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-18/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-19/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-2/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-20/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-21/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-22/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-3/">digital tools online resources 50 resources worth bookmarkin</a> 

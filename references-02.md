@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://358casino.co.bz/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://358casino.co.bz/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
 <a href="https://358casino.co.bz/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
 <a href="https://358casino.co.bz/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://358casino.co.bz/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
@@ -800,5 +802,3 @@
 <a href="https://agriculture-lawyer.com/essential-digital-tools-online-resources-for-modern-life-75-8/">essential digital tools online resources for modern life 75 </a> 
 <a href="https://agriculture-lawyer.com/essential-digital-tools-online-resources-for-modern-living-75-8/">essential digital tools online resources for modern living 7</a> 
 <a href="https://agriculture-lawyer.com/essential-guides-and-how-tos-for-government-services-in-bang-75-5/">essential guides and how tos for government services in bang</a> 
-<a href="https://agriculture-lawyer.com/essential-guides-reviews-how-tos-for-cryptocurrency-bitcoin-75-5/">essential guides reviews how tos for cryptocurrency bitcoin </a> 
-<a href="https://agriculture-lawyer.com/essential-independent-web-tech-and-crypto-resources-you-shou-75-9/">essential independent web tech and crypto resources you shou</a> 
