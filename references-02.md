@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://358casino.co.bz/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://358casino.co.bz/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://358casino.co.bz/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://358casino.co.bz/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
 <a href="https://358casino.co.bz/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://358casino.co.bz/how-to-fact-check-something-in-five-minutes-the-basics-2/">how to fact check something in five minutes the basics 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/exploring-the-digital-landscape-web-tech-and-content-in-agar-75-4/">exploring the digital landscape web tech and content in agar</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-dynamic-world-of-web-tech-content-resources-75-4/">exploring the dynamic world of web tech content resources 75</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-2/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-3/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-4/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-5/">exploring the intersection of web tech and content a compreh</a> 

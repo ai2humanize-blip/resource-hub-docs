@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-55.md) · [‹ prev](references-53.md)
 
+<a href="https://obesetuber.com/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
+<a href="https://obesetuber.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://obesetuber.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
+<a href="https://obesetuber.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
+<a href="https://obesetuber.com/how-to-leverage-the-latest-tech-apps-for-a-more-productive-l/">how to leverage the latest tech apps for a more productive l</a> 
+<a href="https://obesetuber.com/how-to-make-the-most-of-your-smartphone-essential-apps-and-t/">how to make the most of your smartphone essential apps and t</a> 
+<a href="https://obesetuber.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
+<a href="https://obesetuber.com/how-to-plan-unforgettable-events-a-comprehensive-guide-to-me/">how to plan unforgettable events a comprehensive guide to me</a> 
+<a href="https://obesetuber.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://obesetuber.com/how-to-read-the-news-without-getting-overwhelmed-the-basics-2/">how to read the news without getting overwhelmed the basics </a> 
+<a href="https://obesetuber.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://obesetuber.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
+<a href="https://obesetuber.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://obesetuber.com/how-to-stay-informed-navigating-today-s-news-landscape-for-c/">how to stay informed navigating today s news landscape for c</a> 
+<a href="https://obesetuber.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://obesetuber.com/how-to-tell-explainer-journalism-from-opinion-explained-simply/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://obesetuber.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
+<a href="https://obesetuber.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://obesetuber.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://obesetuber.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://obesetuber.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
 <a href="https://obesetuber.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
 <a href="https://obesetuber.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
 <a href="https://obesetuber.com/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://ph11com.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://ph11com.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://ph11com.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://ph11com.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://ph2bet.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://ph2bet.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://ph2bet.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://ph2bet.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://ph2bet.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://ph2bet.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://ph2bet.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://ph2bet.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://ph2bet.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://ph2bet.xyz/hello-world/">hello world</a> 
-<a href="https://ph2bet.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://ph2bet.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://ph2bet.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://ph2bet.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://ph2bet.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://ph2bet.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://ph2bet.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://ph444casino.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://ph444casino.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://ph444casino.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 

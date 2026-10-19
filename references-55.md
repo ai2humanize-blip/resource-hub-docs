@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-56.md) · [‹ prev](references-54.md)
 
+<a href="https://ph11com.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://ph2bet.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://ph2bet.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://ph2bet.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://ph2bet.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://ph2bet.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://ph2bet.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://ph2bet.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://ph2bet.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://ph2bet.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ph2bet.xyz/hello-world/">hello world</a> 
+<a href="https://ph2bet.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ph2bet.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://ph2bet.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://ph2bet.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://ph2bet.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://ph2bet.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://ph2bet.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://ph444casino.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://ph444casino.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://ph444casino.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://ph444casino.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://ph444casino.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://ph444casino.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
@@ -781,24 +802,3 @@
 <a href="https://pixect.xyz/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://pixect.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://pixect.xyz/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
-<a href="https://pixect.xyz/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
-<a href="https://pixect.xyz/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://pixect.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://pixect.xyz/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://pixect.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://pixect.xyz/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
-<a href="https://pixect.xyz/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://pixect.xyz/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
-<a href="https://pixect.xyz/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://pixect.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://pixect.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://pixect.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://pixect.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
-<a href="https://pixect.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
-<a href="https://pixect.xyz/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
-<a href="https://pixect.xyz/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
-<a href="https://pixect.xyz/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
-<a href="https://pixect.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://pixect.xyz/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://pixect.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://pixect.xyz/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
