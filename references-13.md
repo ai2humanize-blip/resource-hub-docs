@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://casacours.uk.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
+<a href="https://casacours.uk.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://casacours.uk.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://casacours.uk.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://casacours.uk.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
+<a href="https://casacours.uk.com/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
+<a href="https://casacours.uk.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://casacours.uk.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
+<a href="https://casacours.uk.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
+<a href="https://casacours.uk.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
+<a href="https://casacours.uk.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
+<a href="https://casacours.uk.com/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
+<a href="https://casacours.uk.com/licensing-and-player-protections-in-regulated-gambling-marke/">licensing and player protections in regulated gambling marke</a> 
+<a href="https://casacours.uk.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://casacours.uk.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://casacours.uk.com/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
+<a href="https://casacours.uk.com/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
+<a href="https://casacours.uk.com/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
+<a href="https://casacours.uk.com/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
+<a href="https://casacours.uk.com/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
+<a href="https://casacours.uk.com/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
+<a href="https://casacours.uk.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
 <a href="https://casacours.uk.com/rep-res-pour-s-informer-sereinement-sur-les-courses/">rep res pour s informer sereinement sur les courses</a> 
 <a href="https://casacours.uk.com/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
 <a href="https://casacours.uk.com/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
@@ -780,25 +802,3 @@
 <a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-19/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-83-3-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-83-3-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-83-3-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-83-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://cbd-stone.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://cbd-stone.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://cbd-stone.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
-<a href="https://cbd-stone.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
-<a href="https://cbd-stone.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://cbd-stone.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://cbd-stone.com/understanding-how-search-engines-rank-pages-and-why-it-matte-2/">understanding how search engines rank pages and why it matte</a> 

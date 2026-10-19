@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://forotesis.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://forotesis.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
+<a href="https://forotesis.com/how-recent-developments-in-ai-are-reshaping-the-news-landsca/">how recent developments in ai are reshaping the news landsca</a> 
+<a href="https://forotesis.com/how-smart-apps-are-transforming-daily-life-a-deep-dive-into/">how smart apps are transforming daily life a deep dive into</a> 
+<a href="https://forotesis.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
+<a href="https://forotesis.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
+<a href="https://forotesis.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://forotesis.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://forotesis.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://forotesis.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://forotesis.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://forotesis.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://forotesis.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://forotesis.com/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
+<a href="https://forotesis.com/how-to-compare-sources-on-the-same-story-3/">how to compare sources on the same story 3</a> 
+<a href="https://forotesis.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://forotesis.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://forotesis.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://forotesis.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://forotesis.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://forotesis.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://forotesis.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://forotesis.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://forotesis.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
 <a href="https://forotesis.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
@@ -780,25 +802,3 @@
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-97-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://getolive.org/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://getolive.org/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://getolive.org/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://getolive.org/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://getolive.org/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://getolive.org/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://getolive.org/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://getolive.org/understanding-legal-information-and-staying-updated-with-leg/">understanding legal information and staying updated with leg</a> 
-<a href="https://getolive.org/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
-<a href="https://getolive.org/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://getolive.org/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://getolive.org/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
-<a href="https://getolive.org/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
-<a href="https://getolive.org/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://getolive.org/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://getolive.org/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
-<a href="https://getolive.org/understanding-the-impact-of-ai-on-modern-journalism-opportun/">understanding the impact of ai on modern journalism opportun</a> 

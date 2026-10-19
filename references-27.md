@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://fabulouspoetry.it.com/how-to-navigate-the-digital-world-essential-apps-and-tools-f/">how to navigate the digital world essential apps and tools f</a> 
+<a href="https://fabulouspoetry.it.com/how-to-organize-the-information-you-find-online-a-practical-2/">how to organize the information you find online a practical </a> 
+<a href="https://fabulouspoetry.it.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://fabulouspoetry.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical-2/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://fabulouspoetry.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://fabulouspoetry.it.com/how-to-safely-clean-your-phone-speaker/">how to safely clean your phone speaker</a> 
+<a href="https://fabulouspoetry.it.com/how-to-safely-follow-an-app-that-s-still-in-development-2/">how to safely follow an app that s still in development 2</a> 
+<a href="https://fabulouspoetry.it.com/how-to-safely-follow-an-app-that-s-still-in-development/">how to safely follow an app that s still in development</a> 
+<a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
+<a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://fabulouspoetry.it.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
+<a href="https://fabulouspoetry.it.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://fabulouspoetry.it.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://fabulouspoetry.it.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://fabulouspoetry.it.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
+<a href="https://fabulouspoetry.it.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://fabulouspoetry.it.com/leveraging-online-resources-for-business-finance-productivit-27-5/">leveraging online resources for business finance productivit</a> 
+<a href="https://fabulouspoetry.it.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
+<a href="https://fabulouspoetry.it.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://fabulouspoetry.it.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://fabulouspoetry.it.com/marketing-seo-growth-45-resources-worth-bookmarking-27-19/">marketing seo growth 45 resources worth bookmarking 27 19</a> 
 <a href="https://fabulouspoetry.it.com/marketing-seo-growth-50-resources-worth-bookmarking-27-4-10/">marketing seo growth 50 resources worth bookmarking 27 4 10</a> 
 <a href="https://fabulouspoetry.it.com/marketing-seo-growth-50-resources-worth-bookmarking-27-4-11/">marketing seo growth 50 resources worth bookmarking 27 4 11</a> 
 <a href="https://fabulouspoetry.it.com/marketing-seo-growth-50-resources-worth-bookmarking-27-4-12/">marketing seo growth 50 resources worth bookmarking 27 4 12</a> 
@@ -780,25 +802,3 @@
 <a href="https://feetfinder.uk.net/common-questions-answered-19/">common questions answered 19</a> 
 <a href="https://feetfinder.uk.net/common-questions-answered-2/">common questions answered 2</a> 
 <a href="https://feetfinder.uk.net/common-questions-answered-20/">common questions answered 20</a> 
-<a href="https://feetfinder.uk.net/common-questions-answered-21/">common questions answered 21</a> 
-<a href="https://feetfinder.uk.net/common-questions-answered-22/">common questions answered 22</a> 
-<a href="https://feetfinder.uk.net/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://feetfinder.uk.net/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://feetfinder.uk.net/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://feetfinder.uk.net/common-questions-answered-6/">common questions answered 6</a> 
-<a href="https://feetfinder.uk.net/common-questions-answered-8/">common questions answered 8</a> 
-<a href="https://feetfinder.uk.net/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://feetfinder.uk.net/common-questions-answered/">common questions answered</a> 
-<a href="https://feetfinder.uk.net/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
-<a href="https://feetfinder.uk.net/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://feetfinder.uk.net/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
-<a href="https://feetfinder.uk.net/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
-<a href="https://feetfinder.uk.net/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://feetfinder.uk.net/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://feetfinder.uk.net/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
-<a href="https://feetfinder.uk.net/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://feetfinder.uk.net/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://feetfinder.uk.net/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://feetfinder.uk.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://feetfinder.uk.net/google-stacking-2/">google stacking 2</a> 
-<a href="https://feetfinder.uk.net/google-stacking/">google stacking</a> 
