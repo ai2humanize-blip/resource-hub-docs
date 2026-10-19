@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-38.md) · [‹ prev](references-36.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q">QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj">QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmR4xtwTnEELKdog7g5o2oDAhK2te5DaL6EnBT8qrqcGT2">QmR4xtwTnEELKdog7g5o2oDAhK2te5DaL6EnBT8qrqcGT2</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmR6yYAJY8BgFp8fgEbgn9cz6s8XtRR6XhkYMcdJrZCsDR">QmR6yYAJY8BgFp8fgEbgn9cz6s8XtRR6XhkYMcdJrZCsDR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRCWGVgoY2YPD631LQi59WQsCLTSQTZn2DYYu6pXvhdhX">QmRCWGVgoY2YPD631LQi59WQsCLTSQTZn2DYYu6pXvhdhX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRRVnEzKd6X7iGZAnRCEvUD9znyvcbmey9LbU6WhRsSJ3">QmRRVnEzKd6X7iGZAnRCEvUD9znyvcbmey9LbU6WhRsSJ3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRS59sEKDB3PAUoXY83riuwfpqZwKGeMMRvr7ttgDnytJ">QmRS59sEKDB3PAUoXY83riuwfpqZwKGeMMRvr7ttgDnytJ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRVejWUaeMDvzJzxprsFFjMWwkU2BEhPS3rPHz5wtzRzS">QmRVejWUaeMDvzJzxprsFFjMWwkU2BEhPS3rPHz5wtzRzS</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRWEA618P2aAnwY6h5RqEGpjS19PSzAJLDqjhPvqnHvAE">QmRWEA618P2aAnwY6h5RqEGpjS19PSzAJLDqjhPvqnHvAE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRYm8ubsn9RNr3XQpXqpbmQcJHQAdsLqkV6xbKmMnAcfP">QmRYm8ubsn9RNr3XQpXqpbmQcJHQAdsLqkV6xbKmMnAcfP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRavaF6wv3PURMCJ7AYXh67Jesah2N6iw1nCcM4gJSXGj">QmRavaF6wv3PURMCJ7AYXh67Jesah2N6iw1nCcM4gJSXGj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRbTAfyQN5axnnCWN3KBqA22Aqd4AGY2kbr7YxNSJD5Qg">QmRbTAfyQN5axnnCWN3KBqA22Aqd4AGY2kbr7YxNSJD5Qg</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRcKfQy2ZxAZitBSvXD3DViSeiE9XSscPCFNRTZro3FJn">QmRcKfQy2ZxAZitBSvXD3DViSeiE9XSscPCFNRTZro3FJn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRiTnwttz3tfxjfbx1NcHPmeTxKf5ioRcnQEnYznt16uA">QmRiTnwttz3tfxjfbx1NcHPmeTxKf5ioRcnQEnYznt16uA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRkjpyPoqicaa3C18UpAKdoLpbGjiFPF7VTniZSun2gmz">QmRkjpyPoqicaa3C18UpAKdoLpbGjiFPF7VTniZSun2gmz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRnaVrX7KFAzUpgH7ob8B3sqyEhcCehk4vkZrGmj9Dx7S">QmRnaVrX7KFAzUpgH7ob8B3sqyEhcCehk4vkZrGmj9Dx7S</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRvnygAjp6ZBDYa8oPp6Vhfnu4sbepZhr6U8V3wB3oApY">QmRvnygAjp6ZBDYa8oPp6Vhfnu4sbepZhr6U8V3wB3oApY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRyMABoYnhFgxkECFXT2eKTemfyxHypKnEezi1qprqePf">QmRyMABoYnhFgxkECFXT2eKTemfyxHypKnEezi1qprqePf</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS33rHiCNQbsDUsfhcHrk54eQCtVzHh2SWW4bjZsJxDmX">QmS33rHiCNQbsDUsfhcHrk54eQCtVzHh2SWW4bjZsJxDmX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS42wJKsqMr85MHvwGoJeYKksPmQd8ajHXNayoERZKJWR">QmS42wJKsqMr85MHvwGoJeYKksPmQd8ajHXNayoERZKJWR</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmS6MRCZEZmqmVaxQ832ywKMhJhWZntHkBv1tZQmB7N8t1">QmS6MRCZEZmqmVaxQ832ywKMhJhWZntHkBv1tZQmB7N8t1</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmSBSKQEmT89VBXpxj2eHChF9c9hLHh79PYJqVeWBPaVCF">QmSBSKQEmT89VBXpxj2eHChF9c9hLHh79PYJqVeWBPaVCF</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmSCxtJ3xB6NC332YgtDY1wVRhiUtsZGfy5kL3eQJWfa1c">QmSCxtJ3xB6NC332YgtDY1wVRhiUtsZGfy5kL3eQJWfa1c</a> 
@@ -782,23 +802,3 @@
 <a href="https://jollibeecasino.xyz/common-questions-answered-12/">common questions answered 12</a> 
 <a href="https://jollibeecasino.xyz/common-questions-answered-13/">common questions answered 13</a> 
 <a href="https://jollibeecasino.xyz/common-questions-answered-14/">common questions answered 14</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-15/">common questions answered 15</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-16/">common questions answered 16</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-17/">common questions answered 17</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-18/">common questions answered 18</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-19/">common questions answered 19</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-2/">common questions answered 2</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-20/">common questions answered 20</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-21/">common questions answered 21</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-22/">common questions answered 22</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-6/">common questions answered 6</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-7/">common questions answered 7</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-8/">common questions answered 8</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered/">common questions answered</a> 
-<a href="https://jollibeecasino.xyz/crypto-credit-cards-explained-how-they-differ-from-debit-car/">crypto credit cards explained how they differ from debit car</a> 
-<a href="https://jollibeecasino.xyz/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
-<a href="https://jollibeecasino.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 

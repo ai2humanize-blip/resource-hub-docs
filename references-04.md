@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide.html">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/humanity-rebounds-strongly-key-support-breakout-above-030.html">humanity rebounds strongly key support breakout above 030</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/hypepresss-com.html">hypepresss com</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/idiom-insider.html">idiom insider</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/illicitlabel-com-underground-music-authority.html">illicitlabel com underground music authority</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/indian-achievers-stories.html">indian achievers stories</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/innovative-event-planning-creative-ideas-and-tips-for-memora.html">innovative event planning creative ideas and tips for memora</a> 
@@ -762,6 +766,8 @@
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-11/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-12/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-13/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-14/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-15/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-2/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-3/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-4/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -796,9 +802,3 @@
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-everyday-use-77-6/">essential digital tools online resources for everyday use 77</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-islamic-practic-77-6/">essential digital tools online resources for islamic practic</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-cities-a-77-6/">essential digital tools online resources for modern cities a</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-learning-77-6/">essential digital tools online resources for modern learning</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-2/">essential digital tools online resources for modern living 7</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-3/">essential digital tools online resources for modern living 7</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-4/">essential digital tools online resources for modern living 7</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-5/">essential digital tools online resources for modern living 7</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6/">essential digital tools online resources for modern living 7</a> 

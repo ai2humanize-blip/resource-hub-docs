@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://earnmoneyplayinggames.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-digital-pr-and-sponsored-content-actually-work/">how digital pr and sponsored content actually work</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-surnames-get-their-meanings/">how surnames get their meanings</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list-2/">how to build a personal reading list 2</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
@@ -786,19 +802,3 @@
 <a href="https://emiamedical.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
 <a href="https://emiamedical.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
 <a href="https://emiamedical.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://emiamedical.com/getting-how-to-organize-the-information-you-find-online-righ-2/">getting how to organize the information you find online righ</a> 
-<a href="https://emiamedical.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://emiamedical.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
-<a href="https://emiamedical.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://emiamedical.com/getting-the-difference-between-skimming-and-deep-reading-onl-2/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://emiamedical.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://emiamedical.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-2/">guides reviews how tos 50 resources worth bookmarking 92 8 2</a> 
-<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8-3/">guides reviews how tos 50 resources worth bookmarking 92 8 3</a> 
-<a href="https://emiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-92-8/">guides reviews how tos 50 resources worth bookmarking 92 8</a> 
-<a href="https://emiamedical.com/guides-reviews-how-tos-navigating-the-information-age-92-3/">guides reviews how tos navigating the information age 92 3</a> 
-<a href="https://emiamedical.com/how-ai-and-machine-learning-are-revolutionizing-everyday-app/">how ai and machine learning are revolutionizing everyday app</a> 
-<a href="https://emiamedical.com/how-ai-and-machine-learning-are-transforming-daily-life-and/">how ai and machine learning are transforming daily life and</a> 
-<a href="https://emiamedical.com/how-ai-driven-news-platforms-are-revolutionizing-current-eve/">how ai driven news platforms are revolutionizing current eve</a> 
-<a href="https://emiamedical.com/how-ai-is-transforming-news-consumption-current-trends-and-f/">how ai is transforming news consumption current trends and f</a> 
-<a href="https://emiamedical.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
