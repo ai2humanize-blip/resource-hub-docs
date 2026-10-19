@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-55.md) · [‹ prev](references-53.md)
 
+<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
+<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://obesetuber.com/how-to-boost-your-digital-privacy-apps-and-tools-for-secure/">how to boost your digital privacy apps and tools for secure</a> 
+<a href="https://obesetuber.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://obesetuber.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://obesetuber.com/how-to-choose-a-travel-esim-for-your-destination/">how to choose a travel esim for your destination</a> 
+<a href="https://obesetuber.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://obesetuber.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://obesetuber.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters-2/">how to find balanced coverage of a topic and why it matters </a> 
+<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
+<a href="https://obesetuber.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
+<a href="https://obesetuber.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
 <a href="https://obesetuber.com/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
 <a href="https://obesetuber.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://obesetuber.com/how-to-get-the-most-out-of-online-guides-a-practical-guide/">how to get the most out of online guides a practical guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://pastelink.net/wxjb1l63">wxjb1l63</a> 
 <a href="https://pastelink.net/xkylfv1x">xkylfv1x</a> 
 <a href="https://pathway2prevention.org/gindex.html">gindex</a> 
-<a href="https://pathway2prevention.org/picks.html">picks</a> 
-<a href="https://peaceful-buttercream-3e3fdd.netlify.app/staying-safe-and-responsible-the-latest-online-casino-and-ga.html">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://peaceful-kangaroo-492943.netlify.app/the-basics-of-staying-safe-while-browsing-and-why-it-matters.html">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://peaceful-melba-03e27d.netlify.app/how-to-tell-explainer-journalism-from-opinion-a-quick-guide.html">how to tell explainer journalism from opinion a quick guide</a> 
-<a href="https://peppy-marzipan-2a475d.netlify.app/mastering-the-art-of-content-marketing-a-step-by-step-guide.html">mastering the art of content marketing a step by step guide</a> 
-<a href="https://ph11com.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://ph11com.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://ph11com.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://ph11com.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://ph11com.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://ph11com.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://ph11com.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://ph11com.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://ph11com.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://ph11com.xyz/hello-world/">hello world</a> 
-<a href="https://ph11com.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://ph11com.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://ph11com.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://ph11com.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://ph11com.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://ph11com.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 

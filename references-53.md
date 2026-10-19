@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-54.md) · [‹ prev](references-52.md)
 
+<a href="https://mylaunchpadnetwork.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-avoid-misinformation-and-hype-2/">what to know about how to avoid misinformation and hype 2</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour-2/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-get-the-most-out-of-online-guides-2/">what to know about how to get the most out of online guides </a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-recognizing-credible-experts-online-3/">what to know about recognizing credible experts online 3</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-look-for-in-a-good-news-website-2/">what to look for in a good news website 2</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://mylaunchpadnetwork.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://mylaunchpadnetwork.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://mylaunchpadnetwork.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
 <a href="https://mylaunchpadnetwork.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
@@ -781,24 +802,3 @@
 <a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
 <a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://obesetuber.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
-<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
-<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://obesetuber.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://obesetuber.com/how-to-boost-your-digital-privacy-apps-and-tools-for-secure/">how to boost your digital privacy apps and tools for secure</a> 
-<a href="https://obesetuber.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
-<a href="https://obesetuber.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
-<a href="https://obesetuber.com/how-to-choose-a-travel-esim-for-your-destination/">how to choose a travel esim for your destination</a> 
-<a href="https://obesetuber.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
-<a href="https://obesetuber.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
-<a href="https://obesetuber.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
-<a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://obesetuber.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters-2/">how to find balanced coverage of a topic and why it matters </a> 
-<a href="https://obesetuber.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
-<a href="https://obesetuber.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
-<a href="https://obesetuber.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 

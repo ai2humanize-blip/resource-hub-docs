@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://358casino.co.bz/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://358casino.co.bz/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://358casino.co.bz/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
 <a href="https://358casino.co.bz/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://358casino.co.bz/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
 <a href="https://358casino.co.bz/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/exploring-the-best-web-tech-content-resources-for-2023-75-9/">exploring the best web tech content resources for 2023 75 9</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-crypto-universe-guides-reviews-and-how-tos-for-75-5/">exploring the crypto universe guides reviews and how tos for</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-digital-frontier-guides-reviews-how-tos-for-th-75-5/">exploring the digital frontier guides reviews how tos for th</a> 
-<a href="https://agriculture-lawyer.com/exploring-the-digital-landscape-web-tech-and-content-in-agar-75-4/">exploring the digital landscape web tech and content in agar</a> 
-<a href="https://agriculture-lawyer.com/exploring-the-dynamic-world-of-web-tech-content-resources-75-4/">exploring the dynamic world of web tech content resources 75</a> 
-<a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-2/">exploring the intersection of web tech and content a compreh</a> 

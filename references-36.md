@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://illicitlabel.com/crypto-taxes-explained-records-events-and-reporting-basics/">crypto taxes explained records events and reporting basics</a> 
+<a href="https://illicitlabel.com/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
+<a href="https://illicitlabel.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://illicitlabel.com/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
+<a href="https://illicitlabel.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://illicitlabel.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://illicitlabel.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://illicitlabel.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
+<a href="https://illicitlabel.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://illicitlabel.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://illicitlabel.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://illicitlabel.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://illicitlabel.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://illicitlabel.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://illicitlabel.com/how-crypto-debit-cards-work-and-what-the-fees-really-are/">how crypto debit cards work and what the fees really are</a> 
+<a href="https://illicitlabel.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://illicitlabel.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://illicitlabel.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://illicitlabel.com/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
+<a href="https://illicitlabel.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
+<a href="https://illicitlabel.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://illicitlabel.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
 <a href="https://illicitlabel.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
 <a href="https://illicitlabel.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
@@ -781,24 +802,3 @@
 <a href="https://ipfs.filebase.io/ipfs/QmWtPJZzdV8t91Wuosb3HMMyVnNrvzrJqCdXdkCZHrx4ii">QmWtPJZzdV8t91Wuosb3HMMyVnNrvzrJqCdXdkCZHrx4ii</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmWz7Rsamzi1Y1grkx2fDY5uzGu8CRYeseFsVySLJWPwsH">QmWz7Rsamzi1Y1grkx2fDY5uzGu8CRYeseFsVySLJWPwsH</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmX2FGeJGN49xorEdPwzywvFnKZ2BwkwgJiZKnNAQBYAdS">QmX2FGeJGN49xorEdPwzywvFnKZ2BwkwgJiZKnNAQBYAdS</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmX9ukeqpt4Ch21evfvoUWeKsG1NKSd3T8FD7oxaxQ1tFF">QmX9ukeqpt4Ch21evfvoUWeKsG1NKSd3T8FD7oxaxQ1tFF</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmX9xuPWBpnGT7Ku3P6tQceMkEPX43X9j1ieNMWB1pdZtj">QmX9xuPWBpnGT7Ku3P6tQceMkEPX43X9j1ieNMWB1pdZtj</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXSZ2tsNiqHheidwzvxwxTQT5WYFUPQGHt73gvx3visg2">QmXSZ2tsNiqHheidwzvxwxTQT5WYFUPQGHt73gvx3visg2</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp">QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA">QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW">QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXrwtRqLoHJXTuExRKjzTqNzfSAJMUNqEtmN9gkxrSw8z">QmXrwtRqLoHJXTuExRKjzTqNzfSAJMUNqEtmN9gkxrSw8z</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw">QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp">QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa">QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc">QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw">QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7">QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYi5zaYpxyatQtDPfy1oFCJGjJDBeCxzwJmi4tsyehJZB">QmYi5zaYpxyatQtDPfy1oFCJGjJDBeCxzwJmi4tsyehJZB</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3">QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX">QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj">QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o">QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA">QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmZT8JqUbm2dnt5wBncfHGzU8okXs888d74h6V2H1dQN77">QmZT8JqUbm2dnt5wBncfHGzU8okXs888d74h6V2H1dQN77</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmZWiUSfTj9MmpMGbTqmFoH8q3o1RfW2v7LDzGMRioXFvh">QmZWiUSfTj9MmpMGbTqmFoH8q3o1RfW2v7LDzGMRioXFvh</a> 
