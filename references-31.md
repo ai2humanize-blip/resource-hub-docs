@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://getolive.org/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
+<a href="https://getolive.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://getolive.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://getolive.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://getolive.org/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://getolive.org/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://getolive.org/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
+<a href="https://getolive.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://getolive.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://getolive.org/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-2/">guides reviews how tos 50 resources worth bookmarking 97 3 2</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-3/">guides reviews how tos 50 resources worth bookmarking 97 3 3</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3/">guides reviews how tos 50 resources worth bookmarking 97 3</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-navigating-the-information-age-97-8/">guides reviews how tos navigating the information age 97 8</a> 
+<a href="https://getolive.org/how-ai-driven-apps-are-transforming-our-digital-experience/">how ai driven apps are transforming our digital experience</a> 
+<a href="https://getolive.org/how-ai-driven-apps-are-transforming-our-digital-lives/">how ai driven apps are transforming our digital lives</a> 
+<a href="https://getolive.org/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://getolive.org/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
+<a href="https://getolive.org/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://getolive.org/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
+<a href="https://getolive.org/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
 <a href="https://getolive.org/how-crypto-debit-cards-work-and-what-the-fees-really-are/">how crypto debit cards work and what the fees really are</a> 
 <a href="https://getolive.org/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://getolive.org/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
@@ -781,24 +802,3 @@
 <a href="https://globespro.it.com/mastering-career-changes-job-searches-and-legal-knowledge-es-29-6/">mastering career changes job searches and legal knowledge es</a> 
 <a href="https://globespro.it.com/mastering-communication-home-upgrades-and-digital-privacy-a-29-6/">mastering communication home upgrades and digital privacy a </a> 
 <a href="https://globespro.it.com/mastering-construction-guides-reviews-and-how-tos-for-the-pr-29-6/">mastering construction guides reviews and how tos for the pr</a> 
-<a href="https://globespro.it.com/mastering-crypto-analysis-guides-reviews-how-tos-for-success-29-6/">mastering crypto analysis guides reviews how tos for success</a> 
-<a href="https://globespro.it.com/mastering-crypto-crisis-communications-smart-contract-audits-29-6/">mastering crypto crisis communications smart contract audits</a> 
-<a href="https://globespro.it.com/mastering-crypto-guides-reviews-and-how-tos-for-bitcoin-and-29-6/">mastering crypto guides reviews and how tos for bitcoin and </a> 
-<a href="https://globespro.it.com/mastering-crypto-guides-reviews-and-how-tos-for-every-invest-29-6/">mastering crypto guides reviews and how tos for every invest</a> 
-<a href="https://globespro.it.com/mastering-crypto-guides-reviews-and-how-tos-for-success-29-6/">mastering crypto guides reviews and how tos for success 29 6</a> 
-<a href="https://globespro.it.com/mastering-crypto-investment-guides-reviews-and-how-tos-for-s-29-6/">mastering crypto investment guides reviews and how tos for s</a> 
-<a href="https://globespro.it.com/mastering-crypto-market-data-guides-reviews-how-tos-for-succ-29-6/">mastering crypto market data guides reviews how tos for succ</a> 
-<a href="https://globespro.it.com/mastering-crypto-media-guides-reviews-how-tos-for-success-29-6/">mastering crypto media guides reviews how tos for success 29</a> 
-<a href="https://globespro.it.com/mastering-crypto-trading-guides-reviews-and-how-tos-for-succ-29-6/">mastering crypto trading guides reviews and how tos for succ</a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-bitcoin-and-blockchain-comprehensiv-29-6/">mastering cryptocurrency bitcoin and blockchain comprehensiv</a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-bitcoin-and-blockchain-guides-revie-29-6-2/">mastering cryptocurrency bitcoin and blockchain guides revie</a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-bitcoin-and-blockchain-guides-revie-29-6/">mastering cryptocurrency bitcoin and blockchain guides revie</a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-bitcoin-blockchain-ultimate-guides-29-6/">mastering cryptocurrency bitcoin blockchain ultimate guides </a> 
-<a href="https://globespro.it.com/mastering-cryptocurrency-guides-reviews-and-how-tos-for-ever-29-6/">mastering cryptocurrency guides reviews and how tos for ever</a> 
-<a href="https://globespro.it.com/mastering-daily-result-charts-guides-reviews-and-how-tos-for-29-6/">mastering daily result charts guides reviews and how tos for</a> 
-<a href="https://globespro.it.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-29-6/">mastering digital literacy guides reviews and how tos for th</a> 
-<a href="https://globespro.it.com/mastering-digital-organization-top-apps-for-a-clutter-free-o/">mastering digital organization top apps for a clutter free o</a> 
-<a href="https://globespro.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-29-4-2/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://globespro.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-29-4-3/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://globespro.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-29-4/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://globespro.it.com/mastering-football-statistics-guides-reviews-how-tos-for-fan-29-6/">mastering football statistics guides reviews how tos for fan</a> 

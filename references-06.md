@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alientapereviews.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://alientapereviews.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://alientapereviews.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://alientapereviews.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://alientapereviews.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://alientapereviews.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://alientapereviews.com/how-to-choose-the-best-digital-camera-for-your-needs/">how to choose the best digital camera for your needs</a> 
+<a href="https://alientapereviews.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://alientapereviews.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://alientapereviews.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://alientapereviews.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://alientapereviews.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
 <a href="https://alientapereviews.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://alientapereviews.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://alientapereviews.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
@@ -790,15 +802,3 @@
 <a href="https://app.zentrack.net/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
 <a href="https://app.zentrack.net/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
 <a href="https://app.zentrack.net/how-html5-revolutionized-casual-browser-gaming-for-business-25-2/">how html5 revolutionized casual browser gaming for business </a> 
-<a href="https://app.zentrack.net/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
-<a href="https://app.zentrack.net/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
-<a href="https://app.zentrack.net/how-online-urdu-english-dictionaries-and-translation-tools-w-2/">how online urdu english dictionaries and translation tools w</a> 
-<a href="https://app.zentrack.net/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
-<a href="https://app.zentrack.net/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
-<a href="https://app.zentrack.net/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
-<a href="https://app.zentrack.net/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
-<a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 
-<a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://app.zentrack.net/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 

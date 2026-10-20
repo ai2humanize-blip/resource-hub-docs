@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://algiamedical.com/breaking-down-today-s-top-news-stories-analysis-and-insights/">breaking down today s top news stories analysis and insights</a> 
+<a href="https://algiamedical.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
+<a href="https://algiamedical.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://algiamedical.com/building-your-personal-web-tech-content-toolkit-a-curated-gu-77-7/">building your personal web tech content toolkit a curated gu</a> 
+<a href="https://algiamedical.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
+<a href="https://algiamedical.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
 <a href="https://algiamedical.com/choosing-the-perfect-timepiece-a-comprehensive-watch-buying/">choosing the perfect timepiece a comprehensive watch buying</a> 
 <a href="https://algiamedical.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
 <a href="https://algiamedical.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-77-8/">comprehensive guides reviews and how tos for every interest </a> 
@@ -39,6 +45,9 @@
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-32/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-33/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-34/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-35/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-36/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-37/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-4/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-5/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-6/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -761,6 +770,9 @@
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-32/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-33/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-34/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
+<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-35/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
+<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-36/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
+<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-37/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-4/">guides reviews how tos 50 resources worth bookmarking 78 7 4</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-5/">guides reviews how tos 50 resources worth bookmarking 78 7 5</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-6/">guides reviews how tos 50 resources worth bookmarking 78 7 6</a> 
@@ -790,15 +802,3 @@
 <a href="https://alientapereviews.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt-3/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://alientapereviews.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://alientapereviews.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://alientapereviews.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
-<a href="https://alientapereviews.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
-<a href="https://alientapereviews.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
-<a href="https://alientapereviews.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://alientapereviews.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://alientapereviews.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
-<a href="https://alientapereviews.com/how-to-choose-the-best-digital-camera-for-your-needs/">how to choose the best digital camera for your needs</a> 
-<a href="https://alientapereviews.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
-<a href="https://alientapereviews.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
-<a href="https://alientapereviews.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://alientapereviews.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
-<a href="https://alientapereviews.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 

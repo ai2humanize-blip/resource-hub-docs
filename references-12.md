@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://boostelearning.mataroa.blog/blog/where-the-jobs-are-india-growing-sectors/">where the jobs are india growing sectors</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-attention-is-the-scarce-resource/">why attention is the scarce resource</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-professional-certifications-still-matter-for-career-growth/">why professional certifications still matter for career grow</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-6ab3c4bf/">why washington not charts is driving crypto 6ab3c4bf</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-6d6600ff/">why washington not charts is driving crypto 6d6600ff</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-c25348a8/">why washington not charts is driving crypto c25348a8</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-c605769c/">why washington not charts is driving crypto c605769c</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto/">why washington not charts is driving crypto</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-we-label-reviews-research-based/">why we label reviews research based</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-you-never-enter-upi-pin-to-receive/">why you never enter upi pin to receive</a> 
+<a href="https://boostelearning.mataroa.blog/blog/write-for-us-0b3beeb0/">write for us 0b3beeb0</a> 
 <a href="https://boostelearning.mataroa.blog/blog/write-for-us-be120e06/">write for us be120e06</a> 
 <a href="https://boostelearning.mataroa.blog/blog/write-for-us-c83ca9d1/">write for us c83ca9d1</a> 
 <a href="https://boostelearning.mataroa.blog/blog/write-for-us-fdcdc9d0/">write for us fdcdc9d0</a> 
@@ -781,24 +802,3 @@
 <a href="https://captainjackinterview.com/transforming-daily-life-the-impact-of-ai-powered-apps-on-bus-82-5/">transforming daily life the impact of ai powered apps on bus</a> 
 <a href="https://captainjackinterview.com/transforming-your-digital-life-top-apps-for-productivity-lea-82-5/">transforming your digital life top apps for productivity lea</a> 
 <a href="https://captainjackinterview.com/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
-<a href="https://captainjackinterview.com/ultimate-guides-reviews-how-tos-your-go-to-resource-for-mast-82-3/">ultimate guides reviews how tos your go to resource for mast</a> 
-<a href="https://captainjackinterview.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://captainjackinterview.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
