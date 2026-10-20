@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alientapereviews.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://alientapereviews.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://alientapereviews.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://alientapereviews.com/how-to-fact-check-something-in-five-minutes-the-basics-2/">how to fact check something in five minutes the basics 2</a> 
 <a href="https://alientapereviews.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://alientapereviews.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
 <a href="https://alientapereviews.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
@@ -798,7 +802,3 @@
 <a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
 <a href="https://app.zentrack.net/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
-<a href="https://app.zentrack.net/how-to-build-a-personal-reading-list-and-why-it-matters-2/">how to build a personal reading list and why it matters 2</a> 
-<a href="https://app.zentrack.net/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
-<a href="https://app.zentrack.net/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
-<a href="https://app.zentrack.net/how-to-choose-a-baby-name-meaning-origin-and-sound-2/">how to choose a baby name meaning origin and sound 2</a> 

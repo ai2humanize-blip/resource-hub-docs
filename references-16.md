@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cnlawblog.jpn.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://cnlawblog.jpn.com/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
+<a href="https://cnlawblog.jpn.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-a-quick-guide/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
+<a href="https://cnlawblog.jpn.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://cnlawblog.jpn.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
+<a href="https://cnlawblog.jpn.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
+<a href="https://cnlawblog.jpn.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
 <a href="https://cnlawblog.jpn.com/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
 <a href="https://cnlawblog.jpn.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://cnlawblog.jpn.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
@@ -793,12 +802,3 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-22/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-23/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-24/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-25/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-26/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-27/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-28/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-29/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-30/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-31/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-32/">mastering business finance productivity a comprehensive guid</a> 

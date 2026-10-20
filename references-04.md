@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-compare-sources-on-the-same-story-a-practical-guide.html">how to compare sources on the same story a practical guide</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-compare-sources-on-the-same-story-the-basics.html">how to compare sources on the same story the basics</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-compare-sources-on-the-same-story.html">how to compare sources on the same story</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-create-an-effective-home-office-for-maximum-productiv.html">how to create an effective home office for maximum productiv</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-evaluate-20-minimum-deposit-casinos-before.html">how to evaluate 20 minimum deposit casinos before</a> 
@@ -800,5 +802,3 @@
 <a href="https://algiamedical.com/building-your-personal-web-tech-content-toolkit-a-curated-gu-77-7/">building your personal web tech content toolkit a curated gu</a> 
 <a href="https://algiamedical.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
 <a href="https://algiamedical.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
-<a href="https://algiamedical.com/choosing-the-perfect-timepiece-a-comprehensive-watch-buying/">choosing the perfect timepiece a comprehensive watch buying</a> 
-<a href="https://algiamedical.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
