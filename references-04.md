@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-the-air-quality-index-aqi-is-calculated.html">how the air quality index aqi is calculated</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-the-census-of-india-works.html">how the census of india works</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-the-independent-music-scene-is-shaping-modern-music-cult.html">how the independent music scene is shaping modern music cult</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-avoid-job-scams-fake-recruiters.html">how to avoid job scams fake recruiters</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-avoid-misinformation-and-hype-a-practical-guide.html">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-avoid-misinformation-and-hype-the-basics.html">how to avoid misinformation and hype the basics</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-back-up-your-data-properly.html">how to back up your data properly</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-bookmark-and-revisit-useful-resources-explained-simpl.html">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-bookmark-and-revisit-useful-resources-the-basics.html">how to bookmark and revisit useful resources the basics</a> 
@@ -796,9 +802,3 @@
 <a href="https://algiamedical.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://algiamedical.com/a-navigating-the-modern-job-market-essential-career-advice-f/">a navigating the modern job market essential career advice f</a> 
 <a href="https://algiamedical.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
-<a href="https://algiamedical.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://algiamedical.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://algiamedical.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
-<a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 

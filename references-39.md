@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re-2/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re-3/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://landscape-paintings.net/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
+<a href="https://landscape-paintings.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://landscape-paintings.net/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://landscape-paintings.net/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://landscape-paintings.net/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://landscape-paintings.net/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://landscape-paintings.net/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://landscape-paintings.net/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-a-practical-guide-2/">a simple framework for researching any topic online a practi</a> 
 <a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
 <a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
 <a href="https://landscape-paintings.net/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
@@ -781,24 +802,3 @@
 <a href="https://lapzoocom.it.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-31-9/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://lapzoocom.it.com/mastering-guides-reviews-how-tos-your-ultimate-round-up-for-31-9/">mastering guides reviews how tos your ultimate round up for </a> 
 <a href="https://lapzoocom.it.com/mastering-home-maintenance-expert-tips-for-web-tech-content-31-8/">mastering home maintenance expert tips for web tech content </a> 
-<a href="https://lapzoocom.it.com/mastering-information-guides-reviews-how-tos-for-the-modern-31-9/">mastering information guides reviews how tos for the modern </a> 
-<a href="https://lapzoocom.it.com/mastering-instagram-posts-and-navigating-indonesian-services-31-9/">mastering instagram posts and navigating indonesian services</a> 
-<a href="https://lapzoocom.it.com/mastering-marketing-seo-growth-essential-strategies-for-succ-31-5/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://lapzoocom.it.com/mastering-marketing-seo-growth-strategies-for-success-31-5/">mastering marketing seo growth strategies for success 31 5</a> 
-<a href="https://lapzoocom.it.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-31-8/">mastering modern communication a deep dive into web tech con</a> 
-<a href="https://lapzoocom.it.com/mastering-modern-media-guides-reviews-how-tos-for-savvy-read-31-9/">mastering modern media guides reviews how tos for savvy read</a> 
-<a href="https://lapzoocom.it.com/mastering-movie-franchises-and-release-windows-a-comprehensi-31-8/">mastering movie franchises and release windows a comprehensi</a> 
-<a href="https://lapzoocom.it.com/mastering-news-consumption-guides-reviews-how-tos-for-inform-31-9/">mastering news consumption guides reviews how tos for inform</a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-and-how-tos-for-31-9-2/">mastering online information guides reviews and how tos for </a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-and-how-tos-for-31-9-3/">mastering online information guides reviews and how tos for </a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-and-how-tos-for-31-9-4/">mastering online information guides reviews and how tos for </a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-and-how-tos-for-31-9-5/">mastering online information guides reviews and how tos for </a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-and-how-tos-for-31-9-6/">mastering online information guides reviews and how tos for </a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-and-how-tos-for-31-9/">mastering online information guides reviews and how tos for </a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-31-9-10/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-31-9-11/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-31-9-12/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-31-9-13/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-31-9-2/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-31-9-3/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://lapzoocom.it.com/mastering-online-information-guides-reviews-how-tos-for-savv-31-9-4/">mastering online information guides reviews how tos for savv</a> 

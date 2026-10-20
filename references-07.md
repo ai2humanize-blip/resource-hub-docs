@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://app.zentrack.net/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://app.zentrack.net/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://app.zentrack.net/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
+<a href="https://app.zentrack.net/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://app.zentrack.net/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://app.zentrack.net/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://app.zentrack.net/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://app.zentrack.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://app.zentrack.net/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
+<a href="https://app.zentrack.net/how-ai-and-machine-learning-are-revolutionizing-app-developm/">how ai and machine learning are revolutionizing app developm</a> 
+<a href="https://app.zentrack.net/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://app.zentrack.net/how-ai-driven-apps-are-transforming-our-digital-lives/">how ai driven apps are transforming our digital lives</a> 
 <a href="https://app.zentrack.net/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://app.zentrack.net/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
@@ -641,6 +653,9 @@
 <a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-39/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-4/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-40/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-41/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-42/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-43/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-5/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-6/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-7/">business finance productivity 50 resources worth bookmarking</a> 
@@ -787,18 +802,3 @@
 <a href="https://arcadefloristbedford.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
 <a href="https://arcadefloristbedford.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
 <a href="https://arcadefloristbedford.com/getting-how-to-organize-the-information-you-find-online-righ-2/">getting how to organize the information you find online righ</a> 
-<a href="https://arcadefloristbedford.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://arcadefloristbedford.com/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
-<a href="https://arcadefloristbedford.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://arcadefloristbedford.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://arcadefloristbedford.com/getting-rid-of-cockroaches-what-works-and-what-doesn-t/">getting rid of cockroaches what works and what doesn t</a> 
-<a href="https://arcadefloristbedford.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://arcadefloristbedford.com/getting-why-niche-blogs-still-matter-right-2/">getting why niche blogs still matter right 2</a> 
-<a href="https://arcadefloristbedford.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://arcadefloristbedford.com/how-ai-driven-apps-are-transforming-everyday-life-and-work/">how ai driven apps are transforming everyday life and work</a> 
-<a href="https://arcadefloristbedford.com/how-ai-driven-news-aggregators-are-transforming-media-consum/">how ai driven news aggregators are transforming media consum</a> 
-<a href="https://arcadefloristbedford.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
-<a href="https://arcadefloristbedford.com/how-ai-powered-apps-are-transforming-our-daily-digital-lives/">how ai powered apps are transforming our daily digital lives</a> 
-<a href="https://arcadefloristbedford.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
-<a href="https://arcadefloristbedford.com/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
-<a href="https://arcadefloristbedford.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 

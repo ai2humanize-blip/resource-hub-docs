@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
+<a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-75-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
+<a href="https://agriculture-lawyer.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://agriculture-lawyer.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
 <a href="https://agriculture-lawyer.com/discover-the-best-browser-games-digital-tools-for-endless-en-75-8/">discover the best browser games digital tools for endless en</a> 
 <a href="https://agriculture-lawyer.com/discover-the-best-digital-tools-online-resources-for-every-n-75-3/">discover the best digital tools online resources for every n</a> 
@@ -478,6 +481,9 @@
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-39/">web tech content 50 resources worth bookmarking 75 4 39</a> 
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-4/">web tech content 50 resources worth bookmarking 75 4 4</a> 
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-40/">web tech content 50 resources worth bookmarking 75 4 40</a> 
+<a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-41/">web tech content 50 resources worth bookmarking 75 4 41</a> 
+<a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-42/">web tech content 50 resources worth bookmarking 75 4 42</a> 
+<a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-43/">web tech content 50 resources worth bookmarking 75 4 43</a> 
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-5/">web tech content 50 resources worth bookmarking 75 4 5</a> 
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-6/">web tech content 50 resources worth bookmarking 75 4 6</a> 
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-7/">web tech content 50 resources worth bookmarking 75 4 7</a> 
@@ -796,9 +802,3 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-on-ramps-and-off-ramps-work.html">how on ramps and off ramps work</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-spot-etf-flows-affect-bitcoin-supply.html">how spot etf flows affect bitcoin supply</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-surnames-get-their-meanings.html">how surnames get their meanings</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-the-air-quality-index-aqi-is-calculated.html">how the air quality index aqi is calculated</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-the-census-of-india-works.html">how the census of india works</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-the-independent-music-scene-is-shaping-modern-music-cult.html">how the independent music scene is shaping modern music cult</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-avoid-job-scams-fake-recruiters.html">how to avoid job scams fake recruiters</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-avoid-misinformation-and-hype-a-practical-guide.html">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-avoid-misinformation-and-hype-the-basics.html">how to avoid misinformation and hype the basics</a> 

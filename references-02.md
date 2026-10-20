@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.tinyblogging.com/a-reading-list-of-independent-news-and-finance-sites-87144035">a reading list of independent news and finance sites 8714403</a> 
+<a href="https://1mother.tinyblogging.com/independent-crypto-and-finance-publications-to-bookmark-87144037">independent crypto and finance publications to bookmark 8714</a> 
+<a href="https://1mother.tinyblogging.com/more-independent-websites-worth-exploring-87144034">more independent websites worth exploring 87144034</a> 
 <a href="https://1mother.tinyblogging.com/useful-independent-sites-tools-and-crypto-resources-87144041">useful independent sites tools and crypto resources 87144041</a> 
 <a href="https://1mother.tribunablog.com/a-reading-list-of-independent-news-and-finance-sites-57612688">a reading list of independent news and finance sites 5761268</a> 
 <a href="https://1mother.tribunablog.com/independent-crypto-and-finance-publications-to-bookmark-57612695">independent crypto and finance publications to bookmark 5761</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/comprehensive-roundup-guides-reviews-how-tos-for-savvy-reade-75-5/">comprehensive roundup guides reviews how tos for savvy reade</a> 
 <a href="https://agriculture-lawyer.com/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
 <a href="https://agriculture-lawyer.com/daily-satta-results/">daily satta results</a> 
-<a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
-<a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-75-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
-<a href="https://agriculture-lawyer.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 

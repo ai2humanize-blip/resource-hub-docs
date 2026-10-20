@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-9/">guides reviews how tos 50 resources worth bookmarking 78 7 9</a> 
+<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7/">guides reviews how tos 50 resources worth bookmarking 78 7</a> 
+<a href="https://alientapereviews.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://alientapereviews.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
+<a href="https://alientapereviews.com/how-ai-powered-apps-are-transforming-our-daily-lives-and-wor/">how ai powered apps are transforming our daily lives and wor</a> 
+<a href="https://alientapereviews.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://alientapereviews.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://alientapereviews.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://alientapereviews.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://alientapereviews.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://alientapereviews.com/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
+<a href="https://alientapereviews.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
 <a href="https://alientapereviews.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
 <a href="https://alientapereviews.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://alientapereviews.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
@@ -790,15 +802,3 @@
 <a href="https://app.zentrack.net/exploring-timeless-baby-names-a-deep-dive-into-meaning-origi-25-2/">exploring timeless baby names a deep dive into meaning origi</a> 
 <a href="https://app.zentrack.net/find-female-influencers/">find female influencers</a> 
 <a href="https://app.zentrack.net/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://app.zentrack.net/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://app.zentrack.net/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://app.zentrack.net/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://app.zentrack.net/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
-<a href="https://app.zentrack.net/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://app.zentrack.net/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://app.zentrack.net/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://app.zentrack.net/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://app.zentrack.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://app.zentrack.net/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
-<a href="https://app.zentrack.net/how-ai-and-machine-learning-are-revolutionizing-app-developm/">how ai and machine learning are revolutionizing app developm</a> 
-<a href="https://app.zentrack.net/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
