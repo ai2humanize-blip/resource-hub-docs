@@ -145,6 +145,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://safar.to/">safar.to</a> 
 <a href="https://criptano.com/">criptano.com</a> 
 <a href="https://sattaresultnow.com/">sattaresultnow.com</a> 
+<a href="https://ivanaturf.cc/">ivanaturf.cc</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -218,7 +219,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 69](references-69.md)
 - [Reference set 70](references-70.md)
 
-_55,490 curated references across 70 sets._
+_55,554 curated references across 70 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-compare-sources-on-the-same-story.html">how to compare sources on the same story</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-create-an-effective-home-office-for-maximum-productiv.html">how to create an effective home office for maximum productiv</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-evaluate-20-minimum-deposit-casinos-before.html">how to evaluate 20 minimum deposit casinos before</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-evaluate-online-reviews-and-recommendations-and-why-i.html">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-evaluate-online-reviews-and-recommendations-explained.html">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-fact-check-something-in-five-minutes-and-why-it-matte.html">how to fact check something in five minutes and why it matte</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-fact-check-something-in-five-minutes-explained-simply.html">how to fact check something in five minutes explained simply</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-balanced-coverage-of-a-topic.html">how to find balanced coverage of a topic</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-clear-no-nonsense-how-to-articles-online.html">how to find clear no nonsense how to articles online</a> 
@@ -54,6 +60,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/it-certification-courses-online.html">it certification courses online</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/it-tech-jobs-india-roles-skills-salaries.html">it tech jobs india roles skills salaries</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/ivana-turf.html">ivana turf</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/ivanaturf.html">ivanaturf</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/janibd.html">janibd</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/kerala-bumper-lottery-results.html">kerala bumper lottery results</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/kex-art.html">kex art</a> 
@@ -795,10 +802,3 @@
 <a href="https://algiamedical.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
 <a href="https://algiamedical.com/choosing-the-perfect-timepiece-a-comprehensive-watch-buying/">choosing the perfect timepiece a comprehensive watch buying</a> 
 <a href="https://algiamedical.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
-<a href="https://algiamedical.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-77-8/">comprehensive guides reviews and how tos for every interest </a> 
-<a href="https://algiamedical.com/comprehensive-guides-reviews-and-how-tos-navigating-the-digi-77-8/">comprehensive guides reviews and how tos navigating the digi</a> 
-<a href="https://algiamedical.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-77-8/">comprehensive guides reviews and how tos your ultimate resou</a> 
-<a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
-<a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-77-7/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-blockchain-and-the-futur/">demystifying cryptocurrency bitcoin blockchain and the futur</a> 
