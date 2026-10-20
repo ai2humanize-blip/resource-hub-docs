@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://autumnfallsinterview.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://autumnfallsinterview.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-2/">a simple framework for researching any topic online 2</a> 
+<a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
+<a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://autumnfallsinterview.com/air-quality-in-bengaluru-how-it-compares-and-what-to-watch/">air quality in bengaluru how it compares and what to watch</a> 
+<a href="https://autumnfallsinterview.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://autumnfallsinterview.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://autumnfallsinterview.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://autumnfallsinterview.com/boost-your-business-and-personal-finances-with-strategic-mar/">boost your business and personal finances with strategic mar</a> 
+<a href="https://autumnfallsinterview.com/boosting-your-business-and-personal-finances-with-strategic/">boosting your business and personal finances with strategic</a> 
+<a href="https://autumnfallsinterview.com/breaking-down-today-s-top-news-analysis-and-insights-you-nee/">breaking down today s top news analysis and insights you nee</a> 
+<a href="https://autumnfallsinterview.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://autumnfallsinterview.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://autumnfallsinterview.com/building-your-personal-web-toolkit-guides-reviews-how-tos-80-10/">building your personal web toolkit guides reviews how tos 80</a> 
 <a href="https://autumnfallsinterview.com/business-finance-productivity-a-comprehensive-guide-to-under-80-2/">business finance productivity a comprehensive guide to under</a> 
 <a href="https://autumnfallsinterview.com/business-finance-productivity-essential-independent-websites-80-2/">business finance productivity essential independent websites</a> 
@@ -555,7 +570,10 @@
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-35/">web tech content 50 resources worth bookmarking 80 9 35</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-36/">web tech content 50 resources worth bookmarking 80 9 36</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-37/">web tech content 50 resources worth bookmarking 80 9 37</a> 
+<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-38/">web tech content 50 resources worth bookmarking 80 9 38</a> 
+<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-39/">web tech content 50 resources worth bookmarking 80 9 39</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-4/">web tech content 50 resources worth bookmarking 80 9 4</a> 
+<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-40/">web tech content 50 resources worth bookmarking 80 9 40</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-5/">web tech content 50 resources worth bookmarking 80 9 5</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-6/">web tech content 50 resources worth bookmarking 80 9 6</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-7/">web tech content 50 resources worth bookmarking 80 9 7</a> 
@@ -784,21 +802,3 @@
 <a href="https://bandemusic.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
 <a href="https://bandemusic.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
 <a href="https://bandemusic.com/leveraging-technology-for-enhanced-productivity-apps-and-too/">leveraging technology for enhanced productivity apps and too</a> 
-<a href="https://bandemusic.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://bandemusic.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://bandemusic.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-81-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
-<a href="https://bandemusic.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-10/">marketing seo growth 50 resources worth bookmarking 81 10 10</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-11/">marketing seo growth 50 resources worth bookmarking 81 10 11</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-12/">marketing seo growth 50 resources worth bookmarking 81 10 12</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-13/">marketing seo growth 50 resources worth bookmarking 81 10 13</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-14/">marketing seo growth 50 resources worth bookmarking 81 10 14</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-15/">marketing seo growth 50 resources worth bookmarking 81 10 15</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-16/">marketing seo growth 50 resources worth bookmarking 81 10 16</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-17/">marketing seo growth 50 resources worth bookmarking 81 10 17</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-18/">marketing seo growth 50 resources worth bookmarking 81 10 18</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-19/">marketing seo growth 50 resources worth bookmarking 81 10 19</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-2/">marketing seo growth 50 resources worth bookmarking 81 10 2</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-20/">marketing seo growth 50 resources worth bookmarking 81 10 20</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-21/">marketing seo growth 50 resources worth bookmarking 81 10 21</a> 
-<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-22/">marketing seo growth 50 resources worth bookmarking 81 10 22</a> 

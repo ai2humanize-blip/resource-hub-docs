@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.tinyblogging.com/useful-independent-sites-tools-and-crypto-resources-87144041">useful independent sites tools and crypto resources 87144041</a> 
+<a href="https://1mother.tribunablog.com/a-reading-list-of-independent-news-and-finance-sites-57612688">a reading list of independent news and finance sites 5761268</a> 
+<a href="https://1mother.tribunablog.com/independent-crypto-and-finance-publications-to-bookmark-57612695">independent crypto and finance publications to bookmark 5761</a> 
 <a href="https://1mother.tribunablog.com/more-independent-websites-worth-exploring-57612683">more independent websites worth exploring 57612683</a> 
 <a href="https://1mother.tribunablog.com/useful-independent-sites-tools-and-crypto-resources-57612697">useful independent sites tools and crypto resources 57612697</a> 
 <a href="https://2c5ab6f7f7fb-20260815095514.yourwebsitespace.com/">2c5ab6f7f7fb-20260815095514.yourwebsitespace.com</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
 <a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-75-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://agriculture-lawyer.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://agriculture-lawyer.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
-<a href="https://agriculture-lawyer.com/discover-the-best-browser-games-digital-tools-for-endless-en-75-8/">discover the best browser games digital tools for endless en</a> 
-<a href="https://agriculture-lawyer.com/discover-the-best-digital-tools-online-resources-for-every-n-75-3/">discover the best digital tools online resources for every n</a> 

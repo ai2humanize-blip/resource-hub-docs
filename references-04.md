@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-back-up-your-data-properly.html">how to back up your data properly</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-bookmark-and-revisit-useful-resources-explained-simpl.html">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-bookmark-and-revisit-useful-resources-the-basics.html">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-build-a-personal-reading-list-the-basics.html">how to build a personal reading list the basics</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-build-a-personal-reading-list.html">how to build a personal reading list</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-build-an-email-list-from-day.html">how to build an email list from day</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-build-smart-home-without-giving-up.html">how to build smart home without giving up</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-buy-your-first-crypto-safely.html">how to buy your first crypto safely</a> 
@@ -796,9 +802,3 @@
 <a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
 <a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://algiamedical.com/air-quality-in-bengaluru-how-it-compares-and-what-to-watch/">air quality in bengaluru how it compares and what to watch</a> 
-<a href="https://algiamedical.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
-<a href="https://algiamedical.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
-<a href="https://algiamedical.com/blind-and-seen-in-teen-patti-2/">blind and seen in teen patti 2</a> 
-<a href="https://algiamedical.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://algiamedical.com/boosting-your-business-and-personal-finances-a-marketing-per/">boosting your business and personal finances a marketing per</a> 
