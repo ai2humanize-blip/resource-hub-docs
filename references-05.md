@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://algiamedical.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://algiamedical.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://algiamedical.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://algiamedical.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://algiamedical.com/a-navigating-the-modern-job-market-essential-career-advice-f/">a navigating the modern job market essential career advice f</a> 
+<a href="https://algiamedical.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://algiamedical.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://algiamedical.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://algiamedical.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -67,6 +73,9 @@
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-41/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-42/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-43/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-44/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-45/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-46/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-5/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-6/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-7/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -793,12 +802,3 @@
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-37/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-38/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-39/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-4/">guides reviews how tos 50 resources worth bookmarking 78 7 4</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-40/">guides reviews how tos 50 resources worth bookmarking 78 7 4</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-41/">guides reviews how tos 50 resources worth bookmarking 78 7 4</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-42/">guides reviews how tos 50 resources worth bookmarking 78 7 4</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-43/">guides reviews how tos 50 resources worth bookmarking 78 7 4</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-5/">guides reviews how tos 50 resources worth bookmarking 78 7 5</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-6/">guides reviews how tos 50 resources worth bookmarking 78 7 6</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-7/">guides reviews how tos 50 resources worth bookmarking 78 7 7</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-8/">guides reviews how tos 50 resources worth bookmarking 78 7 8</a> 

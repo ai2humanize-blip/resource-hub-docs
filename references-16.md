@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://cnlawblog.jpn.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cnlawblog.jpn.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://cnlawblog.jpn.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cnlawblog.jpn.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cnlawblog.jpn.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cnlawblog.jpn.com/air-quality-in-hyderabad-understanding-the-daily-readings/">air quality in hyderabad understanding the daily readings</a> 
+<a href="https://cnlawblog.jpn.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://cnlawblog.jpn.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://cnlawblog.jpn.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cnlawblog.jpn.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://cnlawblog.jpn.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cnlawblog.jpn.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cnlawblog.jpn.com/editorial-guides-and-deep-dives/">editorial guides and deep dives</a> 
+<a href="https://cnlawblog.jpn.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://cnlawblog.jpn.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cnlawblog.jpn.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cnlawblog.jpn.com/fruit-flies-in-the-kitchen-where-they-breed-and-how-to-clear/">fruit flies in the kitchen where they breed and how to clear</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
+<a href="https://cnlawblog.jpn.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-organize-the-information-you-find-online-right/">getting how to organize the information you find online righ</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://cnlawblog.jpn.com/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
@@ -781,24 +802,3 @@
 <a href="https://crediblenews24.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://crediblenews24.com/how-to-find-clear-no-nonsense-how-to-articles-online/">how to find clear no nonsense how to articles online</a> 
 <a href="https://crediblenews24.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://crediblenews24.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://crediblenews24.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
-<a href="https://crediblenews24.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://crediblenews24.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://crediblenews24.com/how-to-get-the-most-out-of-online-guides-2/">how to get the most out of online guides 2</a> 
-<a href="https://crediblenews24.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
-<a href="https://crediblenews24.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://crediblenews24.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://crediblenews24.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://crediblenews24.com/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://crediblenews24.com/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://crediblenews24.com/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://crediblenews24.com/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://crediblenews24.com/how-to-leverage-the-latest-tech-trends-to-boost-your-digital/">how to leverage the latest tech trends to boost your digital</a> 
-<a href="https://crediblenews24.com/how-to-master-business-personal-finance-and-marketing-synerg/">how to master business personal finance and marketing synerg</a> 
-<a href="https://crediblenews24.com/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
-<a href="https://crediblenews24.com/how-to-organize-the-information-you-find-online-a-quick-guid-2/">how to organize the information you find online a quick guid</a> 
-<a href="https://crediblenews24.com/how-to-organize-the-information-you-find-online-a-quick-guide/">how to organize the information you find online a quick guid</a> 
-<a href="https://crediblenews24.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://crediblenews24.com/how-to-pick-a-middle-name-that-fits-a-practical-guide/">how to pick a middle name that fits a practical guide</a> 
-<a href="https://crediblenews24.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 

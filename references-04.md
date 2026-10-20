@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-ai-powered-apps-are-transforming-our-daily-digital-inter.html">how ai powered apps are transforming our daily digital inter</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-ai-powered-apps-are-transforming-our-digital-lives.html">how ai powered apps are transforming our digital lives</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-blockchain-actually-works-in-plain-terms.html">how blockchain actually works in plain terms</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-on-ramps-and-off-ramps-work.html">how on ramps and off ramps work</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-spot-etf-flows-affect-bitcoin-supply.html">how spot etf flows affect bitcoin supply</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-surnames-get-their-meanings.html">how surnames get their meanings</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-the-air-quality-index-aqi-is-calculated.html">how the air quality index aqi is calculated</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-the-census-of-india-works.html">how the census of india works</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-the-independent-music-scene-is-shaping-modern-music-cult.html">how the independent music scene is shaping modern music cult</a> 
@@ -796,9 +802,3 @@
 <a href="https://algiamedical.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://algiamedical.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
 <a href="https://algiamedical.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://algiamedical.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://algiamedical.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://algiamedical.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://algiamedical.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://algiamedical.com/a-navigating-the-modern-job-market-essential-career-advice-f/">a navigating the modern job market essential career advice f</a> 
-<a href="https://algiamedical.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
