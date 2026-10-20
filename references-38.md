@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://jiliparty1.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://jiliparty1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://jiliparty1.xyz/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://jiliparty1.xyz/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://jiliparty1.xyz/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://jiliparty1.xyz/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
+<a href="https://jiliparty1.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://jiliparty1.xyz/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://jiliparty1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://jiliparty1.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://jiliparty1.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
+<a href="https://jiliparty1.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
+<a href="https://jiliparty1.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
+<a href="https://jiliparty1.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
+<a href="https://jiliparty1.xyz/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
+<a href="https://jiliparty1.xyz/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
+<a href="https://jiliparty1.xyz/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
+<a href="https://jiliparty1.xyz/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://jiliparty1.xyz/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
 <a href="https://jiliparty1.xyz/how-to-tell-explainer-journalism-from-opinion-a-practical-guide/">how to tell explainer journalism from opinion a practical gu</a> 
 <a href="https://jiliparty1.xyz/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
 <a href="https://jiliparty1.xyz/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
@@ -781,24 +802,3 @@
 <a href="https://landscape-paintings.net/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
 <a href="https://landscape-paintings.net/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
 <a href="https://landscape-paintings.net/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://landscape-paintings.net/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://landscape-paintings.net/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://landscape-paintings.net/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
-<a href="https://landscape-paintings.net/how-to-navigate-job-transitions-smoothly-and-strategically/">how to navigate job transitions smoothly and strategically</a> 
-<a href="https://landscape-paintings.net/how-to-organize-the-information-you-find-online-a-practical-2/">how to organize the information you find online a practical </a> 
-<a href="https://landscape-paintings.net/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://landscape-paintings.net/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
-<a href="https://landscape-paintings.net/how-to-organize-the-information-you-find-online-explained-simply/">how to organize the information you find online explained si</a> 
-<a href="https://landscape-paintings.net/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://landscape-paintings.net/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://landscape-paintings.net/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
-<a href="https://landscape-paintings.net/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://landscape-paintings.net/how-to-read-the-news-without-getting-overwhelmed-and-why-it-matters/">how to read the news without getting overwhelmed and why it </a> 
-<a href="https://landscape-paintings.net/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
-<a href="https://landscape-paintings.net/how-to-research-a-name-s-history-and-meaning/">how to research a name s history and meaning</a> 
-<a href="https://landscape-paintings.net/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://landscape-paintings.net/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://landscape-paintings.net/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://landscape-paintings.net/how-to-stay-organized-in-the-digital-age-top-apps-and-strate/">how to stay organized in the digital age top apps and strate</a> 
-<a href="https://landscape-paintings.net/how-to-streamline-your-digital-life-top-apps-for-productivit/">how to streamline your digital life top apps for productivit</a> 
-<a href="https://landscape-paintings.net/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 

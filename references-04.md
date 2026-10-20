@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-fact-check-something-in-five-minutes-explained-simply.html">how to fact check something in five minutes explained simply</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-balanced-coverage-of-a-topic.html">how to find balanced coverage of a topic</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-clear-no-nonsense-how-to-articles-online.html">how to find clear no nonsense how to articles online</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-genuinely-cheap-flights-without-falling-for-fake.html">how to find genuinely cheap flights without falling for fake</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-reliable-how-to-guides-a-practical-guide.html">how to find reliable how to guides a practical guide</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-reliable-how-to-guides-and-why-it-matters.html">how to find reliable how to guides and why it matters</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-reliable-how-to-guides-the-basics.html">how to find reliable how to guides the basics</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-reliable-how-to-guides.html">how to find reliable how to guides</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-something-good-to-watch-tonight.html">how to find something good to watch tonight</a> 
@@ -796,9 +802,3 @@
 <a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-77-7/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-blockchain-and-the-futur/">demystifying cryptocurrency bitcoin blockchain and the futur</a> 
-<a href="https://algiamedical.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-10/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-11/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-12/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-13/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-14/">digital tools online resources 50 resources worth bookmarkin</a> 

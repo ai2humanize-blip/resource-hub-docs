@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://algiamedical.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-10/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-11/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-12/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-13/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-14/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-15/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-16/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-17/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -16,7 +22,10 @@
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-25/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-26/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-27/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-28/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-29/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-3/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-30/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-4/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-5/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-6/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -731,7 +740,10 @@
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-25/">guides reviews how tos 50 resources worth bookmarking 78 7 2</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-26/">guides reviews how tos 50 resources worth bookmarking 78 7 2</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-27/">guides reviews how tos 50 resources worth bookmarking 78 7 2</a> 
+<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-28/">guides reviews how tos 50 resources worth bookmarking 78 7 2</a> 
+<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-29/">guides reviews how tos 50 resources worth bookmarking 78 7 2</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-3/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
+<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-30/">guides reviews how tos 50 resources worth bookmarking 78 7 3</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-4/">guides reviews how tos 50 resources worth bookmarking 78 7 4</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-5/">guides reviews how tos 50 resources worth bookmarking 78 7 5</a> 
 <a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-6/">guides reviews how tos 50 resources worth bookmarking 78 7 6</a> 
@@ -790,15 +802,3 @@
 <a href="https://alientapereviews.com/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
 <a href="https://alientapereviews.com/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
 <a href="https://alientapereviews.com/how-to-organize-the-information-you-find-online-and-why-it-matters/">how to organize the information you find online and why it m</a> 
-<a href="https://alientapereviews.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://alientapereviews.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://alientapereviews.com/how-to-read-the-news-without-getting-overwhelmed-the-basics-2/">how to read the news without getting overwhelmed the basics </a> 
-<a href="https://alientapereviews.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://alientapereviews.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
-<a href="https://alientapereviews.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://alientapereviews.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
-<a href="https://alientapereviews.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://alientapereviews.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
-<a href="https://alientapereviews.com/how-to-tell-explainer-journalism-from-opinion-the-basics-3/">how to tell explainer journalism from opinion the basics 3</a> 
-<a href="https://alientapereviews.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://alientapereviews.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 

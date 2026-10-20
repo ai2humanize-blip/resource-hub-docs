@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvjc4cs2n">3msjxvjc4cs2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvpm22u26">3msjxvpm22u26</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvvvz3h2y">3msjxvvvz3h2y</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxw4aenb2s">3msjxw4aenb2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwcjsvv2z">3msjxwcjsvv2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwivsam2m">3msjxwivsam2m</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwp7zz72n">3msjxwp7zz72n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwvlrkc2n">3msjxwvlrkc2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxx3yian2z">3msjxx3yian2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxcd2pi2h">3msjxxcd2pi2h</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxximto72c">3msjxximto72c</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxowsk22n">3msjxxowsk22n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxvb54m26">3msjxxvb54m26</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxy3ksdo2u">3msjxy3ksdo2u</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxybuqbq2h">3msjxybuqbq2h</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxyi6bk22n">3msjxyi6bk22n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxyoi4gm2m">3msjxyoi4gm2m</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxyus7d22n">3msjxyus7d22n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxz355hk2n">3msjxz355hk2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxzbhb772y">3msjxzbhb772y</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxzhrawu26">3msjxzhrawu26</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxzo37uj2h">3msjxzo37uj2h</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxzufnii2h">3msjxzufnii2h</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy22pt5a2j">3msjy22pt5a2j</a> 
@@ -781,24 +802,3 @@
 <a href="https://captainjackinterview.com/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
 <a href="https://captainjackinterview.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
 <a href="https://captainjackinterview.com/understanding-the-impact-of-ai-on-modern-news-consumption-an/">understanding the impact of ai on modern news consumption an</a> 
-<a href="https://captainjackinterview.com/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://captainjackinterview.com/understanding-todaykeralalotteryresult-a-practical-guide/">understanding todaykeralalotteryresult a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-travel-insurance-for-international-trips/">understanding travel insurance for international trips</a> 
-<a href="https://captainjackinterview.com/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
-<a href="https://captainjackinterview.com/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
-<a href="https://captainjackinterview.com/unlocking-creativity-how-ai-powered-apps-are-transforming-di/">unlocking creativity how ai powered apps are transforming di</a> 
-<a href="https://captainjackinterview.com/unlocking-the-future-how-ai-and-apps-are-transforming-our-di/">unlocking the future how ai and apps are transforming our di</a> 
-<a href="https://captainjackinterview.com/unlocking-the-secrets-of-perfect-pasta-a-culinary-journey/">unlocking the secrets of perfect pasta a culinary journey</a> 
-<a href="https://captainjackinterview.com/unlocking-the-secrets-of-successful-morning-routines-for-a-p/">unlocking the secrets of successful morning routines for a p</a> 
-<a href="https://captainjackinterview.com/unlocking-your-potential-innovative-career-paths-and-workpla/">unlocking your potential innovative career paths and workpla</a> 
-<a href="https://captainjackinterview.com/unpacking-today-s-top-news-expert-analysis-and-key-insights-82-4/">unpacking today s top news expert analysis and key insights </a> 
-<a href="https://captainjackinterview.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://captainjackinterview.com/virginia-childhood-education-what-to-know-in-2026-82-3/">virginia childhood education what to know in 2026 82 3</a> 
-<a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
-<a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
-<a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-for-everyday-users-82-2/">web tech content a comprehensive guide for everyday users 82</a> 
-<a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-82-2/">web tech content a comprehensive guide to navigating the dig</a> 
-<a href="https://captainjackinterview.com/web-tech-content-navigating-the-digital-landscape-for-succes-82-2/">web tech content navigating the digital landscape for succes</a> 
-<a href="https://captainjackinterview.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
-<a href="https://captainjackinterview.com/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
