@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://fabbusinesssolutions.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
+<a href="https://fabbusinesssolutions.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview-2/">zakat al fitr and the lunar calendar a practical overview 2</a> 
+<a href="https://fabbusinesssolutions.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://fabulous-valkyrie-be860a.netlify.app/simple-habits-of-a-smart-internet-reader-a-practical-guide.html">simple habits of a smart internet reader a practical guide</a> 
+<a href="https://fabulous-yeot-40d948.netlify.app/aavotcom.html">aavotcom</a> 
+<a href="https://fabulous-zuccutto-0ee35e.netlify.app/daily-results-today.html">daily results today</a> 
+<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-bitcoin-gambling-what-you-need-to-know-27-5/">a beginner s guide to bitcoin gambling what you need to know</a> 
+<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-navigating-the-world-of-bitcoin-busine-27-5/">a beginner s guide to navigating the world of bitcoin busine</a> 
+<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-27-4/">a beginner s guide to understanding and starting with crypto</a> 
+<a href="https://fabulouspoetry.it.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://fabulouspoetry.it.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://fabulouspoetry.it.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://fabulouspoetry.it.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://fabulouspoetry.it.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://fabulouspoetry.it.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://fabulouspoetry.it.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
 <a href="https://fabulouspoetry.it.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://fabulouspoetry.it.com/apply-for-a-driver-s-license-in-nigeria/">apply for a driver s license in nigeria</a> 
 <a href="https://fabulouspoetry.it.com/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://fabulouspoetry.it.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
 <a href="https://fabulouspoetry.it.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
 <a href="https://fabulouspoetry.it.com/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
-<a href="https://fabulouspoetry.it.com/understanding-blueflamepublishingblog-a-practical-guide/">understanding blueflamepublishingblog a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-a-plain-language-introduction-f/">understanding cryptocurrency a plain language introduction f</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-27-4-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabulouspoetry.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-27-4-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

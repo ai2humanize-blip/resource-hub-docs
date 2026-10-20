@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-reliable-how-to-guides-the-basics.html">how to find reliable how to guides the basics</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-reliable-how-to-guides.html">how to find reliable how to guides</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-find-something-good-to-watch-tonight.html">how to find something good to watch tonight</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-fire-crypto-pr-agency-without-burning.html">how to fire crypto pr agency without burning</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-fix-slow-startup-windows.html">how to fix slow startup windows</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-free-up-iphone-storage.html">how to free up iphone storage</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-get-the-most-out-of-online-guides-and-why-it-matters.html">how to get the most out of online guides and why it matters</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-get-the-most-out-of-online-guides-the-basics.html">how to get the most out of online guides the basics</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-to-learn-ai-from-scratch.html">how to learn ai from scratch</a> 
@@ -796,9 +802,3 @@
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-12/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-13/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-14/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-15/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-16/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-17/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-18/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-19/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-2/">digital tools online resources 50 resources worth bookmarkin</a> 
