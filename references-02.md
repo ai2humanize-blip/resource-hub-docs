@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.pointblog.net/useful-independent-sites-tools-and-crypto-resources-96896959">useful independent sites tools and crypto resources 96896959</a> 
+<a href="https://1mother.suomiblog.com/a-reading-list-of-independent-news-and-finance-sites-58742819">a reading list of independent news and finance sites 5874281</a> 
+<a href="https://1mother.suomiblog.com/independent-crypto-and-finance-publications-to-bookmark-58742824">independent crypto and finance publications to bookmark 5874</a> 
 <a href="https://1mother.suomiblog.com/more-independent-websites-worth-exploring-58742816">more independent websites worth exploring 58742816</a> 
 <a href="https://1mother.suomiblog.com/useful-independent-sites-tools-and-crypto-resources-58742828">useful independent sites tools and crypto resources 58742828</a> 
 <a href="https://1mother.thezenweb.com/a-reading-list-of-independent-news-and-finance-sites-81712479">a reading list of independent news and finance sites 8171247</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-75-5-2/">comprehensive guides reviews and how tos your go to resource</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-75-5-3/">comprehensive guides reviews and how tos your go to resource</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-75-5-4/">comprehensive guides reviews and how tos your go to resource</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-75-5/">comprehensive guides reviews and how tos your go to resource</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-how-tos-mastering-cryptocurrenc-75-5/">comprehensive guides reviews how tos mastering cryptocurrenc</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-how-tos-navigating-south-africa-75-5/">comprehensive guides reviews how tos navigating south africa</a> 

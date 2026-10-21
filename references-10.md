@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bandemusic.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig-2/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://bandemusic.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://bandemusic.com/harnessing-ai-for-creative-inspiration-a-new-era-for-digital/">harnessing ai for creative inspiration a new era for digital</a> 
+<a href="https://bandemusic.com/how-ai-driven-apps-are-revolutionizing-everyday-life/">how ai driven apps are revolutionizing everyday life</a> 
+<a href="https://bandemusic.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
+<a href="https://bandemusic.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://bandemusic.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://bandemusic.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://bandemusic.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://bandemusic.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://bandemusic.com/how-html5-revolutionized-casual-browser-gaming-for-business-81-6/">how html5 revolutionized casual browser gaming for business </a> 
+<a href="https://bandemusic.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
+<a href="https://bandemusic.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://bandemusic.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
 <a href="https://bandemusic.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
 <a href="https://bandemusic.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
 <a href="https://bandemusic.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -104,6 +122,9 @@
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-48/">marketing seo growth 50 resources worth bookmarking 81 10 48</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-49/">marketing seo growth 50 resources worth bookmarking 81 10 49</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-5/">marketing seo growth 50 resources worth bookmarking 81 10 5</a> 
+<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-50/">marketing seo growth 50 resources worth bookmarking 81 10 50</a> 
+<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-51/">marketing seo growth 50 resources worth bookmarking 81 10 51</a> 
+<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-52/">marketing seo growth 50 resources worth bookmarking 81 10 52</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-6/">marketing seo growth 50 resources worth bookmarking 81 10 6</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-7/">marketing seo growth 50 resources worth bookmarking 81 10 7</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-8/">marketing seo growth 50 resources worth bookmarking 81 10 8</a> 
@@ -781,24 +802,3 @@
 <a href="https://bitslots.de.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://bitslots.de.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
-<a href="https://bitslots.de.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
-<a href="https://bitslots.de.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://bitslots.de.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters-2/">how to get the most out of online guides and why it matters </a> 
-<a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-explained-simply-2/">how to get the most out of online guides explained simply 2</a> 
-<a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-explained-simply-3/">how to get the most out of online guides explained simply 3</a> 
-<a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://bitslots.de.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
-<a href="https://bitslots.de.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
-<a href="https://bitslots.de.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
-<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
-<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://bitslots.de.com/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
