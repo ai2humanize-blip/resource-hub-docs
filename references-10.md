@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bandemusic.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
+<a href="https://bandemusic.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
+<a href="https://bandemusic.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://bandemusic.com/how-to-boost-your-productivity-with-the-best-apps-for-a-digi/">how to boost your productivity with the best apps for a digi</a> 
+<a href="https://bandemusic.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://bandemusic.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://bandemusic.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://bandemusic.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://bandemusic.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://bandemusic.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://bandemusic.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://bandemusic.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
 <a href="https://bandemusic.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-practical-guid-2/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://bandemusic.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
@@ -82,6 +100,9 @@
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-44/">marketing seo growth 50 resources worth bookmarking 81 10 44</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-45/">marketing seo growth 50 resources worth bookmarking 81 10 45</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-46/">marketing seo growth 50 resources worth bookmarking 81 10 46</a> 
+<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-47/">marketing seo growth 50 resources worth bookmarking 81 10 47</a> 
+<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-48/">marketing seo growth 50 resources worth bookmarking 81 10 48</a> 
+<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-49/">marketing seo growth 50 resources worth bookmarking 81 10 49</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-5/">marketing seo growth 50 resources worth bookmarking 81 10 5</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-6/">marketing seo growth 50 resources worth bookmarking 81 10 6</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-7/">marketing seo growth 50 resources worth bookmarking 81 10 7</a> 
@@ -781,24 +802,3 @@
 <a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
 <a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
 <a href="https://bitslots.de.com/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
-<a href="https://bitslots.de.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
-<a href="https://bitslots.de.com/ivana-turf/">ivana turf</a> 
-<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
-<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-3/">making sense of complex topics online 3</a> 
-<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
-<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://bitslots.de.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://bitslots.de.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
-<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
-<a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
-<a href="https://bitslots.de.com/open-a-nigerian-bank-account-online/">open a nigerian bank account online</a> 
-<a href="https://bitslots.de.com/oxpoll-cc-resource-3-2/">oxpoll cc resource 3 2</a> 
-<a href="https://bitslots.de.com/oxpoll-cc-resource-3-3/">oxpoll cc resource 3 3</a> 
-<a href="https://bitslots.de.com/oxpoll-cc-resource-3/">oxpoll cc resource 3</a> 
-<a href="https://bitslots.de.com/phonespeakerclean-com-resource-3/">phonespeakerclean com resource 3</a> 
-<a href="https://bitslots.de.com/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste/">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
-<a href="https://bitslots.de.com/practical-tech-tips-worth-knowing/">practical tech tips worth knowing</a> 
-<a href="https://bitslots.de.com/quikconsolecom-net-resource-3/">quikconsolecom net resource 3</a> 
-<a href="https://bitslots.de.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://bitslots.de.com/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
-<a href="https://bitslots.de.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/hijri-date.html">hijri date</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/hogatoga.html">hogatoga</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/housepainter.html">housepainter</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-ai-powered-apps-are-transforming-daily-life-and-work.html">how ai powered apps are transforming daily life and work</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-ai-powered-apps-are-transforming-daily-life-in-the-digit.html">how ai powered apps are transforming daily life in the digit</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/how-ai-powered-apps-are-transforming-everyday-life.html">how ai powered apps are transforming everyday life</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-ai-powered-apps-are-transforming-our-daily-digital-inter.html">how ai powered apps are transforming our daily digital inter</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-ai-powered-apps-are-transforming-our-digital-lives.html">how ai powered apps are transforming our digital lives</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/how-blockchain-actually-works-in-plain-terms.html">how blockchain actually works in plain terms</a> 
@@ -796,9 +802,3 @@
 <a href="https://alcobar85.xyz/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
 <a href="https://alcobar85.xyz/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
 <a href="https://alcobar85.xyz/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
-<a href="https://algiamedical.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://algiamedical.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://algiamedical.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://algiamedical.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://algiamedical.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://algiamedical.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
