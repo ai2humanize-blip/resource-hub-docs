@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://better1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://better1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://better1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://better1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://better1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://better1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://better1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://better1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://better1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://better1.xyz/hello-world/">hello world</a> 
+<a href="https://better1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://better1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://better1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://better1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://better1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://better1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://better1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://bigwin691.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://bigwin691.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://bigwin691.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://bigwin691.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://bigwin691.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://bigwin691.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://bigwin691.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
@@ -781,24 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/scenefordummies-9bfe8b29/">scenefordummies 9bfe8b29</a> 
 <a href="https://boostelearning.mataroa.blog/blog/scenefordummies-ebf257b7/">scenefordummies ebf257b7</a> 
 <a href="https://boostelearning.mataroa.blog/blog/scenefordummies/">scenefordummies</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-343430b7/">see why blck tokens fantastic investment 343430b7</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-5f801258/">see why blck tokens fantastic investment 5f801258</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-7d21518e/">see why blck tokens fantastic investment 7d21518e</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-aace945f/">see why blck tokens fantastic investment aace945f</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment-d90b2ea6/">see why blck tokens fantastic investment d90b2ea6</a> 
-<a href="https://boostelearning.mataroa.blog/blog/see-why-blck-tokens-fantastic-investment/">see why blck tokens fantastic investment</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-a1f186f6/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-a60af273/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-f82fa944/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment-f8a20e47/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seminole-casino-coconut-creek-gaming-dining-and-entertainment/">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://boostelearning.mataroa.blog/blog/seo-content-strategy-modest-business-navigate-ai-win/">seo content strategy modest business navigate ai win</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serp-insight-link-insertion/">serp insight link insertion</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serpinsight-2f3ecb41/">serpinsight 2f3ecb41</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serpinsight-5068fe41/">serpinsight 5068fe41</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serpinsight-534f5b4e/">serpinsight 534f5b4e</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serpinsight-5efa1f91/">serpinsight 5efa1f91</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serpinsight-7d78bebf/">serpinsight 7d78bebf</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serpinsight-7ecf8a89/">serpinsight 7ecf8a89</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serpinsight-ea8f1e8e/">serpinsight ea8f1e8e</a> 
-<a href="https://boostelearning.mataroa.blog/blog/serpinsight/">serpinsight</a> 

@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Tell-Explainer-Journalism-from-Opinion-3d3615d6bd4281ecb9eec345c6ee7727">How to Tell Explainer Journalism from Opinion 3d3615d6bd4281</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Tell-Explainer-Journalism-from-Opinion-explained-simply-3d1615d6bd42817ea398d1783783b1d9">How to Tell Explainer Journalism from Opinion explained simp</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Transform-Your-Living-Space-with-Minimalist-Interior-Design-3bb615d6bd42811aa8f9e767790e94e4">How to Transform Your Living Space with Minimalist Interior </a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-compare-sources-on-the-same-story-3d1615d6bd4281f1adb9d154267ff028">How to compare sources on the same story 3d1615d6bd4281f1adb</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-compare-sources-on-the-same-story-a-quick-guide-3d1615d6bd428100a400d5f811cdbf03">How to compare sources on the same story a quick guide 3d161</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-fact-check-something-in-five-minutes-a-quick-guide-3d1615d6bd4281e38b83d214214674fa">How to fact check something in five minutes a quick guide 3d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-fact-check-something-in-five-minutes-the-basics-3d1615d6bd42813f890ee8552c4907fe">How to fact check something in five minutes the basics 3d161</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-find-balanced-coverage-of-a-topic-a-practical-guide-3d1615d6bd4281609114d079febfc6ea">How to find balanced coverage of a topic a practical guide 3</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-read-crypto-news-without-getting-hyped-3ca615d6bd428160b319e109f0e36370">How to read crypto news without getting hyped 3ca615d6bd4281</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-3d1615d6bd4281f3b1f5eef504115123">How to spot low quality content online 3d1615d6bd4281f3b1f5e</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-a-practical-guide-3d1615d6bd4281d494a8dde3d1675366">How to spot low quality content online a practical guide 3d1</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-and-why-it-matters-3d1615d6bd4281e9ada1f4d02ae4dd4e">How to spot low quality content online and why it matters 3d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-tell-if-a-website-is-trustworthy-a-practical-guide-3d1615d6bd4281f2ad89e73a172ce4fd">How to tell if a website is trustworthy a practical guide 3d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-use-the-web-to-learn-a-new-skill-3d1615d6bd428129ad79c2fc53170210">How to use the web to learn a new skill 3d1615d6bd428129ad79</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-use-the-web-to-learn-a-new-skill-3d1615d6bd42813fb893e594ec089408">How to use the web to learn a new skill 3d1615d6bd42813fb893</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-use-the-web-to-learn-a-new-skill-a-practical-guide-3d1615d6bd42813c8a6fc2c302d73c79">How to use the web to learn a new skill a practical guide 3d</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Le-PMU-expliqu-simplement-paris-hippiques-et-fonctionnement-3c3615d6bd4281e39295ef4ffadb5266">Le PMU expliqu simplement paris hippiques et fonctionnement </a> 
 <a href="https://automatic-meeting-203.notion.site/p/Mastering-App-Efficiency-Optimize-Your-Digital-Experience-for-Peak-Performance-3bb615d6bd428195b702d9d01fe7c3aa">Mastering App Efficiency Optimize Your Digital Experience fo</a> 
@@ -738,7 +753,10 @@
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-65/">web tech content 50 resources worth bookmarking 80 9 65</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-66/">web tech content 50 resources worth bookmarking 80 9 66</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-67/">web tech content 50 resources worth bookmarking 80 9 67</a> 
+<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-68/">web tech content 50 resources worth bookmarking 80 9 68</a> 
+<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-69/">web tech content 50 resources worth bookmarking 80 9 69</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-7/">web tech content 50 resources worth bookmarking 80 9 7</a> 
+<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-70/">web tech content 50 resources worth bookmarking 80 9 70</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-8/">web tech content 50 resources worth bookmarking 80 9 8</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-9/">web tech content 50 resources worth bookmarking 80 9 9</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9/">web tech content 50 resources worth bookmarking 80 9</a> 
@@ -784,21 +802,3 @@
 <a href="https://bandemusic.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
 <a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://bandemusic.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://bandemusic.com/a-guide-to-names-that-mean-moon-star-and-sun-explained-simpl/">a guide to names that mean moon star and sun explained simpl</a> 
-<a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
-<a href="https://bandemusic.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
-<a href="https://bandemusic.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://bandemusic.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://bandemusic.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://bandemusic.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://bandemusic.com/air-quality-in-bengaluru-how-it-compares-and-what-to-watch/">air quality in bengaluru how it compares and what to watch</a> 
-<a href="https://bandemusic.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
-<a href="https://bandemusic.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
-<a href="https://bandemusic.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://bandemusic.com/boost-your-business-finance-and-productivity-essential-resou-81-1/">boost your business finance and productivity essential resou</a> 
-<a href="https://bandemusic.com/boosting-business-mastering-finance-and-amplifying-productiv-81-1/">boosting business mastering finance and amplifying productiv</a> 
-<a href="https://bandemusic.com/breaking-down-the-impact-of-recent-economic-policy-changes-o/">breaking down the impact of recent economic policy changes o</a> 
-<a href="https://bandemusic.com/breaking-down-the-latest-developments-in-ai-and-machine-lear/">breaking down the latest developments in ai and machine lear</a> 
-<a href="https://bandemusic.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-o/">breaking down the latest news in depth analysis and expert o</a> 
-<a href="https://bandemusic.com/breaking-down-the-latest-trends-in-news-consumption-a-compre/">breaking down the latest trends in news consumption a compre</a> 

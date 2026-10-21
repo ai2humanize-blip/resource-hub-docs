@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://emiamedical.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://emiamedical.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
+<a href="https://emiamedical.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview-2/">zakat al fitr and the lunar calendar a practical overview 2</a> 
+<a href="https://emiamedical.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://enchanting-mochi-1ead5c.netlify.app/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://endearing-truffle-d89cbb.netlify.app/the-elearning-trends-reshaping-how-we-teach-and-learn.html">the elearning trends reshaping how we teach and learn</a> 
+<a href="https://ephemeral-chaja-f9adef.netlify.app/how-to-evaluate-20-minimum-deposit-casinos-before.html">how to evaluate 20 minimum deposit casinos before</a> 
+<a href="https://epicwin1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://epicwin1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://epicwin1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://epicwin1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://epicwin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://epicwin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://epicwin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://epicwin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://epicwin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://epicwin1.xyz/hello-world/">hello world</a> 
+<a href="https://epicwin1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://epicwin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://epicwin1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://epicwin1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dbd0719/global-poker-casino-play-online-poker-games-win.html">global poker casino play online poker games win</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dc0516b/teckjb.html">teckjb</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dc66651/is-there-an-official-aavot-app-to-download-yet.html">is there an official aavot app to download yet</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dd2853f/slot-bonus-buys-what-feature-buy-costs.html">slot bonus buys what feature buy costs</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dd475df/debt-payoff-calculator.html">debt payoff calculator</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dd75bf9/what-the-fear-greed-index-can-and-cannot.html">what the fear greed index can and cannot</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ddcf04e/a-simple-framework-for-researching-any-topic-online-the-basi.html">a simple framework for researching any topic online the basi</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dde00eb/eternal-slots-casino-review-top-online-slots-casino.html">eternal slots casino review top online slots casino</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@de635b3/getgabay.html">getgabay</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@de6d998/what-to-know-about-understanding-how-search-engines-rank-pag.html">what to know about understanding how search engines rank pag</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@df0923b/bitcointalk.html">bitcointalk</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@df16019/how-to-compare-sources-on-the-same-story.html">how to compare sources on the same story</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@df978ea/how-to-spot-crypto-scam.html">how to spot crypto scam</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@df9ff6c/what-a-stablecoin-reserve-report-does-and-does.html">what a stablecoin reserve report does and does</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@dfaf869/newsgiga.html">newsgiga</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e0b80ee/how-to-read-the-news-without-getting-overwhelmed-a-practical.html">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e148837/getting-a-simple-framework-for-researching-any-topic-online-.html">getting a simple framework for researching any topic online</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e14a912/idiom-insider.html">idiom insider</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e157970/navigating-career-changes-strategies-for-a-smooth-transition.html">navigating career changes strategies for a smooth transition</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e17826c/what-is-satta-matka-history.html">what is satta matka history</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e19bc13/how-to-spot-crypto-scam.html">how to spot crypto scam</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e1ab05e/cryptonews-co-bz.html">cryptonews co bz</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e2ae3af/coinnews-de-com.html">coinnews de com</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e2f1996/privacy-policy.html">privacy policy</a> 

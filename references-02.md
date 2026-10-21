@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.jiliblog.com/99260227/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
+<a href="https://1mother.jiliblog.com/99260229/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
+<a href="https://1mother.jiliblog.com/99260230/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
 <a href="https://1mother.jiliblog.com/99260240/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
 <a href="https://1mother.net/gindex.html">gindex</a> 
 <a href="https://1mother.net/picks.html">picks</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/common-questions-answered-9/">common questions answered 9</a> 
 <a href="https://agriculture-lawyer.com/common-questions-answered/">common questions answered</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guide-to-crypto-cards-reviews-how-tos-and-comp-75-5/">comprehensive guide to crypto cards reviews how tos and comp</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-75-5-2/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-75-5-3/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-75-5-4/">comprehensive guides in depth reviews and practical how tos </a> 

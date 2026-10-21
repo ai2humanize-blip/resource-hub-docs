@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-57.md) · [‹ prev](references-55.md)
 
+<a href="https://ph888com.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://ph888com.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://ph888com.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://ph888com.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ph888com.xyz/finding-the-right-outlet-for-your-announcement/">finding the right outlet for your announcement</a> 
+<a href="https://ph888com.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://ph888com.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://ph888com.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://ph888com.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://ph888com.xyz/getting-simple-habits-of-a-smart-internet-reader-right-2/">getting simple habits of a smart internet reader right 2</a> 
+<a href="https://ph888com.xyz/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://ph888com.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://ph888com.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://ph888com.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://ph888com.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://ph888com.xyz/how-small-publishers-keep-advertising-transparent/">how small publishers keep advertising transparent</a> 
+<a href="https://ph888com.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ph888com.xyz/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://ph888com.xyz/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://ph888com.xyz/how-to-compare-sources-on-the-same-story-and-why-it-matters-2/">how to compare sources on the same story and why it matters </a> 
+<a href="https://ph888com.xyz/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
 <a href="https://ph888com.xyz/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
 <a href="https://ph888com.xyz/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
 <a href="https://ph888com.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
@@ -781,24 +802,3 @@
 <a href="https://playboicartinetworth.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://playboicartinetworth.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://playboicartinetworth.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-read-the-news-without-getting-overwhelmed/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://playboicartinetworth.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://playboicartinetworth.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://playboicartinetworth.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
-<a href="https://playboicartinetworth.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://playboicartinetworth.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://playboicartinetworth.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://playboicartinetworth.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://playboicartinetworth.com/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
-<a href="https://playboicartinetworth.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
-<a href="https://playboicartinetworth.com/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
-<a href="https://playboicartinetworth.com/baby-name-meanings-guide/">baby name meanings guide</a> 
-<a href="https://playboicartinetworth.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
-<a href="https://playboicartinetworth.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
