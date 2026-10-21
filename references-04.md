@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/get-a-birth-certificate-in-south-africa.html">get a birth certificate in south africa</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/get-a-cenomar-online.html">get a cenomar online</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getgabay.html">getgabay</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-a-simple-framework-for-researching-any-topic-online-.html">getting a simple framework for researching any topic online</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-building-a-healthy-daily-reading-habit-right.html">getting building a healthy daily reading habit right</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-how-to-fact-check-something-in-five-minutes-right.html">getting how to fact check something in five minutes right</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-how-to-find-balanced-coverage-of-a-topic-right.html">getting how to find balanced coverage of a topic right</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-how-to-spot-low-quality-content-online-right.html">getting how to spot low quality content online right</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-making-sense-of-complex-topics-online-right.html">getting making sense of complex topics online right</a> 
@@ -796,9 +802,3 @@
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi-2/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 

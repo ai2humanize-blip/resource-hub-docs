@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://forotesis.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://forotesis.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://forotesis.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://forotesis.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://forotesis.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://forotesis.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://forotesis.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://forotesis.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://forotesis.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://forotesis.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://forotesis.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://forotesis.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://forotesis.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
+<a href="https://forotesis.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://forotesis.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
 <a href="https://forotesis.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://forotesis.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://globespro.it.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
 <a href="https://globespro.it.com/getting-how-to-find-balanced-coverage-of-a-topic-right-2/">getting how to find balanced coverage of a topic right 2</a> 
 <a href="https://globespro.it.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
-<a href="https://globespro.it.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://globespro.it.com/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
-<a href="https://globespro.it.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://globespro.it.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://globespro.it.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://globespro.it.com/getting-what-to-look-for-in-a-good-news-website-right-2/">getting what to look for in a good news website right 2</a> 
-<a href="https://globespro.it.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://globespro.it.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-45-resources-worth-bookmarking-29-21/">guides reviews how tos 45 resources worth bookmarking 29 21</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-10/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-11/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-12/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-13/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-14/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-15/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-16/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-17/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-18/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-19/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-2/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-20/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 

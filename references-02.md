@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.onesmablog.com/useful-independent-sites-tools-and-crypto-resources-84411332">useful independent sites tools and crypto resources 84411332</a> 
+<a href="https://1mother.pages10.com/a-reading-list-of-independent-sites-78307153">a reading list of independent sites 78307153</a> 
+<a href="https://1mother.pages10.com/independent-publications-to-bookmark-78307156">independent publications to bookmark 78307156</a> 
 <a href="https://1mother.pages10.com/independent-websites-worth-bookmarking-78307134">independent websites worth bookmarking 78307134</a> 
 <a href="https://1mother.pages10.com/more-independent-websites-worth-exploring-78307149">more independent websites worth exploring 78307149</a> 
 <a href="https://1mother.pages10.com/useful-independent-sites-and-tools-78307161">useful independent sites and tools 78307161</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-75-5/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-effective-onlin-75-5/">comprehensive guides reviews and how tos for effective onlin</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-everyday-knowle-75-5/">comprehensive guides reviews and how tos for everyday knowle</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-job-seekers-and-75-5/">comprehensive guides reviews and how tos for job seekers and</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-online-safety-a-75-5/">comprehensive guides reviews and how tos for online safety a</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-troubleshooting-75-5/">comprehensive guides reviews and how tos for troubleshooting</a> 

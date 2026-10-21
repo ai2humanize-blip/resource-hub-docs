@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-45.md) · [‹ prev](references-43.md)
 
+<a href="https://livejournal.micro.blog/2026/10/07/153509.html">153509</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/154737.html">154737</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/154807.html">154807</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/154810.html">154810</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/154814.html">154814</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/160112.html">160112</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/160138.html">160138</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/160207.html">160207</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/160239.html">160239</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/161509.html">161509</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/161516.html">161516</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/161546.html">161546</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/161625.html">161625</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/161707.html">161707</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/162839.html">162839</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/162850.html">162850</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/162911.html">162911</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/162927.html">162927</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/164120.html">164120</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/164123.html">164123</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/164144.html">164144</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/165306.html">165306</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/165344.html">165344</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/165346.html">165346</a> 
@@ -781,24 +802,3 @@
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-23/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-24/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-25/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-26/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-27/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-28/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-29/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-3/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-30/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-31/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-32/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-33/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-4/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-5/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-6/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-7/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-8/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10-9/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-comprehensive-32-10/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-curated-resour-32-10/">mastering business finance and productivity a curated resour</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-a-guide-to-smart-32-10/">mastering business finance and productivity a guide to smart</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-essential-insigh-32-10/">mastering business finance and productivity essential insigh</a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-essential-tools-32-10/">mastering business finance and productivity essential tools </a> 
-<a href="https://llmseoservices.org/mastering-business-finance-and-productivity-in-book-publishi-32-10/">mastering business finance and productivity in book publishi</a> 
