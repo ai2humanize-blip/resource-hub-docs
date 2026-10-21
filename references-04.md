@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/footballs-diversity-problem-why-the-nfl-must.html">footballs diversity problem why the nfl must</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/footyntel.html">footyntel</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/foxperiodical.html">foxperiodical</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/free-audit.html">free audit</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/free-fire-max-12-settings-that-genuinely-improve.html">free fire max 12 settings that genuinely improve</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/fullimedia.html">fullimedia</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/get-a-birth-certificate-in-south-africa.html">get a birth certificate in south africa</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/get-a-cenomar-online.html">get a cenomar online</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/getgabay.html">getgabay</a> 
@@ -796,9 +802,3 @@
 <a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined-3/">what is zakat and how the nisab threshold is determined 3</a> 
 <a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
 <a href="https://alcobar85.xyz/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
-<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 

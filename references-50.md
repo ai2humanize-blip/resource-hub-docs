@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-51.md) · [‹ prev](references-49.md)
 
+<a href="https://masterwriter.org/gindex.html">gindex</a> 
+<a href="https://masterwriter.org/picks.html">picks</a> 
+<a href="https://meek-biscochitos-50822a.netlify.app/areyoufashion.html">areyoufashion</a> 
+<a href="https://mellifluous-fudge-015eea.netlify.app/what-to-know-about-how-to-avoid-misinformation-and-hype.html">what to know about how to avoid misinformation and hype</a> 
+<a href="https://mellifluous-marigold-0fc61c.netlify.app/ivanaturf.html">ivanaturf</a> 
+<a href="https://mellifluous-sprite-eaa5bc.netlify.app/getting-building-a-healthy-daily-reading-habit-right.html">getting building a healthy daily reading habit right</a> 
+<a href="https://mellow-croquembouche-28cd79.netlify.app/daily-aqi.html">daily aqi</a> 
+<a href="https://mellow-cupcake-4cd56a.netlify.app/fear-greed.html">fear greed</a> 
+<a href="https://merry-kelpie-35d38d.netlify.app/how-to-safely-follow-an-app-that-s-still-in-development.html">how to safely follow an app that s still in development</a> 
+<a href="https://merry-macaron-1db4dc.netlify.app/how-much-custom-ai-art-cost.html">how much custom ai art cost</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-how-to-pick-a-middle-name-that-fits/">a closer look at how to pick a middle name that fits</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u-2/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://metromsk.se.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://metromsk.se.net/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://metromsk.se.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -781,24 +802,3 @@
 <a href="https://moneynewsweb.co.in/exploring-business-finance-productivity-in-sports-and-techno-21-1/">exploring business finance productivity in sports and techno</a> 
 <a href="https://moneynewsweb.co.in/exploring-business-finance-productivity-with-criptano-in-bra-21-1/">exploring business finance productivity with criptano in bra</a> 
 <a href="https://moneynewsweb.co.in/exploring-digital-tools-online-resources-for-ai-art-enthusia-21-2/">exploring digital tools online resources for ai art enthusia</a> 
-<a href="https://moneynewsweb.co.in/exploring-digital-tools-online-resources-for-cryptocurrency-21-2/">exploring digital tools online resources for cryptocurrency </a> 
-<a href="https://moneynewsweb.co.in/exploring-digital-tools-online-resources-for-hindu-astrology-21-2/">exploring digital tools online resources for hindu astrology</a> 
-<a href="https://moneynewsweb.co.in/exploring-essential-digital-tools-online-resources-for-crypt-21-2/">exploring essential digital tools online resources for crypt</a> 
-<a href="https://moneynewsweb.co.in/exploring-essential-digital-tools-online-resources-for-moder-21-2-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://moneynewsweb.co.in/exploring-essential-digital-tools-online-resources-for-moder-21-2-3/">exploring essential digital tools online resources for moder</a> 
-<a href="https://moneynewsweb.co.in/exploring-essential-digital-tools-online-resources-for-moder-21-2-4/">exploring essential digital tools online resources for moder</a> 
-<a href="https://moneynewsweb.co.in/exploring-essential-digital-tools-online-resources-for-moder-21-2-5/">exploring essential digital tools online resources for moder</a> 
-<a href="https://moneynewsweb.co.in/exploring-essential-digital-tools-online-resources-for-moder-21-2-6/">exploring essential digital tools online resources for moder</a> 
-<a href="https://moneynewsweb.co.in/exploring-essential-digital-tools-online-resources-for-moder-21-2-7/">exploring essential digital tools online resources for moder</a> 
-<a href="https://moneynewsweb.co.in/exploring-essential-digital-tools-online-resources-for-moder-21-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-best-digital-tools-online-resources-for-every-21-2/">exploring the best digital tools online resources for every </a> 
-<a href="https://moneynewsweb.co.in/exploring-the-best-digital-tools-online-resources-for-modern-21-2-2/">exploring the best digital tools online resources for modern</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-best-digital-tools-online-resources-for-modern-21-2/">exploring the best digital tools online resources for modern</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-best-independent-digital-tools-and-online-reso-21-2/">exploring the best independent digital tools and online reso</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-evolution-and-significance-of-baby-names-acros-21-1/">exploring the evolution and significance of baby names acros</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-intersection-of-business-finance-and-productiv-21-1-2/">exploring the intersection of business finance and productiv</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-intersection-of-business-finance-and-productiv-21-1-3/">exploring the intersection of business finance and productiv</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-intersection-of-business-finance-and-productiv-21-1-4/">exploring the intersection of business finance and productiv</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-intersection-of-business-finance-and-productiv-21-1-5/">exploring the intersection of business finance and productiv</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-intersection-of-business-finance-and-productiv-21-1-6/">exploring the intersection of business finance and productiv</a> 
-<a href="https://moneynewsweb.co.in/exploring-the-intersection-of-business-finance-and-productiv-21-1/">exploring the intersection of business finance and productiv</a> 

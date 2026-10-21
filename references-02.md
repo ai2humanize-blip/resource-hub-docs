@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.onesmablog.com/a-reading-list-of-independent-news-and-finance-sites-84411325">a reading list of independent news and finance sites 8441132</a> 
+<a href="https://1mother.onesmablog.com/independent-crypto-and-finance-publications-to-bookmark-84411330">independent crypto and finance publications to bookmark 8441</a> 
+<a href="https://1mother.onesmablog.com/more-independent-websites-worth-exploring-84411322">more independent websites worth exploring 84411322</a> 
 <a href="https://1mother.onesmablog.com/useful-independent-sites-tools-and-crypto-resources-84411332">useful independent sites tools and crypto resources 84411332</a> 
 <a href="https://1mother.pages10.com/a-reading-list-of-independent-sites-78307153">a reading list of independent sites 78307153</a> 
 <a href="https://1mother.pages10.com/independent-publications-to-bookmark-78307156">independent publications to bookmark 78307156</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-75-5/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-and-step-by-step-how-t-75-5/">comprehensive guides in depth reviews and step by step how t</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-in-depth-reviews-practical-how-tos-your-75-5/">comprehensive guides in depth reviews practical how tos your</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-75-5/">comprehensive guides reviews and how tos for crypto enthusia</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-effective-onlin-75-5/">comprehensive guides reviews and how tos for effective onlin</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-everyday-knowle-75-5/">comprehensive guides reviews and how tos for everyday knowle</a> 
