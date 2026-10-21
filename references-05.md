@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://alcobar85.xyz/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
 <a href="https://alcobar85.xyz/why-a-toilet-keeps-running-and-the-simple-parts-behind-it.htm">why a toilet keeps running and the simple parts behind it</a> 
 <a href="https://alcobar85.xyz/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
 <a href="https://alcobar85.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
@@ -104,6 +110,9 @@
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-53/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-54/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-55/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-56/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-57/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-58/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-6/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-7/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-8/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -793,12 +802,3 @@
 <a href="https://alientapereviews.com/getting-how-to-compare-sources-on-the-same-story-right-2/">getting how to compare sources on the same story right 2</a> 
 <a href="https://alientapereviews.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
 <a href="https://alientapereviews.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://alientapereviews.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://alientapereviews.com/getting-rid-of-cockroaches-what-works-and-what-doesn-t/">getting rid of cockroaches what works and what doesn t</a> 
-<a href="https://alientapereviews.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://alientapereviews.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-10/">guides reviews how tos 50 resources worth bookmarking 78 7 1</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-11/">guides reviews how tos 50 resources worth bookmarking 78 7 1</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-12/">guides reviews how tos 50 resources worth bookmarking 78 7 1</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-13/">guides reviews how tos 50 resources worth bookmarking 78 7 1</a> 
-<a href="https://alientapereviews.com/guides-reviews-how-tos-50-resources-worth-bookmarking-78-7-14/">guides reviews how tos 50 resources worth bookmarking 78 7 1</a> 

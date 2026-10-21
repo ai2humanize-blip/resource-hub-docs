@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.pages10.com/independent-websites-worth-bookmarking-78307134">independent websites worth bookmarking 78307134</a> 
+<a href="https://1mother.pages10.com/more-independent-websites-worth-exploring-78307149">more independent websites worth exploring 78307149</a> 
+<a href="https://1mother.pages10.com/useful-independent-sites-and-tools-78307161">useful independent sites and tools 78307161</a> 
 <a href="https://1mother.pointblog.net/a-reading-list-of-independent-news-and-finance-sites-96896942">a reading list of independent news and finance sites 9689694</a> 
 <a href="https://1mother.pointblog.net/independent-crypto-and-finance-publications-to-bookmark-96896951">independent crypto and finance publications to bookmark 9689</a> 
 <a href="https://1mother.pointblog.net/more-independent-websites-worth-exploring-96896928">more independent websites worth exploring 96896928</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-job-seekers-and-75-5/">comprehensive guides reviews and how tos for job seekers and</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-online-safety-a-75-5/">comprehensive guides reviews and how tos for online safety a</a> 
 <a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-for-troubleshooting-75-5/">comprehensive guides reviews and how tos for troubleshooting</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-on-cryptocurrency-b-75-5/">comprehensive guides reviews and how tos on cryptocurrency b</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-on-indian-law-and-k-75-5/">comprehensive guides reviews and how tos on indian law and k</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guides-reviews-and-how-tos-the-ultimate-roundu-75-10/">comprehensive guides reviews and how tos the ultimate roundu</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-how-to-find-balanced-coverage-of-a-topic-right.html">getting how to find balanced coverage of a topic right</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-how-to-spot-low-quality-content-online-right.html">getting how to spot low quality content online right</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-making-sense-of-complex-topics-online-right.html">getting making sense of complex topics online right</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-recognizing-credible-experts-online-right.html">getting recognizing credible experts online right</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-the-basics-of-staying-safe-while-browsing-right.html">getting the basics of staying safe while browsing right</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-the-value-of-slow-careful-reading-right.html">getting the value of slow careful reading right</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-understanding-how-search-engines-rank-pages-right.html">getting understanding how search engines rank pages right</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-what-makes-an-explainer-article-genuinely-useful-rig.html">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/global-poker-casino-play-online-poker-games-win.html">global poker casino play online poker games win</a> 
@@ -796,9 +802,3 @@
 <a href="https://alcobar85.xyz/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
