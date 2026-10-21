@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-48.md) · [‹ prev](references-46.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/mastering-personal-finance-for-business-growth-a-marketing-p/">mastering personal finance for business growth a marketing p</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/programmes-et-types-de-paris-pmu-bien-s-y-retrouver/">programmes et types de paris pmu bien s y retrouver</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/the-font-world/">the font world</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/understanding-bitcoin-and-ethereum-price-trends-a-practical/">understanding bitcoin and ethereum price trends a practical</a> 
+<a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://ls-discover-the-be-msrom6eg.firebaseapp.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
@@ -781,24 +802,3 @@
 <a href="https://ls-proof-of-insurance-to-be-added-muyf5h72-imncw2y54a-uc.a.run.app">ls-proof-of-insurance-to-be-added-muyf5h72-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-proof-of-insurance-to-be-added-muz11d9v-imncw2y54a-uc.a.run.app">ls-proof-of-insurance-to-be-added-muz11d9v-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-proof-of-reserves-what-it-proves-muyl0kgp-imncw2y54a-uc.a.run.app">ls-proof-of-reserves-what-it-proves-muyl0kgp-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-proof-of-reserves-what-it-proves-muyl123p-imncw2y54a-uc.a.run.app">ls-proof-of-reserves-what-it-proves-muyl123p-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-proof-of-reserves-what-it-proves-muyl1o4i-imncw2y54a-uc.a.run.app">ls-proof-of-reserves-what-it-proves-muyl1o4i-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-proof-of-reserves-what-it-proves-muyl25ta-imncw2y54a-uc.a.run.app">ls-proof-of-reserves-what-it-proves-muyl25ta-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-proof-of-reserves-what-it-proves-muyl2bmb-imncw2y54a-uc.a.run.app">ls-proof-of-reserves-what-it-proves-muyl2bmb-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-proof-of-reserves-what-it-proves-muyl2z1r-imncw2y54a-uc.a.run.app">ls-proof-of-reserves-what-it-proves-muyl2z1r-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-rahu-kaal-muxnw0dc-imncw2y54a-uc.a.run.app">ls-rahu-kaal-muxnw0dc-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-rahu-kaal-muxnwbbt-imncw2y54a-uc.a.run.app">ls-rahu-kaal-muxnwbbt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-rahu-kaal-muxnwkdr-imncw2y54a-uc.a.run.app">ls-rahu-kaal-muxnwkdr-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-rahu-kaal-muxnwr51-imncw2y54a-uc.a.run.app">ls-rahu-kaal-muxnwr51-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-rahu-kaal-muxnx613-imncw2y54a-uc.a.run.app">ls-rahu-kaal-muxnx613-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-rahu-kaal-muxnxlor-imncw2y54a-uc.a.run.app">ls-rahu-kaal-muxnxlor-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-bonus-terms-before-you-opt-muyvrk9l-imncw2y54a-uc.a.run.app">ls-reading-bonus-terms-before-you-opt-muyvrk9l-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-bonus-terms-before-you-opt-muyvrppv-imncw2y54a-uc.a.run.app">ls-reading-bonus-terms-before-you-opt-muyvrppv-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-bonus-terms-before-you-opt-muyvsg2g-imncw2y54a-uc.a.run.app">ls-reading-bonus-terms-before-you-opt-muyvsg2g-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-bonus-terms-before-you-opt-muyvsj4n-imncw2y54a-uc.a.run.app">ls-reading-bonus-terms-before-you-opt-muyvsj4n-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-bonus-terms-before-you-opt-muyvtfvs-imncw2y54a-uc.a.run.app">ls-reading-bonus-terms-before-you-opt-muyvtfvs-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-bonus-terms-before-you-opt-muyvtmna-imncw2y54a-uc.a.run.app">ls-reading-bonus-terms-before-you-opt-muyvtmna-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-tokenomics-without-getting-fooled-muld-imncw2y54a-uc.a.run.app">ls-reading-tokenomics-without-getting-fooled-muld-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-tokenomics-without-getting-fooled-muy5-imncw2y54a-uc.a.run.app">ls-reading-tokenomics-without-getting-fooled-muy5-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-tokenomics-without-getting-fooled-muyj-imncw2y54a-uc.a.run.app">ls-reading-tokenomics-without-getting-fooled-muyj-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-reading-tokenomics-without-getting-fooled-muyl-imncw2y54a-uc.a.run.app">ls-reading-tokenomics-without-getting-fooled-muyl-imncw2y54a-uc.a.run.app</a> 

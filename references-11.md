@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bitslots.de.com/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
+<a href="https://bitslots.de.com/garbage-disposal-troubleshooting-the-basics-every-homeowner/">garbage disposal troubleshooting the basics every homeowner</a> 
+<a href="https://bitslots.de.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://bitslots.de.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
+<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://bitslots.de.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://bitslots.de.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://bitslots.de.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://bitslots.de.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://bitslots.de.com/how-baby-name-popularity-shifts-over-time-2/">how baby name popularity shifts over time 2</a> 
+<a href="https://bitslots.de.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://bitslots.de.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
+<a href="https://bitslots.de.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://bitslots.de.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://bitslots.de.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://bitslots.de.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://bitslots.de.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
@@ -781,24 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/this-is-vegas-casino-review-bonuses-games-user-aaffb4b6/">this is vegas casino review bonuses games user aaffb4b6</a> 
 <a href="https://boostelearning.mataroa.blog/blog/this-is-vegas-casino-review-bonuses-games-user/">this is vegas casino review bonuses games user</a> 
 <a href="https://boostelearning.mataroa.blog/blog/token-times-60ae0860/">token times 60ae0860</a> 
-<a href="https://boostelearning.mataroa.blog/blog/token-times-7d5e8c85/">token times 7d5e8c85</a> 
-<a href="https://boostelearning.mataroa.blog/blog/token-times/">token times</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr-41b5e460/">tokenpr 41b5e460</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr-8373f0d5/">tokenpr 8373f0d5</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr-8997d969/">tokenpr 8997d969</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr-ce380c7f/">tokenpr ce380c7f</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr/">tokenpr</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenspin/">tokenspin</a> 
-<a href="https://boostelearning.mataroa.blog/blog/top-cultural-figures-who-shaped-modern-taste/">top cultural figures who shaped modern taste</a> 
-<a href="https://boostelearning.mataroa.blog/blog/trader-says-xrp-price-setting-biggest-bear-trap/">trader says xrp price setting biggest bear trap</a> 
-<a href="https://boostelearning.mataroa.blog/blog/travel-connectivity-basics/">travel connectivity basics</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-0e0c5561/">tsam 0e0c5561</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-13a7d790/">tsam 13a7d790</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-1ae069df/">tsam 1ae069df</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-441402c3/">tsam 441402c3</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-92586ca1/">tsam 92586ca1</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-9e98cdd9/">tsam 9e98cdd9</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-a02f8576/">tsam a02f8576</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-a067fcf6/">tsam a067fcf6</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-db5cd661/">tsam db5cd661</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tsam-dd3bf238/">tsam dd3bf238</a> 

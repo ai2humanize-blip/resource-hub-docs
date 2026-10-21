@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-understanding-how-search-engines-rank-pages-right.html">getting understanding how search engines rank pages right</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/getting-what-makes-an-explainer-article-genuinely-useful-rig.html">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/global-poker-casino-play-online-poker-games-win.html">global poker casino play online poker games win</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/guarding-stars-jared-padalecki-leighton-meester-rom-com.html">guarding stars jared padalecki leighton meester rom com</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/guide.html">guide</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/guides-reviews-how-tos-27-resources-worth-bookmarking-42-3.html">guides reviews how tos 27 resources worth bookmarking 42 3</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/guides-reviews-how-tos-45-resources-worth-bookmarking-42-13.html">guides reviews how tos 45 resources worth bookmarking 42 13</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/guides-reviews-how-tos-45-resources-worth-bookmarking-43-22.html">guides reviews how tos 45 resources worth bookmarking 43 22</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/hbar-price-consolidates-below-155-as-momentum-remains.html">hbar price consolidates below 155 as momentum remains</a> 
@@ -796,9 +802,3 @@
 <a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://alcobar85.xyz/why-a-toilet-keeps-running-and-the-simple-parts-behind-it.htm">why a toilet keeps running and the simple parts behind it</a> 
-<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
-<a href="https://alcobar85.xyz/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://alcobar85.xyz/why-niche-blogs-still-matter-and-why-it-matters-2/">why niche blogs still matter and why it matters 2</a> 
