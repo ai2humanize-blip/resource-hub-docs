@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://epicwin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://epicwin1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://epicwin1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://epicwin1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://epicwin1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://epicwin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://esm.sh/curated-web-directory-hub/index.html">index</a> 
+<a href="https://esm.sh/curated-web-directory-hub@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00387e8/tsam.html">tsam</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00516ce/how-android-updates-reach-your-phone.html">how android updates reach your phone</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@006a7e9/independent-web-resources.html">independent web resources</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00729f7/up-satta-king.html">up satta king</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00b0d03/a-closer-look-at-why-primary-sources-matter-and-how-to-find-.html">a closer look at why primary sources matter and how to find</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00f3b9c/one-speaker-louder-than-the-other.html">one speaker louder than the other</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00fe7d8/revolutionizing-daily-life-how-apps-are-transforming-the-dig.html">revolutionizing daily life how apps are transforming the dig</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@015fe6e/netflix-crime-drama-all-sinners-bleed-starring-sope.html">netflix crime drama all sinners bleed starring sope</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@0167f9e/simple-habits-of-a-smart-internet-reader.html">simple habits of a smart internet reader</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@0180a81/pt-br.html">pt br</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@01bc4cf/trouver-la-qibla.html">trouver la qibla</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@01e6aae/serpinsight.html">serpinsight</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@021ae9d/navigating-the-future-how-bitcoin-and-blockchain-are-transfo.html">navigating the future how bitcoin and blockchain are transfo</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@02a8b03/bitcoinprime.html">bitcoinprime</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@02cd36f/names-that-mean-dark.html">names that mean dark</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@034b472/what-makes-an-explainer-article-genuinely-useful-and-why-it-.html">what makes an explainer article genuinely useful and why it</a> 
@@ -781,24 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e1ab05e/cryptonews-co-bz.html">cryptonews co bz</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e2ae3af/coinnews-de-com.html">coinnews de com</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e2f1996/privacy-policy.html">privacy policy</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e385f38/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-g.html">demystifying cryptocurrency bitcoin and blockchain a fresh g</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e3c7b72/bitcointalk.html">bitcointalk</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e46d5cb/how-to-buy-your-first-crypto-safely.html">how to buy your first crypto safely</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e49bcfb/how-to-read-food-label.html">how to read food label</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e4b0d0c/fear-greed.html">fear greed</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e4ce9e7/reconnaitre-une-dependance-au-jeu.html">reconnaitre une dependance au jeu</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e4e1652/viirelaid-empire-bigwater-transform-viirelaid-into-carbon-ne.html">viirelaid empire bigwater transform viirelaid into carbon ne</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e4f4d4f/tashbazzi.html">tashbazzi</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e5019b3/seminole-casino-coconut-creek-gaming-dining-and-entertainmen.html">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e5474b8/reading-whitepaper.html">reading whitepaper</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e55081b/about-us.html">about us</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e5be6e4/how-ai-and-apps-are-transforming-daily-life-a-deep-dive-into.html">how ai and apps are transforming daily life a deep dive into</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e5c46c4/brightstartnews.html">brightstartnews</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e5f7731/reading-whitepaper.html">reading whitepaper</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e6013bc/getting-how-to-use-the-web-to-learn-a-new-skill-right.html">getting how to use the web to learn a new skill right</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e68442b/why-niche-blogs-still-matter-a-practical-guide.html">why niche blogs still matter a practical guide</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e68b78c/md5-vs-sha256-which-to-use-and-when.html">md5 vs sha256 which to use and when</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e69b678/rajya-sabha-vs-lok-sabha-how-india-two.html">rajya sabha vs lok sabha how india two</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e69fddc/why-primary-sources-matter-and-how-to-find-them-explained-si.html">why primary sources matter and how to find them explained si</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e6b68c2/panchang-daily.html">panchang daily</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@e6fa095/hbar-price-consolidates-below-155-as-momentum-remains.html">hbar price consolidates below 155 as momentum remains</a> 

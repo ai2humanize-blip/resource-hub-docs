@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://grouperfishingsecrets.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-4/">a closer look at how to avoid misinformation and hype 4</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opinion/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
+<a href="https://grouperfishingsecrets.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://grouperfishingsecrets.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://grouperfishingsecrets.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://grouperfishingsecrets.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://grouperfishingsecrets.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://grouperfishingsecrets.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
 <a href="https://grouperfishingsecrets.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
 <a href="https://grouperfishingsecrets.com/air-quality-in-pune-what-affects-the-air-you-breathe/">air quality in pune what affects the air you breathe</a> 
 <a href="https://grouperfishingsecrets.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
@@ -781,24 +802,3 @@
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-21/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-22/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-23/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-24/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-25/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-26/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-27/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-4/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-5/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-6/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-7/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-8/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-roun-99-3/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-essential-online-res-99-8/">mastering business finance productivity essential online res</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-essential-online-ski-99-8-2/">mastering business finance productivity essential online ski</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-essential-online-ski-99-8-3/">mastering business finance productivity essential online ski</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-essential-online-ski-99-8/">mastering business finance productivity essential online ski</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-essential-reading-an-99-8-2/">mastering business finance productivity essential reading an</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-essential-reading-an-99-8-3/">mastering business finance productivity essential reading an</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-essential-reading-an-99-8/">mastering business finance productivity essential reading an</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-essential-skills-for-99-8-2/">mastering business finance productivity essential skills for</a> 

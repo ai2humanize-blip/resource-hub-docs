@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://alcobar85.xyz/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
+<a href="https://alcobar85.xyz/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
+<a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
+<a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined-3/">what is zakat and how the nisab threshold is determined 3</a> 
+<a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://alcobar85.xyz/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
@@ -132,6 +138,9 @@
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-62/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-63/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-64/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-65/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-66/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-67/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-7/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-8/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-9/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -793,12 +802,3 @@
 <a href="https://alientapereviews.com/essential-online-resources-for-business-finance-and-producti-78-9/">essential online resources for business finance and producti</a> 
 <a href="https://alientapereviews.com/essential-online-resources-for-marketing-seo-growth-78-8/">essential online resources for marketing seo growth 78 8</a> 
 <a href="https://alientapereviews.com/essential-small-business-tips-for-success-in-business-financ-78-9/">essential small business tips for success in business financ</a> 
-<a href="https://alientapereviews.com/ethereum-gas-fees-explained-why-they-exist-and-how-they-are/">ethereum gas fees explained why they exist and how they are</a> 
-<a href="https://alientapereviews.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
-<a href="https://alientapereviews.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://alientapereviews.com/exploring-essential-digital-tools-online-resources-for-every-78-10/">exploring essential digital tools online resources for every</a> 
-<a href="https://alientapereviews.com/exploring-guides-reviews-and-how-tos-from-baby-names-to-urdu-78-7/">exploring guides reviews and how tos from baby names to urdu</a> 
-<a href="https://alientapereviews.com/exploring-guides-reviews-how-tos-from-baby-names-to-parentin-78-7/">exploring guides reviews how tos from baby names to parentin</a> 
-<a href="https://alientapereviews.com/exploring-the-best-digital-tools-online-resources-for-produc-78-10/">exploring the best digital tools online resources for produc</a> 
-<a href="https://alientapereviews.com/exploring-the-best-independent-marketing-seo-growth-resource-78-3/">exploring the best independent marketing seo growth resource</a> 
-<a href="https://alientapereviews.com/exploring-the-best-web-tech-content-resources-in-2023-78-1/">exploring the best web tech content resources in 2023 78 1</a> 

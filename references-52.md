@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-53.md) · [‹ prev](references-51.md)
 
+<a href="https://montanagreenpower.org/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://monumental-eclair-8008ee.netlify.app/safar.html">safar</a> 
+<a href="https://monumental-lolly-e0baf5.netlify.app/urducentral.html">urducentral</a> 
+<a href="https://monumental-pixie-04fdae.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://moonlit-biscotti-34a8ea.netlify.app/why-we-label-reviews-research-based.html">why we label reviews research based</a> 
+<a href="https://moonlit-heliotrope-80227d.netlify.app/xrp-live-price-real-time-ripple-value-market.html">xrp live price real time ripple value market</a> 
+<a href="https://moonlit-pithivier-b9014a.netlify.app/how-to-get-water-out-of-phone-speaker.html">how to get water out of phone speaker</a> 
+<a href="https://msmbet.gb.net/gindex.html">gindex</a> 
+<a href="https://msmbet.gb.net/picks.html">picks</a> 
+<a href="https://multihubvercel.vercel.app/">multihubvercel.vercel.app</a> 
+<a href="https://musical-biscochitos-9e80a2.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
+<a href="https://mwbet8888.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://mwbet8888.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://mwbet8888.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://mwbet8888.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://mwbet8888.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://mwbet8888.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://mwbet8888.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://mwbet8888.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://mwbet8888.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://mwbet8888.xyz/hello-world/">hello world</a> 
 <a href="https://mwbet8888.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://mwbet8888.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://mwbet8888.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -781,24 +802,3 @@
 <a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-15/">web tech content 50 resources worth bookmarking 34 10 15</a> 
 <a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-16/">web tech content 50 resources worth bookmarking 34 10 16</a> 
 <a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-17/">web tech content 50 resources worth bookmarking 34 10 17</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-18/">web tech content 50 resources worth bookmarking 34 10 18</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-19/">web tech content 50 resources worth bookmarking 34 10 19</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-2/">web tech content 50 resources worth bookmarking 34 10 2</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-20/">web tech content 50 resources worth bookmarking 34 10 20</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-21/">web tech content 50 resources worth bookmarking 34 10 21</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-22/">web tech content 50 resources worth bookmarking 34 10 22</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-23/">web tech content 50 resources worth bookmarking 34 10 23</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-24/">web tech content 50 resources worth bookmarking 34 10 24</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-25/">web tech content 50 resources worth bookmarking 34 10 25</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-26/">web tech content 50 resources worth bookmarking 34 10 26</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-27/">web tech content 50 resources worth bookmarking 34 10 27</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-28/">web tech content 50 resources worth bookmarking 34 10 28</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-29/">web tech content 50 resources worth bookmarking 34 10 29</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-3/">web tech content 50 resources worth bookmarking 34 10 3</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-30/">web tech content 50 resources worth bookmarking 34 10 30</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-31/">web tech content 50 resources worth bookmarking 34 10 31</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-32/">web tech content 50 resources worth bookmarking 34 10 32</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-33/">web tech content 50 resources worth bookmarking 34 10 33</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-34/">web tech content 50 resources worth bookmarking 34 10 34</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-35/">web tech content 50 resources worth bookmarking 34 10 35</a> 
-<a href="https://myclassnews.it.com/web-tech-content-50-resources-worth-bookmarking-34-10-36/">web tech content 50 resources worth bookmarking 34 10 36</a> 
