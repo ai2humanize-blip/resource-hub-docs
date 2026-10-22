@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://forotesis.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://forotesis.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
+<a href="https://forotesis.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
+<a href="https://forotesis.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://forotesis.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
+<a href="https://forotesis.com/le-quint-comprendre-le-pari-hippique-le-plus-suivi/">le quint comprendre le pari hippique le plus suivi</a> 
+<a href="https://forotesis.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://forotesis.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://forotesis.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://forotesis.com/marketing-seo-growth-50-resources-worth-bookmarking-96-10/">marketing seo growth 50 resources worth bookmarking 96 10</a> 
+<a href="https://forotesis.com/marketing-seo-growth-essential-strategies-for-business-succe-96-5/">marketing seo growth essential strategies for business succe</a> 
+<a href="https://forotesis.com/master-business-finance-productivity-a-comprehensive-guide-96-6/">master business finance productivity a comprehensive guide 9</a> 
 <a href="https://forotesis.com/master-business-finance-productivity-essential-online-skills-96-6/">master business finance productivity essential online skills</a> 
 <a href="https://forotesis.com/master-business-finance-productivity-essential-web-skills-fo-96-6/">master business finance productivity essential web skills fo</a> 
 <a href="https://forotesis.com/master-guides-reviews-how-tos-your-ultimate-resource-for-lea-96-9/">master guides reviews how tos your ultimate resource for lea</a> 
@@ -790,15 +802,3 @@
 <a href="https://getolive.org/unlocking-the-power-of-a-minimalist-home-office-for-maximum/">unlocking the power of a minimalist home office for maximum</a> 
 <a href="https://getolive.org/unpacking-the-latest-news-expert-analysis-and-in-depth-insig/">unpacking the latest news expert analysis and in depth insig</a> 
 <a href="https://getolive.org/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-2/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://getolive.org/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-3/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://getolive.org/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-4/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://getolive.org/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://getolive.org/web-tech-content-a-comprehensive-guide-to-cryptocurrency-onl-97-7/">web tech content a comprehensive guide to cryptocurrency onl</a> 
-<a href="https://getolive.org/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-97-7/">web tech content a comprehensive guide to navigating the dig</a> 
-<a href="https://getolive.org/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
-<a href="https://getolive.org/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
-<a href="https://getolive.org/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
-<a href="https://getolive.org/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
-<a href="https://getolive.org/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
-<a href="https://getolive.org/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://getolive.org/what-makes-an-explainer-article-genuinely-useful-the-basics-2/">what makes an explainer article genuinely useful the basics </a> 

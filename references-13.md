@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://captainjackinterview.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
+<a href="https://captainjackinterview.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
+<a href="https://captainjackinterview.com/transforming-daily-life-how-ai-powered-apps-boost-business-f-82-5/">transforming daily life how ai powered apps boost business f</a> 
 <a href="https://captainjackinterview.com/transforming-daily-life-how-technology-and-apps-shape-our-di/">transforming daily life how technology and apps shape our di</a> 
 <a href="https://captainjackinterview.com/transforming-daily-life-the-impact-of-ai-powered-apps-on-bus-82-5/">transforming daily life the impact of ai powered apps on bus</a> 
 <a href="https://captainjackinterview.com/transforming-your-digital-life-top-apps-for-productivity-lea-82-5/">transforming your digital life top apps for productivity lea</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-7/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-8/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-9-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-9-3/">mastering business finance productivity a comprehensive guid</a> 

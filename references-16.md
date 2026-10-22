@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cmdslot.xyz/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
+<a href="https://cmdslot.xyz/what-a-blockchain-actually-is-and-how-it-works/">what a blockchain actually is and how it works</a> 
+<a href="https://cmdslot.xyz/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
 <a href="https://cmdslot.xyz/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
 <a href="https://cmdslot.xyz/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
 <a href="https://cmdslot.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-living-86-7/">essential digital tools online resources for modern living 8</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-producti-86-2/">essential digital tools online resources for modern producti</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-professi-86-2-2/">essential digital tools online resources for modern professi</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-professi-86-2/">essential digital tools online resources for modern professi</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-readers-86-7/">essential digital tools online resources for modern readers </a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-news-and-respon-86-7/">essential digital tools online resources for news and respon</a> 
