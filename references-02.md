@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.isblog.net/independent-crypto-and-finance-publications-to-bookmark-60289866">independent crypto and finance publications to bookmark 6028</a> 
+<a href="https://1mother.isblog.net/more-independent-websites-worth-exploring-60289860">more independent websites worth exploring 60289860</a> 
+<a href="https://1mother.isblog.net/useful-independent-sites-tools-and-crypto-resources-60289868">useful independent sites tools and crypto resources 60289868</a> 
 <a href="https://1mother.jiliblog.com/99260227/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
 <a href="https://1mother.jiliblog.com/99260229/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
 <a href="https://1mother.jiliblog.com/99260230/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/common-questions-answered-6/">common questions answered 6</a> 
 <a href="https://agriculture-lawyer.com/common-questions-answered-7/">common questions answered 7</a> 
 <a href="https://agriculture-lawyer.com/common-questions-answered-8/">common questions answered 8</a> 
-<a href="https://agriculture-lawyer.com/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://agriculture-lawyer.com/common-questions-answered/">common questions answered</a> 
-<a href="https://agriculture-lawyer.com/comprehensive-guide-to-crypto-cards-reviews-how-tos-and-comp-75-5/">comprehensive guide to crypto cards reviews how tos and comp</a> 

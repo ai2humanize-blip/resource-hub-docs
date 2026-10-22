@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-10.md) · [‹ prev](references-08.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Avoid-Misinformation-and-Hype-the-basics-3d1615d6bd428136a55ec28a2487e800">How to Avoid Misinformation and Hype the basics 3d1615d6bd42</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Bookmark-and-Revisit-Useful-Resources-and-why-it-matters-3d1615d6bd4281b2921dc00cdb7ae4e6">How to Bookmark and Revisit Useful Resources and why it matt</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Bookmark-and-Revisit-Useful-Resources-the-basics-3d1615d6bd42815f8eb3fda74884467c">How to Bookmark and Revisit Useful Resources the basics 3d16</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Build-a-Personal-Reading-List-3d1615d6bd4281788c66d30dc02e4af9">How to Build a Personal Reading List 3d1615d6bd4281788c66d30</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Choose-a-Trustworthy-Online-Casino-A-Comprehensive-Guide-3b8615d6bd4281e88fc5e5fec44eee6c">How to Choose a Trustworthy Online Casino A Comprehensive Gu</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Choose-the-Perfect-Watch-A-Comprehensive-Buying-Guide-3bb615d6bd42811d874ddce9ac9dc890">How to Choose the Perfect Watch A Comprehensive Buying Guide</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Evaluate-Online-Reviews-and-Recommendations-a-quick-guide-3d1615d6bd42816ebf28f913ac0eaf90">How to Evaluate Online Reviews and Recommendations a quick g</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Evaluate-Online-Reviews-and-Recommendations-and-why-it-matters-3d1615d6bd428189ba0ff29f7c3e972e">How to Evaluate Online Reviews and Recommendations and why i</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Find-Reliable-How-To-Guides-3d1615d6bd428180a369e1023a67a151">How to Find Reliable How To Guides 3d1615d6bd428180a369e1023</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Find-Reliable-How-To-Guides-a-practical-guide-3d1615d6bd42811d8db7c1f2759d7444">How to Find Reliable How To Guides a practical guide 3d1615d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Get-the-Most-Out-of-Online-Guides-a-quick-guide-3d3615d6bd42819cb076daed236a2329">How to Get the Most Out of Online Guides a quick guide 3d361</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Navigate-the-Digital-World-Essential-Apps-and-Tech-Tips-for-Everyone-3bb615d6bd4281278f9debb6d03f463e">How to Navigate the Digital World Essential Apps and Tech Ti</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Organize-the-Information-You-Find-Online-a-practical-guide-3d1615d6bd4281eeb1cbc4d065277be8">How to Organize the Information You Find Online a practical </a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Read-Crypto-News-Without-Getting-Misled-3c8615d6bd4281f1a764dd75c36748e3">How to Read Crypto News Without Getting Misled 3c8615d6bd428</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-Tell-Explainer-Journalism-from-Opinion-3d1615d6bd428135bedff995730d1193">How to Tell Explainer Journalism from Opinion 3d1615d6bd4281</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Tell-Explainer-Journalism-from-Opinion-3d3615d6bd4281ecb9eec345c6ee7727">How to Tell Explainer Journalism from Opinion 3d3615d6bd4281</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Tell-Explainer-Journalism-from-Opinion-explained-simply-3d1615d6bd42817ea398d1783783b1d9">How to Tell Explainer Journalism from Opinion explained simp</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-Transform-Your-Living-Space-with-Minimalist-Interior-Design-3bb615d6bd42811aa8f9e767790e94e4">How to Transform Your Living Space with Minimalist Interior </a> 
@@ -757,6 +772,9 @@
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-69/">web tech content 50 resources worth bookmarking 80 9 69</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-7/">web tech content 50 resources worth bookmarking 80 9 7</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-70/">web tech content 50 resources worth bookmarking 80 9 70</a> 
+<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-71/">web tech content 50 resources worth bookmarking 80 9 71</a> 
+<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-72/">web tech content 50 resources worth bookmarking 80 9 72</a> 
+<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-73/">web tech content 50 resources worth bookmarking 80 9 73</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-8/">web tech content 50 resources worth bookmarking 80 9 8</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-9/">web tech content 50 resources worth bookmarking 80 9 9</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9/">web tech content 50 resources worth bookmarking 80 9</a> 
@@ -784,21 +802,3 @@
 <a href="https://autumnfallsinterview.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://autumnfallsinterview.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://autumnfallsinterview.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://autumnfallsinterview.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://autumnfallsinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://bandemusic.com/5-essential-steps-to-master-mindful-productivity-in-your-dai/">5 essential steps to master mindful productivity in your dai</a> 
-<a href="https://bandemusic.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://bandemusic.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-81-10/">a beginner s guide to understanding and starting with crypto</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic-2/">a closer look at how to find balanced coverage of a topic 2</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-2/">a closer look at how to organize the information you find on</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-3/">a closer look at how to organize the information you find on</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://bandemusic.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://bandemusic.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
-<a href="https://bandemusic.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://bandemusic.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
-<a href="https://bandemusic.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
-<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 

@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://autumnfallsinterview.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://autumnfallsinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://bandemusic.com/5-essential-steps-to-master-mindful-productivity-in-your-dai/">5 essential steps to master mindful productivity in your dai</a> 
+<a href="https://bandemusic.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://bandemusic.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-81-10/">a beginner s guide to understanding and starting with crypto</a> 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic-2/">a closer look at how to find balanced coverage of a topic 2</a> 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-2/">a closer look at how to organize the information you find on</a> 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on-3/">a closer look at how to organize the information you find on</a> 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://bandemusic.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://bandemusic.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://bandemusic.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://bandemusic.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://bandemusic.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
+<a href="https://bandemusic.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://bandemusic.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://bandemusic.com/a-guide-to-names-that-mean-moon-star-and-sun-explained-simpl/">a guide to names that mean moon star and sun explained simpl</a> 
 <a href="https://bandemusic.com/a-how-to-stay-informed-the-best-news-aggregators-for-2023-a/">a how to stay informed the best news aggregators for 2023 a</a> 
@@ -253,6 +271,9 @@
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-69/">marketing seo growth 50 resources worth bookmarking 81 10 69</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-7/">marketing seo growth 50 resources worth bookmarking 81 10 7</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-70/">marketing seo growth 50 resources worth bookmarking 81 10 70</a> 
+<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-71/">marketing seo growth 50 resources worth bookmarking 81 10 71</a> 
+<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-72/">marketing seo growth 50 resources worth bookmarking 81 10 72</a> 
+<a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-73/">marketing seo growth 50 resources worth bookmarking 81 10 73</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-8/">marketing seo growth 50 resources worth bookmarking 81 10 8</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10-9/">marketing seo growth 50 resources worth bookmarking 81 10 9</a> 
 <a href="https://bandemusic.com/marketing-seo-growth-50-resources-worth-bookmarking-81-10/">marketing seo growth 50 resources worth bookmarking 81 10</a> 
@@ -781,24 +802,3 @@
 <a href="https://beautiful-manatee-47cb7d.netlify.app/a-simple-framework-for-researching-any-topic-online-the-basi.html">a simple framework for researching any topic online the basi</a> 
 <a href="https://bespoke-dragon-c0e891.netlify.app/best-time-to-visit-japan.html">best time to visit japan</a> 
 <a href="https://bespoke-figolla-d1d214.netlify.app/ai-policy.html">ai policy</a> 
-<a href="https://bespoke-horse-83b6c6.netlify.app/banner-ad-sites.html">banner ad sites</a> 
-<a href="https://bespoke-rolypoly-56c3ad.netlify.app/daily-aqi.html">daily aqi</a> 
-<a href="https://bespoke-sorbet-0255c9.netlify.app/festivals.html">festivals</a> 
-<a href="https://bespoke-starlight-e8a311.netlify.app/end-to-end-encryption-what-it-protects.html">end to end encryption what it protects</a> 
-<a href="https://betjili1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://betjili1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://betjili1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://betjili1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://betjili1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://betjili1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://betjili1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://betjili1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://betjili1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://betjili1.xyz/hello-world/">hello world</a> 
-<a href="https://betjili1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://betjili1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://betjili1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://betjili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://betjili1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://betjili1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://betjili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 

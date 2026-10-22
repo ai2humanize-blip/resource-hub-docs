@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://heatherburrisphotography.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://heatherburrisphotography.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
+<a href="https://heatherburrisphotography.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply-2/">how to use the web to learn a new skill explained simply 2</a> 
+<a href="https://heatherburrisphotography.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
+<a href="https://heatherburrisphotography.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://heatherburrisphotography.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
+<a href="https://heatherburrisphotography.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://heatherburrisphotography.com/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 
+<a href="https://heatherburrisphotography.com/leveraging-personal-finance-strategies-for-small-business-gr/">leveraging personal finance strategies for small business gr</a> 
+<a href="https://heatherburrisphotography.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://heatherburrisphotography.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://heatherburrisphotography.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://heatherburrisphotography.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://heatherburrisphotography.com/master-business-finance-productivity-essential-online-readin-99-8/">master business finance productivity essential online readin</a> 
+<a href="https://heatherburrisphotography.com/master-business-finance-productivity-essential-web-skills-fo-99-8/">master business finance productivity essential web skills fo</a> 
+<a href="https://heatherburrisphotography.com/master-digital-tools-online-resources-a-comprehensive-guide-99-9/">master digital tools online resources a comprehensive guide </a> 
+<a href="https://heatherburrisphotography.com/master-digital-tools-online-resources-for-smarter-internet-u-99-9/">master digital tools online resources for smarter internet u</a> 
+<a href="https://heatherburrisphotography.com/master-digital-tools-online-resources-for-smarter-research-a-99-9/">master digital tools online resources for smarter research a</a> 
+<a href="https://heatherburrisphotography.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-99-10/">master the art of budget travel find cheap flights and save </a> 
+<a href="https://heatherburrisphotography.com/master-your-online-experience-essential-digital-tools-resour-99-9/">master your online experience essential digital tools resour</a> 
+<a href="https://heatherburrisphotography.com/master-your-online-research-essential-digital-tools-resource-99-9/">master your online research essential digital tools resource</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-and-productivity-a-comprehensive-99-8-2/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-and-productivity-a-comprehensive-99-8-3/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-and-productivity-a-comprehensive-99-8-4/">mastering business finance and productivity a comprehensive </a> 
@@ -781,24 +802,3 @@
 <a href="https://homaryreviews.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
 <a href="https://homaryreviews.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://homaryreviews.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://homaryreviews.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
-<a href="https://homaryreviews.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://homaryreviews.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://homaryreviews.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://homaryreviews.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://homaryreviews.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://homaryreviews.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://homaryreviews.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://homaryreviews.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://homaryreviews.com/air-quality-in-pune-what-affects-the-air-you-breathe/">air quality in pune what affects the air you breathe</a> 
-<a href="https://homaryreviews.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://homaryreviews.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://homaryreviews.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://homaryreviews.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://homaryreviews.com/breaking-down-the-latest-sports-news-and-expert-analysis/">breaking down the latest sports news and expert analysis</a> 
-<a href="https://homaryreviews.com/breaking-down-today-s-top-news-stories-analysis-and-insights/">breaking down today s top news stories analysis and insights</a> 
-<a href="https://homaryreviews.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
