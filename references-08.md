@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://app.zentrack.net/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
+<a href="https://app.zentrack.net/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
+<a href="https://app.zentrack.net/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
 <a href="https://app.zentrack.net/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
 <a href="https://app.zentrack.net/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://app.zentrack.net/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
@@ -799,6 +802,3 @@
 <a href="https://autolinkrush.mex.com/decentralized-autonomous-organizations-daos-explained-simply/">decentralized autonomous organizations daos explained simply</a> 
 <a href="https://autolinkrush.mex.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://autolinkrush.mex.com/ev-vs-hybrid-vs-petrol-2026/">ev vs hybrid vs petrol 2026</a> 
-<a href="https://autolinkrush.mex.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://autolinkrush.mex.com/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://autolinkrush.mex.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 

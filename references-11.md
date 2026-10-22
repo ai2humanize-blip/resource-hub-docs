@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bandemusic.com/the-rise-of-ai-powered-apps-transforming-our-digital-experie/">the rise of ai powered apps transforming our digital experie</a> 
+<a href="https://bandemusic.com/the-rise-of-remote-work-how-to-thrive-in-a-virtual-office-en/">the rise of remote work how to thrive in a virtual office en</a> 
+<a href="https://bandemusic.com/the-ultimate-guide-to-digital-tools-online-resources-for-cry-81-2/">the ultimate guide to digital tools online resources for cry</a> 
 <a href="https://bandemusic.com/the-value-of-slow-careful-reading-a-quick-guide-2/">the value of slow careful reading a quick guide 2</a> 
 <a href="https://bandemusic.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://bandemusic.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
 <a href="https://boostelearning.mataroa.blog/blog/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
 <a href="https://boostelearning.mataroa.blog/blog/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-fact-check-something-in-five-minutes-right-7784c56a/">getting how to fact check something in five minutes right 77</a> 
-<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-find-balanced-coverage-of-a-topic-right-a5edd6f9/">getting how to find balanced coverage of a topic right a5edd</a> 

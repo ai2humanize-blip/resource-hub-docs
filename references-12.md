@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-fact-check-something-in-five-minutes-right-7784c56a/">getting how to fact check something in five minutes right 77</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://boostelearning.mataroa.blog/blog/getting-how-to-find-balanced-coverage-of-a-topic-right-a5edd6f9/">getting how to find balanced coverage of a topic right a5edd</a> 
 <a href="https://boostelearning.mataroa.blog/blog/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
 <a href="https://boostelearning.mataroa.blog/blog/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
 <a href="https://boostelearning.mataroa.blog/blog/getting-how-to-spot-low-quality-content-online-right-5251b2fb/">getting how to spot low quality content online right 5251b2f</a> 
@@ -799,6 +802,3 @@
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogjuluhr24">3muogjuluhr24</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogl57pse2i">3muogl57pse2i</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogmgbti42x">3muogmgbti42x</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muognp5dsq2l">3muognp5dsq2l</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogoxsouu2x">3muogoxsouu2x</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muogqf4sgq2i">3muogqf4sgq2i</a> 
