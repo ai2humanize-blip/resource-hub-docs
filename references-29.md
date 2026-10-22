@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://feetfinder.uk.net/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://fideleturfturf.it.com/a-beginner-s-guide-to-bitcoin-gambling-what-you-need-to-know-28-6/">a beginner s guide to bitcoin gambling what you need to know</a> 
+<a href="https://fideleturfturf.it.com/a-beginner-s-guide-to-navigating-the-world-of-bitcoin-web-te-28-6/">a beginner s guide to navigating the world of bitcoin web te</a> 
+<a href="https://fideleturfturf.it.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
+<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
 <a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://fideleturfturf.it.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://fideleturfturf.it.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
@@ -214,6 +223,7 @@
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-homeowners-a-co-28-5/">essential digital tools online resources for homeowners a co</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-horse-racing-en-28-5/">essential digital tools online resources for horse racing en</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-islamic-practic-28-5/">essential digital tools online resources for islamic practic</a> 
+<a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-knowledge-seeke-28-5/">essential digital tools online resources for knowledge seeke</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-business-28-5-2/">essential digital tools online resources for modern business</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-business-28-5/">essential digital tools online resources for modern business</a> 
 <a href="https://fideleturfturf.it.com/essential-digital-tools-online-resources-for-modern-cities-a-28-5/">essential digital tools online resources for modern cities a</a> 
@@ -564,6 +574,8 @@
 <a href="https://fideleturfturf.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-28-5-3/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://fideleturfturf.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-28-5-4/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://fideleturfturf.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-28-5-5/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://fideleturfturf.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-28-5-6/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://fideleturfturf.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-28-5-7/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://fideleturfturf.it.com/mastering-digital-tools-online-resources-a-comprehensive-gui-28-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://fideleturfturf.it.com/mastering-digital-tools-online-resources-for-smarter-news-co-28-5/">mastering digital tools online resources for smarter news co</a> 
 <a href="https://fideleturfturf.it.com/mastering-digital-transformation-how-technology-and-apps-are/">mastering digital transformation how technology and apps are</a> 
@@ -790,15 +802,3 @@
 <a href="https://fideleturfturf.it.com/the-rise-of-dailywatchreports-transforming-news-consumption/">the rise of dailywatchreports transforming news consumption</a> 
 <a href="https://fideleturfturf.it.com/the-rise-of-remote-work-in-india-opportunities-and-challenge/">the rise of remote work in india opportunities and challenge</a> 
 <a href="https://fideleturfturf.it.com/the-rise-of-super-apps-how-they-re-transforming-the-digital/">the rise of super apps how they re transforming the digital</a> 
-<a href="https://fideleturfturf.it.com/the-surprising-benefits-of-incorporating-fermented-foods-int/">the surprising benefits of incorporating fermented foods int</a> 
-<a href="https://fideleturfturf.it.com/the-ultimate-guide-to-choosing-a-digital-marketing-agency-in/">the ultimate guide to choosing a digital marketing agency in</a> 
-<a href="https://fideleturfturf.it.com/the-ultimate-guide-to-digital-tools-online-resources-for-cry-28-5/">the ultimate guide to digital tools online resources for cry</a> 
-<a href="https://fideleturfturf.it.com/the-ultimate-guide-to-digital-tools-online-resources-for-eve-28-5/">the ultimate guide to digital tools online resources for eve</a> 
-<a href="https://fideleturfturf.it.com/the-ultimate-guide-to-essential-digital-tools-online-resourc-28-5-2/">the ultimate guide to essential digital tools online resourc</a> 
-<a href="https://fideleturfturf.it.com/the-ultimate-guide-to-essential-digital-tools-online-resourc-28-5/">the ultimate guide to essential digital tools online resourc</a> 
-<a href="https://fideleturfturf.it.com/the-ultimate-guide-to-starting-a-home-based-online-business-28-6/">the ultimate guide to starting a home based online business </a> 
-<a href="https://fideleturfturf.it.com/the-ultimate-guide-to-understanding-and-using-qr-codes-28-6/">the ultimate guide to understanding and using qr codes 28 6</a> 
-<a href="https://fideleturfturf.it.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://fideleturfturf.it.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://fideleturfturf.it.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://fideleturfturf.it.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
