@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://cyberkannadig.it.com/a-exploring-the-best-guides-reviews-how-tos-for-every-enthus-26-4/">a exploring the best guides reviews how tos for every enthus</a> 
+<a href="https://cyberkannadig.it.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
 <a href="https://cyberkannadig.it.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://cyberkannadig.it.com/a-simple-framework-for-researching-any-topic-online-and-why-2/">a simple framework for researching any topic online and why </a> 
 <a href="https://cyberkannadig.it.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
@@ -368,6 +372,7 @@
 <a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply-2/">making sense of complex topics online explained simply 2</a> 
 <a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
 <a href="https://cyberkannadig.it.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-26-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
+<a href="https://cyberkannadig.it.com/making-sense-of-web-tech-content-a-practical-guide-to-online-26-3/">making sense of web tech content a practical guide to online</a> 
 <a href="https://cyberkannadig.it.com/master-cheap-flight-booking-guides-reviews-how-tos-for-real-26-4/">master cheap flight booking guides reviews how tos for real </a> 
 <a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4-2/">master guides reviews how tos your ultimate resource roundup</a> 
 <a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4/">master guides reviews how tos your ultimate resource roundup</a> 
@@ -516,6 +521,8 @@
 <a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-for-crypto-26-3/">mastering web tech content a comprehensive guide for crypto </a> 
 <a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-26-3/">mastering web tech content a comprehensive guide for modern </a> 
 <a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-u-26-3/">mastering web tech content a comprehensive guide for savvy u</a> 
+<a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-26-3-2/">mastering web tech content a comprehensive guide for smart r</a> 
+<a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-26-3/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-to-crypto-a-26-3/">mastering web tech content a comprehensive guide to crypto a</a> 
 <a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-26-3/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://cyberkannadig.it.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-26-3/">mastering web tech content a comprehensive guide to navigati</a> 
@@ -795,10 +802,3 @@
 <a href="https://cyberkannadig.it.com/wallets-and-self-custody-the-safety-first-basics-3/">wallets and self custody the safety first basics 3</a> 
 <a href="https://cyberkannadig.it.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
 <a href="https://cyberkannadig.it.com/web-tech-and-organic-living-expert-insights-and-holistic-hea-26-3/">web tech and organic living expert insights and holistic hea</a> 
-<a href="https://cyberkannadig.it.com/web-tech-content-45-resources-worth-bookmarking-26-18/">web tech content 45 resources worth bookmarking 26 18</a> 
-<a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-10/">web tech content 50 resources worth bookmarking 26 3 10</a> 
-<a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-11/">web tech content 50 resources worth bookmarking 26 3 11</a> 
-<a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-12/">web tech content 50 resources worth bookmarking 26 3 12</a> 
-<a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-13/">web tech content 50 resources worth bookmarking 26 3 13</a> 
-<a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-14/">web tech content 50 resources worth bookmarking 26 3 14</a> 
-<a href="https://cyberkannadig.it.com/web-tech-content-50-resources-worth-bookmarking-26-3-15/">web tech content 50 resources worth bookmarking 26 3 15</a> 

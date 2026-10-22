@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bandemusic.com/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://bandemusic.com/understanding-general-legal-information-and-news-a-comprehen/">understanding general legal information and news a comprehen</a> 
+<a href="https://bandemusic.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
 <a href="https://bandemusic.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
 <a href="https://bandemusic.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
 <a href="https://bandemusic.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
@@ -140,6 +143,7 @@
 <a href="https://be1.ru/stat/idiominsider.net">idiominsider.net</a> 
 <a href="https://be1.ru/stat/illicitlabel.com">illicitlabel.com</a> 
 <a href="https://be1.ru/stat/internetchicks.sa.com">internetchicks.sa.com</a> 
+<a href="https://be1.ru/stat/ivanaturf.cc">ivanaturf.cc</a> 
 <a href="https://be1.ru/stat/janibd.com">janibd.com</a> 
 <a href="https://be1.ru/stat/kexartcom.in">kexartcom.in</a> 
 <a href="https://be1.ru/stat/litigationlawyer.in">litigationlawyer.in</a> 
@@ -798,7 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/how-to-compare-sources-on-the-same-story-52277761/">how to compare sources on the same story 52277761</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://boostelearning.mataroa.blog/blog/how-to-evaluate-20-minimum-deposit-casinos-before-32159bfa/">how to evaluate 20 minimum deposit casinos before 32159bfa</a> 
-<a href="https://boostelearning.mataroa.blog/blog/how-to-evaluate-20-minimum-deposit-casinos-before-4b31e617/">how to evaluate 20 minimum deposit casinos before 4b31e617</a> 
-<a href="https://boostelearning.mataroa.blog/blog/how-to-evaluate-20-minimum-deposit-casinos-before-56529c20/">how to evaluate 20 minimum deposit casinos before 56529c20</a> 
-<a href="https://boostelearning.mataroa.blog/blog/how-to-evaluate-20-minimum-deposit-casinos-before-8146f3f8/">how to evaluate 20 minimum deposit casinos before 8146f3f8</a> 

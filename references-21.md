@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://cymbaltareviews.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://cymbaltareviews.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://cymbaltareviews.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://cymbaltareviews.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://cymbaltareviews.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://cymbaltareviews.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://cymbaltareviews.com/how-to-compare-sources-on-the-same-story-explained-simply-2/">how to compare sources on the same story explained simply 2</a> 
 <a href="https://cymbaltareviews.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
 <a href="https://cymbaltareviews.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://cymbaltareviews.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
@@ -795,10 +802,3 @@
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9-7/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9-8/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9-9/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-a-comprehensive-gui-89-9/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-for-smarter-reading-89-9/">mastering digital tools online resources for smarter reading</a> 
-<a href="https://dellywoodfilms.com/mastering-digital-tools-online-resources-for-smarter-researc-89-9/">mastering digital tools online resources for smarter researc</a> 
-<a href="https://dellywoodfilms.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-89-1/">mastering guides reviews how tos your ultimate resource roun</a> 
-<a href="https://dellywoodfilms.com/mastering-instagram-design-and-indonesian-services-comprehen-89-1/">mastering instagram design and indonesian services comprehen</a> 
