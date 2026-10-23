@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-reading-football-league-tables-and-stan/">a practical guide to reading football league tables and stan</a> 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-seasonal-style-transitions/">a practical guide to seasonal style transitions</a> 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-understanding-off-page-seo/">a practical guide to understanding off page seo</a> 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://fabbusinesssolutions.com/a-practical-introduction-to-travel-insurance-for-internation/">a practical introduction to travel insurance for internation</a> 
+<a href="https://fabbusinesssolutions.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://fabbusinesssolutions.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://fabbusinesssolutions.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
 <a href="https://fabbusinesssolutions.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
@@ -774,6 +780,7 @@
 <a href="https://fabulouspoetry.it.com/master-business-finance-productivity-avoid-misinformation-an-27-5/">master business finance productivity avoid misinformation an</a> 
 <a href="https://fabulouspoetry.it.com/master-business-finance-productivity-top-online-resources-st-27-5/">master business finance productivity top online resources st</a> 
 <a href="https://fabulouspoetry.it.com/master-business-finance-productivity-top-online-resources-to-27-5/">master business finance productivity top online resources to</a> 
+<a href="https://fabulouspoetry.it.com/master-marketing-seo-growth-essential-skills-for-the-digital-27-4/">master marketing seo growth essential skills for the digital</a> 
 <a href="https://fabulouspoetry.it.com/master-marketing-seo-growth-strategies-for-e-commerce-succes-27-4/">master marketing seo growth strategies for e commerce succes</a> 
 <a href="https://fabulouspoetry.it.com/master-the-art-of-budget-travel-how-to-find-cheap-flights-an-27-5/">master the art of budget travel how to find cheap flights an</a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-10/">mastering business finance and productivity a comprehensive </a> 
@@ -795,10 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-25/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-26/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-27/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-28/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-29/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-3/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-30/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-31/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-32/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-33/">mastering business finance and productivity a comprehensive </a> 

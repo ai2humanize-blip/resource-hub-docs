@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxw4aenb2s">3msjxw4aenb2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwcjsvv2z">3msjxwcjsvv2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwivsam2m">3msjxwivsam2m</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwp7zz72n">3msjxwp7zz72n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwvlrkc2n">3msjxwvlrkc2n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxx3yian2z">3msjxx3yian2z</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
 <a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
 <a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://captainjackinterview.com/the-future-of-ai-in-journalism-opportunities-and-challenges-2/">the future of ai in journalism opportunities and challenges </a> 
-<a href="https://captainjackinterview.com/the-future-of-ai-in-journalism-opportunities-and-challenges/">the future of ai in journalism opportunities and challenges</a> 
-<a href="https://captainjackinterview.com/the-future-of-news-emerging-trends-and-the-role-of-independe/">the future of news emerging trends and the role of independe</a> 
