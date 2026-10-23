@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://fabbusinesssolutions.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://fabbusinesssolutions.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://fabbusinesssolutions.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -793,12 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-11/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-12/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-13/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-14/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-15/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-16/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-17/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-18/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-19/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-2/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-20/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-21/">mastering business finance and productivity a comprehensive </a> 

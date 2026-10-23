@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
 <a href="https://agriculture-lawyer.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
 <a href="https://agriculture-lawyer.com/a-closer-look-at-making-sense-of-complex-topics-online-3/">a closer look at making sense of complex topics online 3</a> 
@@ -629,6 +630,7 @@
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4-9/">web tech content 50 resources worth bookmarking 75 4 9</a> 
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-4/">web tech content 50 resources worth bookmarking 75 4</a> 
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-9-2/">web tech content 50 resources worth bookmarking 75 9 2</a> 
+<a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-9-3/">web tech content 50 resources worth bookmarking 75 9 3</a> 
 <a href="https://agriculture-lawyer.com/web-tech-content-50-resources-worth-bookmarking-75-9/">web tech content 50 resources worth bookmarking 75 9</a> 
 <a href="https://agriculture-lawyer.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
 <a href="https://agriculture-lawyer.com/what-makes-an-explainer-article-genuinely-useful-and-why-it-2/">what makes an explainer article genuinely useful and why it </a> 
@@ -800,5 +802,3 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/deposit-limits-and-self-exclusion-crypto-casinos.html">deposit limits and self exclusion crypto casinos</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/digital-marketing-india.html">digital marketing india</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/digital-tools-online-resources-45-resources-worth-bookmarkin-42-21.html">digital tools online resources 45 resources worth bookmarkin</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/digital-tools-online-resources-a-comprehensive-roundup-for-m-43-5.html">digital tools online resources a comprehensive roundup for m</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/digital-tools-online-resources-navigating-the-modern-news-la-43-5.html">digital tools online resources navigating the modern news la</a> 

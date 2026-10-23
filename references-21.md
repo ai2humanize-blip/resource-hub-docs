@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resources/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://dellywoodfilms.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
 <a href="https://dellywoodfilms.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://dellywoodfilms.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://dellywoodfilms.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
@@ -793,12 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-savvy-users-fle">mastering web tech content a comprehensive guide for savvy u</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-1a1m">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-1da">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-1ecd">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-1iha">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-1j79">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-1onn">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-2876">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-2i5n">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-2jo6">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-smart-readers-5755">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://dev.to/ai2humanizeblip/mastering-web-tech-content-a-comprehensive-guide-for-success-1kdb">mastering web tech content a comprehensive guide for success</a> 

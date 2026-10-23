@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-46.md) · [‹ prev](references-44.md)
 
+<a href="https://livejournal.micro.blog/2026/10/07/075707.html">075707</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081053.html">081053</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081054.html">081054</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081143.html">081143</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081144.html">081144</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/081158.html">081158</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/082521.html">082521</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/082548.html">082548</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/082551.html">082551</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/082614.html">082614</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/084012.html">084012</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/084101.html">084101</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/084105.html">084105</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/084149.html">084149</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/085348.html">085348</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/085352.html">085352</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/085407.html">085407</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/085526.html">085526</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/090648.html">090648</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/090657.html">090657</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/090703.html">090703</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/090731.html">090731</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/090817.html">090817</a> 
@@ -782,23 +802,3 @@
 <a href="https://llmseoservices.org/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
 <a href="https://llmseoservices.org/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
 <a href="https://llmseoservices.org/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
-<a href="https://llmseoservices.org/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://llmseoservices.org/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://llmseoservices.org/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://llmseoservices.org/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
-<a href="https://llmseoservices.org/getting-building-a-healthy-daily-reading-habit-right-3/">getting building a healthy daily reading habit right 3</a> 
-<a href="https://llmseoservices.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://llmseoservices.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://llmseoservices.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://llmseoservices.org/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://llmseoservices.org/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://llmseoservices.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://llmseoservices.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
-<a href="https://llmseoservices.org/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://llmseoservices.org/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://llmseoservices.org/getting-what-to-look-for-in-a-good-news-website-right-2/">getting what to look for in a good news website right 2</a> 
-<a href="https://llmseoservices.org/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://llmseoservices.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://llmseoservices.org/guides-reviews-how-tos-32-resources-worth-bookmarking-32-8/">guides reviews how tos 32 resources worth bookmarking 32 8</a> 
-<a href="https://llmseoservices.org/guides-reviews-how-tos-40-resources-worth-bookmarking-32-8/">guides reviews how tos 40 resources worth bookmarking 32 8</a> 
-<a href="https://llmseoservices.org/guides-reviews-how-tos-45-resources-worth-bookmarking-32-8/">guides reviews how tos 45 resources worth bookmarking 32 8</a> 

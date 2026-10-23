@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxu4xpi426">3msjxu4xpi426</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxudbtbs2n">3msjxudbtbs2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxujly4e2s">3msjxujly4e2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxupvt3j2s">3msjxupvt3j2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxuwenar2s">3msjxuwenar2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxv4odca2j">3msjxv4odca2j</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvcyb7p2c">3msjxvcyb7p2c</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvjc4cs2n">3msjxvjc4cs2n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvpm22u26">3msjxvpm22u26</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvvvz3h2y">3msjxvvvz3h2y</a> 
@@ -795,10 +802,3 @@
 <a href="https://captainjackinterview.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
 <a href="https://captainjackinterview.com/techvantor-xyz-resource-1-2/">techvantor xyz resource 1 2</a> 
 <a href="https://captainjackinterview.com/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters-2/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters-3/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://captainjackinterview.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl-2/">the difference between skimming and deep reading online expl</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl-3/">the difference between skimming and deep reading online expl</a> 

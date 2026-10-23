@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cmdslot.xyz/spot-sars-and-banking-phishing-scams-2/">spot sars and banking phishing scams 2</a> 
+<a href="https://cmdslot.xyz/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
+<a href="https://cmdslot.xyz/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
+<a href="https://cmdslot.xyz/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cmdslot.xyz/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
 <a href="https://cmdslot.xyz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
 <a href="https://cmdslot.xyz/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
 <a href="https://cmdslot.xyz/tlt-ng-resource-2/">tlt ng resource 2</a> 
@@ -795,10 +802,3 @@
 <a href="https://crediblenews24.com/criptano/">criptano</a> 
 <a href="https://crediblenews24.com/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
 <a href="https://crediblenews24.com/decoding-the-latest-global-news-trends-expert-analysis-and-i/">decoding the latest global news trends expert analysis and i</a> 
-<a href="https://crediblenews24.com/decoding-today-s-news-landscape-in-depth-analysis-and-expert/">decoding today s news landscape in depth analysis and expert</a> 
-<a href="https://crediblenews24.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-86-6/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://crediblenews24.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://crediblenews24.com/digital-tools-online-resources-50-resources-worth-bookmarkin-86-2/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://crediblenews24.com/discover-essential-digital-tools-online-resources-for-every-86-2/">discover essential digital tools online resources for every </a> 
-<a href="https://crediblenews24.com/discover-the-art-of-home-coffee-brewing-a-beginner-s-guide/">discover the art of home coffee brewing a beginner s guide</a> 
-<a href="https://crediblenews24.com/discover-the-best-ai-art-prompt-generators-online-creative-t-86-7/">discover the best ai art prompt generators online creative t</a> 
