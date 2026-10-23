@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.fitnell.com/84014693/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
+<a href="https://1mother.fitnell.com/84014697/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
+<a href="https://1mother.fitnell.com/84014701/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
 <a href="https://1mother.fitnell.com/84014702/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
 <a href="https://1mother.free-blogz.com/90534456/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
 <a href="https://1mother.free-blogz.com/90534459/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
