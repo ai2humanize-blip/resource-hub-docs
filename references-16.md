@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cmdslot.xyz/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://cmdslot.xyz/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
+<a href="https://cmdslot.xyz/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
 <a href="https://cmdslot.xyz/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
 <a href="https://cmdslot.xyz/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
 <a href="https://cmdslot.xyz/understanding-ott-platforms-where-new-shows-and-movies-premi/">understanding ott platforms where new shows and movies premi</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-2026-a-comprehe-86-7-2/">essential digital tools online resources for 2026 a comprehe</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-2026-a-comprehe-86-7-3/">essential digital tools online resources for 2026 a comprehe</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-2026-a-comprehe-86-7/">essential digital tools online resources for 2026 a comprehe</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-crypto-enthusia-86-7/">essential digital tools online resources for crypto enthusia</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-informed-resear-86-7/">essential digital tools online resources for informed resear</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-learning-and-re-86-7/">essential digital tools online resources for learning and re</a> 

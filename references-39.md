@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://jiliparty1.xyz/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://jiliparty1.xyz/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://jiliparty1.xyz/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
+<a href="https://jiliparty1.xyz/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://jiliparty1.xyz/tlt-ng-resource-2/">tlt ng resource 2</a> 
+<a href="https://jiliparty1.xyz/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
+<a href="https://jiliparty1.xyz/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://jiliparty1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://jiliparty1.xyz/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
+<a href="https://jiliparty1.xyz/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://jiliparty1.xyz/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
+<a href="https://jiliparty1.xyz/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://jiliparty1.xyz/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
+<a href="https://jiliparty1.xyz/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
+<a href="https://jiliparty1.xyz/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
+<a href="https://jiliparty1.xyz/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
+<a href="https://jiliparty1.xyz/understanding-ott-platforms-where-new-shows-and-movies-premi/">understanding ott platforms where new shows and movies premi</a> 
+<a href="https://jiliparty1.xyz/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
 <a href="https://jiliparty1.xyz/what-a-blockchain-actually-is-and-how-it-works/">what a blockchain actually is and how it works</a> 
 <a href="https://jiliparty1.xyz/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
 <a href="https://jiliparty1.xyz/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
@@ -784,21 +802,3 @@
 <a href="https://landscape-paintings.net/how-to-stay-organized-in-the-digital-age-top-apps-and-strate/">how to stay organized in the digital age top apps and strate</a> 
 <a href="https://landscape-paintings.net/how-to-streamline-your-digital-life-top-apps-for-productivit/">how to streamline your digital life top apps for productivit</a> 
 <a href="https://landscape-paintings.net/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://landscape-paintings.net/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://landscape-paintings.net/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
-<a href="https://landscape-paintings.net/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
-<a href="https://landscape-paintings.net/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://landscape-paintings.net/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://landscape-paintings.net/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://landscape-paintings.net/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
-<a href="https://landscape-paintings.net/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
-<a href="https://landscape-paintings.net/le-turf-pour-d-butants-lire-et-suivre-les-courses-hippiques/">le turf pour d butants lire et suivre les courses hippiques</a> 
-<a href="https://landscape-paintings.net/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
-<a href="https://landscape-paintings.net/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://landscape-paintings.net/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://landscape-paintings.net/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://landscape-paintings.net/master-event-planning-creative-ideas-and-practical-tips-for/">master event planning creative ideas and practical tips for</a> 
-<a href="https://landscape-paintings.net/mastering-business-finance-productivity-a-comprehensive-guid-105-7/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://landscape-paintings.net/mastering-business-growth-personal-finance-and-marketing-str/">mastering business growth personal finance and marketing str</a> 
-<a href="https://landscape-paintings.net/mastering-crypto-personal-finance-and-business-a-comprehensi-105-5/">mastering crypto personal finance and business a comprehensi</a> 
-<a href="https://landscape-paintings.net/mastering-cryptocurrency-bitcoin-and-blockchain-comprehensiv-105-5/">mastering cryptocurrency bitcoin and blockchain comprehensiv</a> 

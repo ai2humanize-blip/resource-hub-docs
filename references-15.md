@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cbdpuffbars.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://cbdpuffbars.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://cbdpuffbars.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
 <a href="https://cbdpuffbars.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://cbdpuffbars.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
 <a href="https://cbdpuffbars.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://cmdslot.xyz/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
 <a href="https://cmdslot.xyz/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
 <a href="https://cmdslot.xyz/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
-<a href="https://cmdslot.xyz/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
-<a href="https://cmdslot.xyz/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
-<a href="https://cmdslot.xyz/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
