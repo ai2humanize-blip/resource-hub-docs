@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.diowebhost.com/98086948/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
+<a href="https://1mother.diowebhost.com/98086950/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
+<a href="https://1mother.fireblogz.com/74491795/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
 <a href="https://1mother.fireblogz.com/74491800/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
 <a href="https://1mother.fireblogz.com/74491803/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
 <a href="https://1mother.fireblogz.com/74491807/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-75-4/">a beginner s guide to understanding and starting with crypto</a> 
 <a href="https://agriculture-lawyer.com/a-closer-look-at-a-simple-framework-for-researching-any-topic-online/">a closer look at a simple framework for researching any topi</a> 
 <a href="https://agriculture-lawyer.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://agriculture-lawyer.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/why-it-is-worth-following-vaeyc-org">why it is worth following vaeyc org</a> 
+<a href="https://alcobar85.xyz/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://alcobar85.xyz/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://alcobar85.xyz/a-closer-look-at-how-to-build-a-personal-reading-list.htm">a closer look at how to build a personal reading list</a> 
+<a href="https://alcobar85.xyz/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://alcobar85.xyz/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic.htm">a closer look at how to find balanced coverage of a topic</a> 
 <a href="https://alcobar85.xyz/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://alcobar85.xyz/a-closer-look-at-making-sense-of-complex-topics-online.htm">a closer look at making sense of complex topics online</a> 
 <a href="https://alcobar85.xyz/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
@@ -316,6 +322,7 @@
 <a href="https://algiamedical.com/discover-how-to-plan-unforgettable-events-with-these-creativ/">discover how to plan unforgettable events with these creativ</a> 
 <a href="https://algiamedical.com/discover-the-best-ai-art-prompt-generators-guides-reviews-ho-77-8/">discover the best ai art prompt generators guides reviews ho</a> 
 <a href="https://algiamedical.com/discover-the-best-digital-tools-for-finding-unique-and-meani-77-6/">discover the best digital tools for finding unique and meani</a> 
+<a href="https://algiamedical.com/discover-the-best-digital-tools-online-resources-for-enhance-77-6/">discover the best digital tools online resources for enhance</a> 
 <a href="https://algiamedical.com/discover-the-best-digital-tools-online-resources-for-every-n-77-1/">discover the best digital tools online resources for every n</a> 
 <a href="https://algiamedical.com/discover-the-best-digital-tools-online-resources-for-every-n-77-6-2/">discover the best digital tools online resources for every n</a> 
 <a href="https://algiamedical.com/discover-the-best-digital-tools-online-resources-for-every-n-77-6/">discover the best digital tools online resources for every n</a> 
@@ -332,6 +339,7 @@
 <a href="https://algiamedical.com/discovering-the-joys-of-urban-gardening-a-beginner-s-guide/">discovering the joys of urban gardening a beginner s guide</a> 
 <a href="https://algiamedical.com/embracing-an-organic-lifestyle-health-and-wellness-tips-for/">embracing an organic lifestyle health and wellness tips for</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-a-comprehensive-gui-77-1/">essential digital tools online resources a comprehensive gui</a> 
+<a href="https://algiamedical.com/essential-digital-tools-online-resources-a-comprehensive-rou-77-6/">essential digital tools online resources a comprehensive rou</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-cryptocurrency-77-6/">essential digital tools online resources for cryptocurrency </a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-everyday-use-77-6/">essential digital tools online resources for everyday use 77</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-islamic-practic-77-6/">essential digital tools online resources for islamic practic</a> 
@@ -341,6 +349,7 @@
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-3/">essential digital tools online resources for modern living 7</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-4/">essential digital tools online resources for modern living 7</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-5/">essential digital tools online resources for modern living 7</a> 
+<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-6/">essential digital tools online resources for modern living 7</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6/">essential digital tools online resources for modern living 7</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-needs-77-1-2/">essential digital tools online resources for modern needs 77</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-needs-77-1/">essential digital tools online resources for modern needs 77</a> 
@@ -793,12 +802,3 @@
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply-2/">understanding digital literacy explained simply 2</a> 
-<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://algiamedical.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://algiamedical.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://algiamedical.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://algiamedical.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 

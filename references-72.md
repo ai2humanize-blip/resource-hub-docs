@@ -2,6 +2,36 @@
 
 [index](README.md) · [next ›](references-73.md) · [‹ prev](references-71.md)
 
+<a href="https://venusskin.net/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://venusskin.net/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://venusskin.net/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://venusskin.net/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://venusskin.net/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://venusskin.net/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://venusskin.net/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://venusskin.net/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://venusskin.net/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
+<a href="https://venusskin.net/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://venusskin.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://venusskin.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://venusskin.net/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
+<a href="https://venusskin.net/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://venusskin.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://venusskin.net/a-practical-guide-to-choosing-everyday-ai-tools/">a practical guide to choosing everyday ai tools</a> 
+<a href="https://venusskin.net/a-practical-guide-to-following-new-movie-and-series-releases/">a practical guide to following new movie and series releases</a> 
+<a href="https://venusskin.net/a-practical-guide-to-reading-cryptocurrency-price-informatio/">a practical guide to reading cryptocurrency price informatio</a> 
+<a href="https://venusskin.net/a-practical-guide-to-reading-football-league-tables-and-stan/">a practical guide to reading football league tables and stan</a> 
+<a href="https://venusskin.net/a-practical-guide-to-seasonal-style-transitions/">a practical guide to seasonal style transitions</a> 
+<a href="https://venusskin.net/a-practical-guide-to-understanding-off-page-seo/">a practical guide to understanding off page seo</a> 
+<a href="https://venusskin.net/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://venusskin.net/a-practical-introduction-to-travel-insurance-for-internation/">a practical introduction to travel insurance for internation</a> 
+<a href="https://venusskin.net/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://venusskin.net/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://venusskin.net/a-simple-framework-for-researching-any-topic-online-the-basics/">a simple framework for researching any topic online the basi</a> 
+<a href="https://venusskin.net/air-quality-in-bengaluru-how-it-compares-and-what-to-watch/">air quality in bengaluru how it compares and what to watch</a> 
+<a href="https://venusskin.net/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
+<a href="https://venusskin.net/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
+<a href="https://venusskin.net/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://venusskin.net/boost-your-business-and-personal-finances-with-strategic-mar/">boost your business and personal finances with strategic mar</a> 
 <a href="https://venusskin.net/boost-your-productivity-top-time-management-techniques-for-2/">boost your productivity top time management techniques for 2</a> 
 <a href="https://venusskin.net/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
@@ -772,33 +802,3 @@
 <a href="https://wpeso.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://wpeso.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://wpeso.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://wpeso.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://wpeso.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://wpeso.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://wpeso.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://wpeso.xyz/hello-world/">hello world</a> 
-<a href="https://wpeso.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://wpeso.xyz/how-to-find-trustworthy-websites-and-tools-online-2/">how to find trustworthy websites and tools online 2</a> 
-<a href="https://wpeso.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://wpeso.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://wpeso.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://wpeso.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://wpeso.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://wpeso.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://write.as/contentisblocked">contentisblocked</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=1">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=2">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=3">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=4">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=5">amother</a> 
-<a href="https://www.diigo.com/rss/user/amother?page_num=6">amother</a> 
-<a href="https://www.easycounter.com/report/2forksevents.com">2forksevents.com</a> 
-<a href="https://www.easycounter.com/report/360sportnews.com">360sportnews.com</a> 
-<a href="https://www.google.com/maps/d/view?mid=1gMgxW-dnuRIIbLNnuQ52AKvS7lMd8NE">view</a> 
-<a href="https://www.instapaper.com/p/curatedreads1m">curatedreads1m</a> 
-<a href="https://www.statscrop.com/www/2forksevents.com">2forksevents.com</a> 
-<a href="https://www.statscrop.com/www/360sportnews.com">360sportnews.com</a> 
-<a href="https://www.statscrop.com/www/aavotcom.cc">aavotcom.cc</a> 
-<a href="https://www.statscrop.com/www/abcyapi.net">abcyapi.net</a> 
-<a href="https://www.statscrop.com/www/advantagebizmarketing.com">advantagebizmarketing.com</a> 
-<a href="https://www.statscrop.com/www/analyzingmarket.com">analyzingmarket.com</a> 

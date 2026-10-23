@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/cryptocardscout.html">cryptocardscout</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/cryptocirclex.html">cryptocirclex</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/cryptocomman-com.html">cryptocomman com</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/cryptocurrencyminers.html">cryptocurrencyminers</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/cryptonews-co-bz.html">cryptonews co bz</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/cryptopronetworkcom.html">cryptopronetworkcom</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/currencynews.html">currencynews</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/daily-results-today.html">daily results today</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/dailywatchreports-revolutionizing-news-consumption-in-india.html">dailywatchreports revolutionizing news consumption in india</a> 
@@ -796,9 +802,3 @@
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/why-it-is-worth-following-marketcapitalize-com">why it is worth following marketcapitalize com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/why-it-is-worth-following-techiadd-com">why it is worth following techiadd com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/why-it-is-worth-following-tnifc-ecom-com">why it is worth following tnifc ecom com</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/why-it-is-worth-following-vaeyc-org">why it is worth following vaeyc org</a> 
-<a href="https://alcobar85.xyz/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-how-to-build-a-personal-reading-list.htm">a closer look at how to build a personal reading list</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic.htm">a closer look at how to find balanced coverage of a topic</a> 

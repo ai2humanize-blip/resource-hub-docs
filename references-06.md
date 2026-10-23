@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
+<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply-2/">understanding digital literacy explained simply 2</a> 
+<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://algiamedical.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
+<a href="https://algiamedical.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
+<a href="https://algiamedical.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
+<a href="https://algiamedical.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid-2/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid-3/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
@@ -793,12 +802,3 @@
 <a href="https://app.zentrack.net/navigating-business-finance-and-productivity-in-the-crypto-a-25-2/">navigating business finance and productivity in the crypto a</a> 
 <a href="https://app.zentrack.net/navigating-business-finance-and-productivity-in-the-digital-25-2/">navigating business finance and productivity in the digital </a> 
 <a href="https://app.zentrack.net/navigating-business-finance-and-productivity-in-today-s-dyna-25-2/">navigating business finance and productivity in today s dyna</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-gui-25-2-2/">navigating business finance productivity a comprehensive gui</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-gui-25-2-3/">navigating business finance productivity a comprehensive gui</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-gui-25-2-4/">navigating business finance productivity a comprehensive gui</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-gui-25-2/">navigating business finance productivity a comprehensive gui</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-rou-25-2-2/">navigating business finance productivity a comprehensive rou</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-rou-25-2-3/">navigating business finance productivity a comprehensive rou</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-rou-25-2-4/">navigating business finance productivity a comprehensive rou</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-rou-25-2-5/">navigating business finance productivity a comprehensive rou</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-a-comprehensive-rou-25-2/">navigating business finance productivity a comprehensive rou</a> 
