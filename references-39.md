@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://jade-beijinho-3b8585.netlify.app/getting-how-to-compare-sources-on-the-same-story-right.html">getting how to compare sources on the same story right</a> 
+<a href="https://jade-frangipane-89c0aa.netlify.app/getting-how-to-tell-if-a-website-is-trustworthy-right.html">getting how to tell if a website is trustworthy right</a> 
+<a href="https://jade-kleicha-7f0232.netlify.app/uk-gambling-age-explained.html">uk gambling age explained</a> 
+<a href="https://jade-longma-010dbd.netlify.app/bitcoincasinosnews.html">bitcoincasinosnews</a> 
+<a href="https://jade-tapioca-2356ad.netlify.app/how-ai-powered-apps-are-revolutionizing-daily-life.html">how ai powered apps are revolutionizing daily life</a> 
+<a href="https://jazzy-kataifi-a35f21.netlify.app/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://jiliok1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://jiliok1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://jiliok1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://jiliok1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://jiliok1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://jiliok1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://jiliok1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://jiliok1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://jiliok1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://jiliok1.xyz/hello-world/">hello world</a> 
+<a href="https://jiliok1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://jiliok1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://jiliok1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://jiliok1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://jiliok1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://jiliok1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://jiliok1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://jiliparty1.xyz/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
@@ -781,24 +802,3 @@
 <a href="https://landscape-paintings.net/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
 <a href="https://landscape-paintings.net/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
 <a href="https://landscape-paintings.net/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
-<a href="https://landscape-paintings.net/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://landscape-paintings.net/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://landscape-paintings.net/best-free-android-apps/">best free android apps</a> 
-<a href="https://landscape-paintings.net/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://landscape-paintings.net/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://landscape-paintings.net/boosting-your-business-and-personal-finance-with-strategic-m/">boosting your business and personal finance with strategic m</a> 
-<a href="https://landscape-paintings.net/breaking-down-the-latest-cybersecurity-trends-expert-analysi/">breaking down the latest cybersecurity trends expert analysi</a> 
-<a href="https://landscape-paintings.net/breaking-down-the-latest-sports-trends-and-analytics-for-inf/">breaking down the latest sports trends and analytics for inf</a> 
-<a href="https://landscape-paintings.net/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://landscape-paintings.net/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://landscape-paintings.net/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://landscape-paintings.net/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
-<a href="https://landscape-paintings.net/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://landscape-paintings.net/business-finance-productivity-a-comprehensive-guide-for-succ-105-7/">business finance productivity a comprehensive guide for succ</a> 
-<a href="https://landscape-paintings.net/business-finance-productivity-navigating-online-casinos-and-105-7/">business finance productivity navigating online casinos and </a> 
-<a href="https://landscape-paintings.net/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://landscape-paintings.net/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
-<a href="https://landscape-paintings.net/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://landscape-paintings.net/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
-<a href="https://landscape-paintings.net/comprehensive-guides-reviews-and-how-tos-navigating-legal-an-105-10/">comprehensive guides reviews and how tos navigating legal an</a> 
-<a href="https://landscape-paintings.net/comprendre-les-paris-hippiques-les-bases/">comprendre les paris hippiques les bases</a> 

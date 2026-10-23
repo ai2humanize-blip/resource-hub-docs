@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/currencynews.html">currencynews</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/daily-results-today.html">daily results today</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/dailywatchreports-revolutionizing-news-consumption-in-india.html">dailywatchreports revolutionizing news consumption in india</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/dailywatchreports-transforming-news-consumption-in-india.html">dailywatchreports transforming news consumption in india</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/debt-consolidation-calculator.html">debt consolidation calculator</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/debtfore.html">debtfore</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/demon-slayer-watch-order-every-season-and-film.html">demon slayer watch order every season and film</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-43-4.html">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-43-4.html">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
@@ -796,9 +802,3 @@
 <a href="https://alcobar85.xyz/a-closer-look-at-how-to-build-a-personal-reading-list.htm">a closer look at how to build a personal reading list</a> 
 <a href="https://alcobar85.xyz/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
 <a href="https://alcobar85.xyz/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic.htm">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-making-sense-of-complex-topics-online.htm">a closer look at making sense of complex topics online</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
-<a href="https://alcobar85.xyz/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 

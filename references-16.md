@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cmdslot.xyz/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://cmdslot.xyz/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cmdslot.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://cmdslot.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
+<a href="https://cmdslot.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://cmdslot.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://cmdslot.xyz/how-small-publishers-keep-advertising-transparent/">how small publishers keep advertising transparent</a> 
+<a href="https://cmdslot.xyz/how-surnames-get-their-meanings-a-practical-guide/">how surnames get their meanings a practical guide</a> 
+<a href="https://cmdslot.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cmdslot.xyz/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://cmdslot.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
+<a href="https://cmdslot.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
+<a href="https://cmdslot.xyz/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
+<a href="https://cmdslot.xyz/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
+<a href="https://cmdslot.xyz/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
+<a href="https://cmdslot.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://cmdslot.xyz/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
+<a href="https://cmdslot.xyz/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
 <a href="https://cmdslot.xyz/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
 <a href="https://cmdslot.xyz/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
 <a href="https://cmdslot.xyz/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
@@ -781,24 +802,3 @@
 <a href="https://crediblenews24.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://crediblenews24.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://crediblenews24.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://crediblenews24.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://crediblenews24.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://crediblenews24.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://crediblenews24.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-and-why-it-matters/">a simple framework for researching any topic online and why </a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://crediblenews24.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://crediblenews24.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://crediblenews24.com/air-quality-in-kolkata-winter-pollution-and-health-context/">air quality in kolkata winter pollution and health context</a> 
-<a href="https://crediblenews24.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://crediblenews24.com/apply-for-a-driver-s-license-in-nigeria/">apply for a driver s license in nigeria</a> 
-<a href="https://crediblenews24.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://crediblenews24.com/baginda168-uk/">baginda168 uk</a> 
-<a href="https://crediblenews24.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://crediblenews24.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://crediblenews24.com/boost-your-business-with-productivity-finance-tips-and-top-w-86-6/">boost your business with productivity finance tips and top w</a> 
-<a href="https://crediblenews24.com/boosting-business-finance-and-productivity-expert-tips-and-s-86-6/">boosting business finance and productivity expert tips and s</a> 
