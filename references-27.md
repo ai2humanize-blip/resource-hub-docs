@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://fabbusinesssolutions.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://fabbusinesssolutions.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-choosing-everyday-ai-tools/">a practical guide to choosing everyday ai tools</a> 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-following-new-movie-and-series-releases/">a practical guide to following new movie and series releases</a> 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-reading-cryptocurrency-price-informatio/">a practical guide to reading cryptocurrency price informatio</a> 
 <a href="https://fabbusinesssolutions.com/a-practical-guide-to-reading-football-league-tables-and-stan/">a practical guide to reading football league tables and stan</a> 
 <a href="https://fabbusinesssolutions.com/a-practical-guide-to-seasonal-style-transitions/">a practical guide to seasonal style transitions</a> 
 <a href="https://fabbusinesssolutions.com/a-practical-guide-to-understanding-off-page-seo/">a practical guide to understanding off page seo</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-2/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-20/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-21/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-22/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-23/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-24/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-25/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-26/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-and-productivity-a-comprehensive-27-5-27/">mastering business finance and productivity a comprehensive </a> 

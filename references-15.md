@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://cbdpuffbars.com/the-practical-guide-to-web-tech-content-navigating-reports-p-84-5/">the practical guide to web tech content navigating reports p</a> 
+<a href="https://cbdpuffbars.com/the-rise-of-ai-generated-news-how-it-s-changing-journalism/">the rise of ai generated news how it s changing journalism</a> 
+<a href="https://cbdpuffbars.com/the-rise-of-ai-powered-apps-transforming-our-digital-lives/">the rise of ai powered apps transforming our digital lives</a> 
 <a href="https://cbdpuffbars.com/the-rise-of-data-driven-sports-analysis-transforming-how-we/">the rise of data driven sports analysis transforming how we</a> 
 <a href="https://cbdpuffbars.com/the-rise-of-remote-work-how-to-thrive-in-the-new-digital-nom/">the rise of remote work how to thrive in the new digital nom</a> 
 <a href="https://cbdpuffbars.com/the-ultimate-guide-to-mastering-time-management-skills-for-b/">the ultimate guide to mastering time management skills for b</a> 
@@ -799,6 +802,3 @@
 <a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
 <a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
 <a href="https://cmdslot.xyz/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
-<a href="https://cmdslot.xyz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://cmdslot.xyz/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
-<a href="https://cmdslot.xyz/tlt-ng-resource-2/">tlt ng resource 2</a> 

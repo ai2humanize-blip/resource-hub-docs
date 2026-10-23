@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cmdslot.xyz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
+<a href="https://cmdslot.xyz/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://cmdslot.xyz/tlt-ng-resource-2/">tlt ng resource 2</a> 
 <a href="https://cmdslot.xyz/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
 <a href="https://cmdslot.xyz/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
 <a href="https://cmdslot.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/discover-essential-digital-tools-online-resources-for-every-86-2/">discover essential digital tools online resources for every </a> 
 <a href="https://crediblenews24.com/discover-the-art-of-home-coffee-brewing-a-beginner-s-guide/">discover the art of home coffee brewing a beginner s guide</a> 
 <a href="https://crediblenews24.com/discover-the-best-ai-art-prompt-generators-online-creative-t-86-7/">discover the best ai art prompt generators online creative t</a> 
-<a href="https://crediblenews24.com/discover-the-best-browser-games-digital-tools-for-endless-en-86-2/">discover the best browser games digital tools for endless en</a> 
-<a href="https://crediblenews24.com/discover-the-best-digital-tools-online-resources-for-success-86-2/">discover the best digital tools online resources for success</a> 
-<a href="https://crediblenews24.com/discover-the-best-independent-digital-tools-online-resources-86-2/">discover the best independent digital tools online resources</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvjc4cs2n">3msjxvjc4cs2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvpm22u26">3msjxvpm22u26</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxvvvz3h2y">3msjxvvvz3h2y</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxw4aenb2s">3msjxw4aenb2s</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwcjsvv2z">3msjxwcjsvv2z</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwivsam2m">3msjxwivsam2m</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
 <a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl-2/">the difference between skimming and deep reading online expl</a> 
 <a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl-3/">the difference between skimming and deep reading online expl</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
-<a href="https://captainjackinterview.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
