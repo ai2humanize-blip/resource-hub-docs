@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://forotesis.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://forotesis.com/a-closer-look-at-a-simple-framework-for-researching-any-topic-online/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://forotesis.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://forotesis.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://forotesis.com/a-guide-to-names-that-mean-moon-star-and-sun-explained-simpl/">a guide to names that mean moon star and sun explained simpl</a> 
+<a href="https://forotesis.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://forotesis.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://forotesis.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://forotesis.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
 <a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
@@ -781,24 +802,3 @@
 <a href="https://getolive.org/mastering-your-digital-life-top-apps-for-productivity-and-or/">mastering your digital life top apps for productivity and or</a> 
 <a href="https://getolive.org/maximizing-business-finance-and-productivity-with-thedigital-97-10/">maximizing business finance and productivity with thedigital</a> 
 <a href="https://getolive.org/maximizing-your-business-growth-a-deep-dive-into-marketing-s-97-9/">maximizing your business growth a deep dive into marketing s</a> 
-<a href="https://getolive.org/maximizing-your-online-experience-a-comprehensive-guide-to-d-97-6/">maximizing your online experience a comprehensive guide to d</a> 
-<a href="https://getolive.org/maximizing-your-online-experience-essential-digital-tools-re-97-6/">maximizing your online experience essential digital tools re</a> 
-<a href="https://getolive.org/maximizing-your-seo-strategy-the-power-of-long-tail-keywords/">maximizing your seo strategy the power of long tail keywords</a> 
-<a href="https://getolive.org/navigating-career-choices-how-to-find-your-ideal-job-and-thr/">navigating career choices how to find your ideal job and thr</a> 
-<a href="https://getolive.org/navigating-modern-careers-strategies-for-growth-success-and-97-9/">navigating modern careers strategies for growth success and </a> 
-<a href="https://getolive.org/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://getolive.org/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a-3/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://getolive.org/navigating-the-cryptocurrency-revolution-bitcoin-blockchain/">navigating the cryptocurrency revolution bitcoin blockchain</a> 
-<a href="https://getolive.org/navigating-the-digital-age-how-to-choose-the-right-apps-for/">navigating the digital age how to choose the right apps for</a> 
-<a href="https://getolive.org/navigating-the-digital-landscape-essential-tools-online-reso-97-6/">navigating the digital landscape essential tools online reso</a> 
-<a href="https://getolive.org/navigating-the-digital-landscape-web-tech-content-insights-f-97-7/">navigating the digital landscape web tech content insights f</a> 
-<a href="https://getolive.org/navigating-the-digital-news-landscape-ai-trends-and-insights-97-6/">navigating the digital news landscape ai trends and insights</a> 
-<a href="https://getolive.org/navigating-the-digital-world-a-comprehensive-guide-to-web-te-97-7/">navigating the digital world a comprehensive guide to web te</a> 
-<a href="https://getolive.org/navigating-the-digital-world-essential-tools-and-strategies-97-6/">navigating the digital world essential tools and strategies </a> 
-<a href="https://getolive.org/navigating-the-digital-world-how-ai-powered-apps-are-transfo-97-9/">navigating the digital world how ai powered apps are transfo</a> 
-<a href="https://getolive.org/navigating-the-digital-world-tools-and-tips-for-smart-online-97-6/">navigating the digital world tools and tips for smart online</a> 
-<a href="https://getolive.org/navigating-the-future-bitcoin-blockchain-and-the-latest-cryp/">navigating the future bitcoin blockchain and the latest cryp</a> 
-<a href="https://getolive.org/navigating-the-future-how-ai-driven-apps-are-transforming-ou/">navigating the future how ai driven apps are transforming ou</a> 
-<a href="https://getolive.org/navigating-the-future-how-bitcoin-and-blockchain-are-transfo/">navigating the future how bitcoin and blockchain are transfo</a> 
-<a href="https://getolive.org/navigating-the-future-of-ai-current-developments-and-their-i/">navigating the future of ai current developments and their i</a> 
-<a href="https://getolive.org/navigating-the-future-of-digital-currencies-key-trends-and-d/">navigating the future of digital currencies key trends and d</a> 
