@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-46.md) · [‹ prev](references-44.md)
 
+<a href="https://livejournal.micro.blog/2026/09/04/071541.html">071541</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071621.html">071621</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071743.html">071743</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/071914.html">071914</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072047.html">072047</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072130.html">072130</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072214.html">072214</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072421.html">072421</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072719.html">072719</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/072835.html">072835</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073338.html">073338</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073425.html">073425</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073753.html">073753</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073835.html">073835</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073917.html">073917</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/073959.html">073959</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/074041.html">074041</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/074245.html">074245</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/074325.html">074325</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/074411.html">074411</a> 
+<a href="https://livejournal.micro.blog/2026/09/04/074454.html">074454</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/074536.html">074536</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/074617.html">074617</a> 
 <a href="https://livejournal.micro.blog/2026/09/04/074742.html">074742</a> 
@@ -781,24 +802,3 @@
 <a href="https://livejournal.micro.blog/2026/10/22/what-to-know-about-recognizing.html">what to know about recognizing</a> 
 <a href="https://livejournal.micro.blog/2026/10/22/what-to-know-about-why.html">what to know about why</a> 
 <a href="https://livejournal.micro.blog/2026/10/22/what-to-look-for-in.html">what to look for in</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/why-niche-blogs-still-matter.html">why niche blogs still matter</a> 
-<a href="https://llmseoservices.org/a-beginner-s-guide-to-bitcoin-gambling-what-you-need-to-know-32-10/">a beginner s guide to bitcoin gambling what you need to know</a> 
-<a href="https://llmseoservices.org/a-beginner-s-guide-to-navigating-the-world-of-bitcoin-busine-32-10/">a beginner s guide to navigating the world of bitcoin busine</a> 
-<a href="https://llmseoservices.org/a-beginner-s-guide-to-travel-esims-and-staying-connected-abr/">a beginner s guide to travel esims and staying connected abr</a> 
-<a href="https://llmseoservices.org/a-beginner-s-guide-to-understanding-and-starting-with-crypto-32-9/">a beginner s guide to understanding and starting with crypto</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://llmseoservices.org/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://llmseoservices.org/a-complete-guide-to-choosing-a-crypto-card-in-2026/">a complete guide to choosing a crypto card in 2026</a> 
-<a href="https://llmseoservices.org/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 

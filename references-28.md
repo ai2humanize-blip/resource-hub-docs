@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://fabulouspoetry.it.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://fabulouspoetry.it.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://fabulouspoetry.it.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
+<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters-2/">how to get the most out of online guides and why it matters </a> 
+<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
+<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-explained-simply-2/">how to get the most out of online guides explained simply 2</a> 
+<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://fabulouspoetry.it.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
+<a href="https://fabulouspoetry.it.com/how-to-leverage-personal-finance-strategies-for-business-gro/">how to leverage personal finance strategies for business gro</a> 
+<a href="https://fabulouspoetry.it.com/how-to-navigate-the-digital-world-essential-apps-and-tools-f/">how to navigate the digital world essential apps and tools f</a> 
+<a href="https://fabulouspoetry.it.com/how-to-organize-the-information-you-find-online-a-practical-2/">how to organize the information you find online a practical </a> 
+<a href="https://fabulouspoetry.it.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://fabulouspoetry.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical-2/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://fabulouspoetry.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://fabulouspoetry.it.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://fabulouspoetry.it.com/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://fabulouspoetry.it.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://fabulouspoetry.it.com/how-to-safely-clean-your-phone-speaker/">how to safely clean your phone speaker</a> 
+<a href="https://fabulouspoetry.it.com/how-to-safely-follow-an-app-that-s-still-in-development-2/">how to safely follow an app that s still in development 2</a> 
+<a href="https://fabulouspoetry.it.com/how-to-safely-follow-an-app-that-s-still-in-development/">how to safely follow an app that s still in development</a> 
+<a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
 <a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
 <a href="https://fabulouspoetry.it.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
 <a href="https://fabulouspoetry.it.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
@@ -781,24 +802,3 @@
 <a href="https://fascinating-creponne-481514.netlify.app/revolutionizing-daily-life-how-apps-are-transforming-the-dig.html">revolutionizing daily life how apps are transforming the dig</a> 
 <a href="https://fascinating-profiterole-b429bd.netlify.app/what-to-know-about-how-to-build-a-personal-reading-list.html">what to know about how to build a personal reading list</a> 
 <a href="https://fascinating-puppy-27a753.netlify.app/teckjb.html">teckjb</a> 
-<a href="https://fascinating-taiyaki-045e3e.netlify.app/footyntel.html">footyntel</a> 
-<a href="https://fastidious-capybara-2dbd70.netlify.app/criptano.html">criptano</a> 
-<a href="https://fastidious-cobbler-89d6a8.netlify.app/festivals.html">festivals</a> 
-<a href="https://fastidious-florentine-46edab.netlify.app/transform-your-life-with-these-essential-organic-living-and-.html">transform your life with these essential organic living and</a> 
-<a href="https://fastidious-marshmallow-87aa91.netlify.app/ivanaturf.html">ivanaturf</a> 
-<a href="https://fb777vip.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://fb777vip.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://fb777vip.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://fb777vip.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://fb777vip.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://fb777vip.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://fb777vip.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://fb777vip.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://fb777vip.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://fb777vip.xyz/hello-world/">hello world</a> 
-<a href="https://fb777vip.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://fb777vip.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://fb777vip.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://fb777vip.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://fb777vip.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://fb777vip.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 

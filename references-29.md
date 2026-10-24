@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://fascinating-taiyaki-045e3e.netlify.app/footyntel.html">footyntel</a> 
+<a href="https://fastidious-capybara-2dbd70.netlify.app/criptano.html">criptano</a> 
+<a href="https://fastidious-cobbler-89d6a8.netlify.app/festivals.html">festivals</a> 
+<a href="https://fastidious-florentine-46edab.netlify.app/transform-your-life-with-these-essential-organic-living-and-.html">transform your life with these essential organic living and</a> 
+<a href="https://fastidious-marshmallow-87aa91.netlify.app/ivanaturf.html">ivanaturf</a> 
+<a href="https://fb777vip.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://fb777vip.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://fb777vip.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://fb777vip.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://fb777vip.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://fb777vip.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://fb777vip.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://fb777vip.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://fb777vip.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://fb777vip.xyz/hello-world/">hello world</a> 
+<a href="https://fb777vip.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://fb777vip.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://fb777vip.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://fb777vip.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://fb777vip.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://fb777vip.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://fb777vip.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://feetfinder.uk.net/a-beginner-s-guide-to-understanding-ai-image-generation/">a beginner s guide to understanding ai image generation</a> 
 <a href="https://feetfinder.uk.net/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
@@ -781,24 +802,3 @@
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6-10/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6-2/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6-3/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6-4/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6-5/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6-6/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6-7/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6-8/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6-9/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-28-6/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-success-28-6/">mastering web tech content a comprehensive guide for success</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-dig-28-6-2/">mastering web tech content a comprehensive guide for the dig</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-dig-28-6/">mastering web tech content a comprehensive guide for the dig</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-10/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-11/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-12/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-13/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-14/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-2/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-3/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-4/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-5/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-6/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-7/">mastering web tech content a comprehensive guide for the mod</a> 
