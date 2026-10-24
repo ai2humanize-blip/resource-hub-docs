@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/carmannews.html">carmannews</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/ceh-vs-oscp-vs-pentest-plus-ethical-hacking.html">ceh vs oscp vs pentest plus ethical hacking</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/chandlerweekly.html">chandlerweekly</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/chatgpt-vs-claude-vs-gemini-for-learning.html">chatgpt vs claude vs gemini for learning</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/check-the-nysc-senate-list.html">check the nysc senate list</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/choghadiya.html">choghadiya</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/choosing-the-right-virtual-seo-expert-in-2026-a-comprehensiv-42-4.html">choosing the right virtual seo expert in 2026 a comprehensiv</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/choosing-the-right-virtual-seo-expert-in-2026-essential-digi-43-5.html">choosing the right virtual seo expert in 2026 essential digi</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/cibil-score-free-check.html">cibil score free check</a> 
@@ -796,9 +802,3 @@
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-bitjackpot-de-com">recommended reading bitjackpot de com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-coinculb-com">recommended reading coinculb com</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-coinpric-com">recommended reading coinpric com</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-cryptocurrencyminers-com">recommended reading cryptocurrencyminers com</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-currencynews-co">recommended reading currencynews co</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-foxperiodical-com">recommended reading foxperiodical com</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-illicitlabel-com-underground-music-authority">recommended reading illicitlabel com underground music autho</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-micannamarketing">recommended reading micannamarketing</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/recommended-reading-serp-insight-link-insertion">recommended reading serp insight link insertion</a> 
