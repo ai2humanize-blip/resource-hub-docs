@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide-2/">recognizing credible experts online a quick guide 2</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
+<a href="https://cplemaire.us.org/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
+<a href="https://cplemaire.us.org/sattaresultnow-com/">sattaresultnow com</a> 
+<a href="https://cplemaire.us.org/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
+<a href="https://cplemaire.us.org/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
+<a href="https://cplemaire.us.org/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
+<a href="https://cplemaire.us.org/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
+<a href="https://cplemaire.us.org/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
+<a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
+<a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cplemaire.us.org/the-font-world/">the font world</a> 
+<a href="https://cplemaire.us.org/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
+<a href="https://cplemaire.us.org/the-origins-and-meanings-of-common-idioms-what-to-know/">the origins and meanings of common idioms what to know</a> 
 <a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
 <a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://cplemaire.us.org/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://cup88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cup88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://cup88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cup88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://cup88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-write-for-fashion-blogs-guest-posting-guide.html">how to write for fashion blogs guest posting guide</a> 
-<a href="https://curated-resource-hub-na0i.bolt.host/">curated-resource-hub-na0i.bolt.host</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/curated-independent-resources">curated independent resources</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-asianpinay-3">resource asianpinay 3</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-baginda168-13">resource baginda168 13</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-beauty-tips-well-health-organic-8">resource beauty tips well health organic 8</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-chandlerweekly-com-4">resource chandlerweekly com 4</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-dailywatchreports-com-5">resource dailywatchreports com 5</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-getjobsnews-com-11">resource getjobsnews com 11</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-illicitlabel-com-underground-music-authority-14">resource illicitlabel com underground music authority 14</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-litigationlawyer-12">resource litigationlawyer 12</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-peopleonthenews-com-6">resource peopleonthenews com 6</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-reportspedia-com-7">resource reportspedia com 7</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-serp-insight-link-insertion-2">resource serp insight link insertion 2</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-stealthgram-10">resource stealthgram 10</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-thedigitalweekly-1">resource thedigitalweekly 1</a> 

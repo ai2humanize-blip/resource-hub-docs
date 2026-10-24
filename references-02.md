@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.blogzag.com/86232623/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
+<a href="https://1mother.codeberg.page/">1mother.codeberg.page</a> 
+<a href="https://1mother.dbblog.net/16227362/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
 <a href="https://1mother.dbblog.net/16227364/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
 <a href="https://1mother.dbblog.net/16227372/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
 <a href="https://1mother.dbblog.net/16227373/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://agenciainmobiliaria.xyz/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://agenciainmobiliaria.xyz/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
-<a href="https://agenciainmobiliaria.xyz/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://agenciainmobiliaria.xyz/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://agenciainmobiliaria.xyz/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
