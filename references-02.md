@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.digiblogbox.com/67246723/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
+<a href="https://1mother.digiblogbox.com/67246726/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
+<a href="https://1mother.digiblogbox.com/67246732/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
 <a href="https://1mother.digiblogbox.com/67246736/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
 <a href="https://1mother.diowebhost.com/98086938/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
 <a href="https://1mother.diowebhost.com/98086943/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
 <a href="https://agenciainmobiliaria.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://agenciainmobiliaria.xyz/why-a-toilet-keeps-running-and-the-simple-parts-behind-it/">why a toilet keeps running and the simple parts behind it</a> 
-<a href="https://agenciainmobiliaria.xyz/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://agriculture-lawyer.com/a-beginner-s-guide-to-navigating-the-world-of-bitcoin-busine-75-7/">a beginner s guide to navigating the world of bitcoin busine</a> 
-<a href="https://agriculture-lawyer.com/a-beginner-s-guide-to-understanding-ai-image-generation/">a beginner s guide to understanding ai image generation</a> 
