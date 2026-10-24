@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://casinonutanlicens.xyz/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://cbd-stone.com/10-organic-living-tips-for-a-healthier-mind-body-and-home/">10 organic living tips for a healthier mind body and home</a> 
+<a href="https://cbd-stone.com/5-innovative-apps-transforming-the-digital-world-in-2023/">5 innovative apps transforming the digital world in 2023</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-3/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini-2/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
 <a href="https://cbd-stone.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://cbd-stone.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://cbd-stone.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
@@ -781,24 +802,3 @@
 <a href="https://cbdpuffbars.com/how-to-organize-the-information-you-find-online-explained-simply/">how to organize the information you find online explained si</a> 
 <a href="https://cbdpuffbars.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
 <a href="https://cbdpuffbars.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://cbdpuffbars.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://cbdpuffbars.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui-2/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://cbdpuffbars.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://cbdpuffbars.com/how-to-safeguard-your-privacy-in-the-digital-age-essential-a/">how to safeguard your privacy in the digital age essential a</a> 
-<a href="https://cbdpuffbars.com/how-to-spot-low-quality-content-online-a-quick-guide-2/">how to spot low quality content online a quick guide 2</a> 
-<a href="https://cbdpuffbars.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://cbdpuffbars.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://cbdpuffbars.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://cbdpuffbars.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
-<a href="https://cbdpuffbars.com/how-to-stay-informed-the-best-news-aggregators-for-2023/">how to stay informed the best news aggregators for 2023</a> 
-<a href="https://cbdpuffbars.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cbdpuffbars.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters-2/">how to tell if a website is trustworthy and why it matters 2</a> 
-<a href="https://cbdpuffbars.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://cbdpuffbars.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://cbdpuffbars.com/how-travel-cards-help-you-avoid-foreign-transaction-fees/">how travel cards help you avoid foreign transaction fees</a> 
-<a href="https://cbdpuffbars.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
-<a href="https://cbdpuffbars.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
-<a href="https://cbdpuffbars.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://cbdpuffbars.com/independent-daily-reporting/">independent daily reporting</a> 
-<a href="https://cbdpuffbars.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://cbdpuffbars.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 

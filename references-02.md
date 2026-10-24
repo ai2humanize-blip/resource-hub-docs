@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.blogs-service.com/74017760/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
+<a href="https://1mother.blogs-service.com/74017765/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
+<a href="https://1mother.bloguetechno.com/a-reading-list-of-independent-news-and-finance-sites-79661156">a reading list of independent news and finance sites 7966115</a> 
 <a href="https://1mother.bloguetechno.com/independent-crypto-and-finance-publications-to-bookmark-79661161">independent crypto and finance publications to bookmark 7966</a> 
 <a href="https://1mother.bloguetechno.com/more-independent-websites-worth-exploring-79661154">more independent websites worth exploring 79661154</a> 
 <a href="https://1mother.bloguetechno.com/useful-independent-sites-tools-and-crypto-resources-79661164">useful independent sites tools and crypto resources 79661164</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/understanding-thefontworld-a-practical-guide/">understanding thefontworld a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/web-resources-tools-directory-60/">web resources tools directory 60</a> 
-<a href="https://agenciainmobiliaria.xyz/web-resources-tools-directory-61/">web resources tools directory 61</a> 

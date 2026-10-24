@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://cplemaire.us.org/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://cplemaire.us.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://cplemaire.us.org/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://cplemaire.us.org/how-to-evaluate-online-reviews-and-recommendations-the-basic-2/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://cplemaire.us.org/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://cplemaire.us.org/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://cplemaire.us.org/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://cplemaire.us.org/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
 <a href="https://cplemaire.us.org/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
 <a href="https://cplemaire.us.org/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
 <a href="https://cplemaire.us.org/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
@@ -781,24 +802,3 @@
 <a href="https://croginalcats.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://croginalcats.xyz/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
 <a href="https://croginalcats.xyz/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
-<a href="https://croginalcats.xyz/techvantor/">techvantor</a> 
-<a href="https://croginalcats.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://croginalcats.xyz/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
-<a href="https://croginalcats.xyz/the-value-of-slow-careful-reading-explained-simply-2/">the value of slow careful reading explained simply 2</a> 
-<a href="https://croginalcats.xyz/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
-<a href="https://croginalcats.xyz/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://croginalcats.xyz/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
-<a href="https://croginalcats.xyz/tlt-ng-resource-2/">tlt ng resource 2</a> 
-<a href="https://croginalcats.xyz/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
-<a href="https://croginalcats.xyz/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
-<a href="https://croginalcats.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://croginalcats.xyz/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
-<a href="https://croginalcats.xyz/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://croginalcats.xyz/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
-<a href="https://croginalcats.xyz/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://croginalcats.xyz/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
-<a href="https://croginalcats.xyz/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
-<a href="https://croginalcats.xyz/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
-<a href="https://croginalcats.xyz/understanding-ott-platforms-where-new-shows-and-movies-premi/">understanding ott platforms where new shows and movies premi</a> 
-<a href="https://croginalcats.xyz/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
-<a href="https://croginalcats.xyz/what-a-blockchain-actually-is-and-how-it-works/">what a blockchain actually is and how it works</a> 
