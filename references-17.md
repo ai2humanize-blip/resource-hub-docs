@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
+<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
+<a href="https://cplemaire.us.org/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
+<a href="https://cplemaire.us.org/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://cplemaire.us.org/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
+<a href="https://cplemaire.us.org/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
+<a href="https://cplemaire.us.org/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
+<a href="https://cplemaire.us.org/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
+<a href="https://cplemaire.us.org/licensing-and-player-protections-in-regulated-gambling-marke/">licensing and player protections in regulated gambling marke</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://cplemaire.us.org/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
+<a href="https://cplemaire.us.org/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
+<a href="https://cplemaire.us.org/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
+<a href="https://cplemaire.us.org/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
+<a href="https://cplemaire.us.org/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
+<a href="https://cplemaire.us.org/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
 <a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide-2/">recognizing credible experts online a quick guide 2</a> 
 <a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
 <a href="https://cplemaire.us.org/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
@@ -781,24 +802,3 @@
 <a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://croyale88.xyz/hello-world/">hello world</a> 
 <a href="https://croyale88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://croyale88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://croyale88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://croyale88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://croyale88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://croyale88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://croyale88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://cup88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://cup88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://cup88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://cup88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://cup88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://cup88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://cup88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://cup88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://cup88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://cup88.xyz/hello-world/">hello world</a> 
-<a href="https://cup88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cup88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://cup88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://cup88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://cup88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 

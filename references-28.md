@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://fabulouspoetry.it.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://fabulouspoetry.it.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
+<a href="https://fabulouspoetry.it.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://fabulouspoetry.it.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://fabulouspoetry.it.com/how-crypto-cards-work-and-how-to-compare-them/">how crypto cards work and how to compare them</a> 
+<a href="https://fabulouspoetry.it.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://fabulouspoetry.it.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://fabulouspoetry.it.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://fabulouspoetry.it.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://fabulouspoetry.it.com/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
+<a href="https://fabulouspoetry.it.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
+<a href="https://fabulouspoetry.it.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://fabulouspoetry.it.com/how-online-urdu-english-dictionaries-and-translation-tools-w-2/">how online urdu english dictionaries and translation tools w</a> 
+<a href="https://fabulouspoetry.it.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
+<a href="https://fabulouspoetry.it.com/how-optimistindia-transforms-marketing-strategies-with-data/">how optimistindia transforms marketing strategies with data</a> 
+<a href="https://fabulouspoetry.it.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
+<a href="https://fabulouspoetry.it.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
+<a href="https://fabulouspoetry.it.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://fabulouspoetry.it.com/how-to-avoid-misinformation-and-hype-the-basics-2/">how to avoid misinformation and hype the basics 2</a> 
+<a href="https://fabulouspoetry.it.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://fabulouspoetry.it.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
 <a href="https://fabulouspoetry.it.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
 <a href="https://fabulouspoetry.it.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
 <a href="https://fabulouspoetry.it.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
@@ -781,24 +802,3 @@
 <a href="https://fabulouspoetry.it.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
 <a href="https://fabulouspoetry.it.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
-<a href="https://fabulouspoetry.it.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://fabulouspoetry.it.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://fabulouspoetry.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
-<a href="https://fabulouspoetry.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://fabulouspoetry.it.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://fabulouspoetry.it.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://fabulouspoetry.it.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://fabulouspoetry.it.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://fabulouspoetry.it.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://fabulouspoetry.it.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 

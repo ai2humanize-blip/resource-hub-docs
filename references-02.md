@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.blogzag.com/86232613/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
+<a href="https://1mother.blogzag.com/86232617/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
+<a href="https://1mother.blogzag.com/86232619/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
 <a href="https://1mother.blogzag.com/86232623/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
 <a href="https://1mother.codeberg.page/">1mother.codeberg.page</a> 
 <a href="https://1mother.dbblog.net/16227362/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/web-resources-tools-directory-62/">web resources tools directory 62</a> 
 <a href="https://agenciainmobiliaria.xyz/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
 <a href="https://agenciainmobiliaria.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
-<a href="https://agenciainmobiliaria.xyz/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://agenciainmobiliaria.xyz/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://agenciainmobiliaria.xyz/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 

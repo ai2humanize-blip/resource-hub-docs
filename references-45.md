@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-46.md) · [‹ prev](references-44.md)
 
+<a href="https://livejournal.micro.blog/2026/08/14/091836.html">091836</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/093429.html">093429</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/095139.html">095139</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/101018.html">101018</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/105851.html">105851</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/113010.html">113010</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/114650.html">114650</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/boosting-your-business-and-personal.html">boosting your business and personal</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/demystifying-cryptocurrency-bitcoin-and-blockchain.html">demystifying cryptocurrency bitcoin and blockchain</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/how-ai-and-machine-learning.html">how ai and machine learning</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/how-aidriven-apps-are-revolutionizing.html">how aidriven apps are revolutionizing</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/how-cryptocurrency-news-shapes-the.html">how cryptocurrency news shapes the</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/mastering-personal-finance-a-strategic.html">mastering personal finance a strategic</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/navigating-the-crypto-world-bitcoin.html">navigating the crypto world bitcoin</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/navigating-the-future-cryptocurrency-bitcoin.html">navigating the future cryptocurrency bitcoin</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/navigating-the-world-of-cryptocurrency.html">navigating the world of cryptocurrency</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/staying-safe-and-informed-the.html">staying safe and informed the</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/staying-safe-and-responsible-the.html">staying safe and responsible the</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/understanding-the-impact-of-ai.html">understanding the impact of ai</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/understanding-todays-media-landscape-news.html">understanding todays media landscape news</a> 
+<a href="https://livejournal.micro.blog/2026/08/14/understanding-todays-news-key-trends.html">understanding todays news key trends</a> 
 <a href="https://livejournal.micro.blog/2026/08/14/unlocking-the-secrets-of-effective.html">unlocking the secrets of effective</a> 
 <a href="https://livejournal.micro.blog/2026/08/14/unlocking-the-secrets-of-successful.html">unlocking the secrets of successful</a> 
 <a href="https://livejournal.micro.blog/2026/08/21/pronostics-turf-gratuits-ce-quils.html">pronostics turf gratuits ce quils</a> 
@@ -781,24 +802,3 @@
 <a href="https://livejournal.micro.blog/2026/10/22/131718.html">131718</a> 
 <a href="https://livejournal.micro.blog/2026/10/22/131906.html">131906</a> 
 <a href="https://livejournal.micro.blog/2026/10/22/132055.html">132055</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/132148.html">132148</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/132342.html">132342</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/132816.html">132816</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/132908.html">132908</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/133059.html">133059</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/133245.html">133245</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/133341.html">133341</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/133904.html">133904</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/a-closer-look-at-how.html">a closer look at how</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/a-closer-look-at-the.html">a closer look at the</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/a-closer-look-at-understanding.html">a closer look at understanding</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/a-closer-look-at-why.html">a closer look at why</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/a-simple-framework-for-researching.html">a simple framework for researching</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/building-a-healthy-daily-reading.html">building a healthy daily reading</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/getting-how-to-avoid-misinformation.html">getting how to avoid misinformation</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/getting-how-to-compare-sources.html">getting how to compare sources</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/getting-how-to-find-reliable.html">getting how to find reliable</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/getting-how-to-get-the.html">getting how to get the</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/getting-how-to-spot-lowquality.html">getting how to spot lowquality</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/getting-how-to-use-the.html">getting how to use the</a> 
-<a href="https://livejournal.micro.blog/2026/10/22/getting-recognizing-credible-experts-online.html">getting recognizing credible experts online</a> 
