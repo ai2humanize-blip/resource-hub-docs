@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-the-basics-2/">how to get the most out of online guides the basics 2</a> 
+<a href="https://bitslots.de.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
+<a href="https://bitslots.de.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
+<a href="https://bitslots.de.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://bitslots.de.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
+<a href="https://bitslots.de.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
+<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
+<a href="https://bitslots.de.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://bitslots.de.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://bitslots.de.com/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
+<a href="https://bitslots.de.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
+<a href="https://bitslots.de.com/ivana-turf/">ivana turf</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-3/">making sense of complex topics online 3</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://bitslots.de.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://bitslots.de.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
 <a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
 <a href="https://bitslots.de.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
@@ -784,21 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/thecryptoonline-d7900281/">thecryptoonline d7900281</a> 
 <a href="https://boostelearning.mataroa.blog/blog/thecryptoonline-fc158b95/">thecryptoonline fc158b95</a> 
 <a href="https://boostelearning.mataroa.blog/blog/thecryptoonline/">thecryptoonline</a> 
-<a href="https://boostelearning.mataroa.blog/blog/thedigitalweekly-com-explained-what-the-digital-weekly/">thedigitalweekly com explained what the digital weekly</a> 
-<a href="https://boostelearning.mataroa.blog/blog/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://boostelearning.mataroa.blog/blog/thedigitalweekly/">thedigitalweekly</a> 
-<a href="https://boostelearning.mataroa.blog/blog/this-is-vegas-casino-review-bonuses-games-user-1c0d7c74/">this is vegas casino review bonuses games user 1c0d7c74</a> 
-<a href="https://boostelearning.mataroa.blog/blog/this-is-vegas-casino-review-bonuses-games-user-6dd734e1/">this is vegas casino review bonuses games user 6dd734e1</a> 
-<a href="https://boostelearning.mataroa.blog/blog/this-is-vegas-casino-review-bonuses-games-user-8d971c3c/">this is vegas casino review bonuses games user 8d971c3c</a> 
-<a href="https://boostelearning.mataroa.blog/blog/this-is-vegas-casino-review-bonuses-games-user-aaffb4b6/">this is vegas casino review bonuses games user aaffb4b6</a> 
-<a href="https://boostelearning.mataroa.blog/blog/this-is-vegas-casino-review-bonuses-games-user/">this is vegas casino review bonuses games user</a> 
-<a href="https://boostelearning.mataroa.blog/blog/token-times-60ae0860/">token times 60ae0860</a> 
-<a href="https://boostelearning.mataroa.blog/blog/token-times-7d5e8c85/">token times 7d5e8c85</a> 
-<a href="https://boostelearning.mataroa.blog/blog/token-times/">token times</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr-41b5e460/">tokenpr 41b5e460</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr-8373f0d5/">tokenpr 8373f0d5</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr-8997d969/">tokenpr 8997d969</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr-ce380c7f/">tokenpr ce380c7f</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenpr/">tokenpr</a> 
-<a href="https://boostelearning.mataroa.blog/blog/tokenspin/">tokenspin</a> 
-<a href="https://boostelearning.mataroa.blog/blog/top-cultural-figures-who-shaped-modern-taste/">top cultural figures who shaped modern taste</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-52.md) · [‹ prev](references-50.md)
 
+<a href="https://marketingslave.com/getting-a-simple-framework-for-researching-any-topic-online-2/">getting a simple framework for researching any topic online </a> 
+<a href="https://marketingslave.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://marketingslave.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://marketingslave.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://marketingslave.com/getting-how-to-compare-sources-on-the-same-story-right-2/">getting how to compare sources on the same story right 2</a> 
+<a href="https://marketingslave.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://marketingslave.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://marketingslave.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
+<a href="https://marketingslave.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig-2/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://marketingslave.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://marketingslave.com/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
+<a href="https://marketingslave.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://marketingslave.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://marketingslave.com/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
+<a href="https://marketingslave.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://marketingslave.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
+<a href="https://marketingslave.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://marketingslave.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://marketingslave.com/guides-reviews-how-tos-50-resources-worth-bookmarking-108-2/">guides reviews how tos 50 resources worth bookmarking 108 2</a> 
+<a href="https://marketingslave.com/high-authority-backlinks-2/">high authority backlinks 2</a> 
+<a href="https://marketingslave.com/high-authority-backlinks/">high authority backlinks</a> 
 <a href="https://marketingslave.com/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
 <a href="https://marketingslave.com/how-ai-and-machine-learning-are-transforming-everyday-apps-2/">how ai and machine learning are transforming everyday apps 2</a> 
 <a href="https://marketingslave.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
@@ -781,24 +802,3 @@
 <a href="https://modernwritingdesk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
 <a href="https://modernwritingdesk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://modernwritingdesk.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-making-sense-of-complex-topics-online-3/">a closer look at making sense of complex topics online 3</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-the-value-of-slow-careful-reading-3/">a closer look at the value of slow careful reading 3</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u-2/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://modernwritingdesk.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://modernwritingdesk.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://modernwritingdesk.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://modernwritingdesk.com/a-practical-guide-to-choosing-everyday-ai-tools/">a practical guide to choosing everyday ai tools</a> 
-<a href="https://modernwritingdesk.com/a-practical-guide-to-following-new-movie-and-series-releases/">a practical guide to following new movie and series releases</a> 
-<a href="https://modernwritingdesk.com/a-practical-guide-to-reading-cryptocurrency-price-informatio/">a practical guide to reading cryptocurrency price informatio</a> 
-<a href="https://modernwritingdesk.com/a-practical-guide-to-reading-football-league-tables-and-stan/">a practical guide to reading football league tables and stan</a> 
-<a href="https://modernwritingdesk.com/a-practical-guide-to-seasonal-style-transitions/">a practical guide to seasonal style transitions</a> 
-<a href="https://modernwritingdesk.com/a-practical-guide-to-understanding-off-page-seo/">a practical guide to understanding off page seo</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cplemaire.us.org/creating-online-polls-and-surveys-and-reading-results-what-t/">creating online polls and surveys and reading results what t</a> 
+<a href="https://cplemaire.us.org/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
+<a href="https://cplemaire.us.org/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://cplemaire.us.org/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://cplemaire.us.org/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://cplemaire.us.org/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://cplemaire.us.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cplemaire.us.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://cplemaire.us.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://cplemaire.us.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://cplemaire.us.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cplemaire.us.org/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
+<a href="https://cplemaire.us.org/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://cplemaire.us.org/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://cplemaire.us.org/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://croginalcats.xyz/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
 <a href="https://croginalcats.xyz/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
 <a href="https://croginalcats.xyz/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
-<a href="https://croginalcats.xyz/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://croginalcats.xyz/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://croginalcats.xyz/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://croginalcats.xyz/ivanaturf-cc/">ivanaturf cc</a> 
-<a href="https://croginalcats.xyz/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
-<a href="https://croginalcats.xyz/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://croginalcats.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://croginalcats.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://croginalcats.xyz/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
-<a href="https://croginalcats.xyz/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
-<a href="https://croginalcats.xyz/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://croginalcats.xyz/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://croginalcats.xyz/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://croginalcats.xyz/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://croginalcats.xyz/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://croginalcats.xyz/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
-<a href="https://croginalcats.xyz/satta-result-now/">satta result now</a> 
-<a href="https://croginalcats.xyz/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
-<a href="https://croginalcats.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://croginalcats.xyz/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
-<a href="https://croginalcats.xyz/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
