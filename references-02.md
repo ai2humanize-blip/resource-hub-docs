@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.blog5.net/96799738/independent-publications-to-bookmark">independent publications to bookmark</a> 
+<a href="https://1mother.blog5.net/96799747/useful-independent-sites-and-tools">useful independent sites and tools</a> 
+<a href="https://1mother.blogocial.com/a-reading-list-of-independent-news-and-finance-sites-78989818">a reading list of independent news and finance sites 7898981</a> 
 <a href="https://1mother.blogocial.com/independent-crypto-and-finance-publications-to-bookmark-78989821">independent crypto and finance publications to bookmark 7898</a> 
 <a href="https://1mother.blogocial.com/more-independent-websites-worth-exploring-78989814">more independent websites worth exploring 78989814</a> 
 <a href="https://1mother.blogocial.com/useful-independent-sites-tools-and-crypto-resources-78989827">useful independent sites tools and crypto resources 78989827</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-how-search-engines-rank-pages-and-why-it-matters/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 

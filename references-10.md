@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bandemusic.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://bandemusic.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://bandemusic.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://bandemusic.com/how-html5-revolutionized-casual-browser-gaming-for-business-81-6/">how html5 revolutionized casual browser gaming for business </a> 
+<a href="https://bandemusic.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
+<a href="https://bandemusic.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://bandemusic.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
+<a href="https://bandemusic.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
+<a href="https://bandemusic.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
+<a href="https://bandemusic.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://bandemusic.com/how-to-boost-your-productivity-with-the-best-apps-for-a-digi/">how to boost your productivity with the best apps for a digi</a> 
 <a href="https://bandemusic.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
 <a href="https://bandemusic.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
 <a href="https://bandemusic.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
@@ -253,6 +269,7 @@
 <a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-7-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-7/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://bandemusic.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-81-9-2/">mastering guides reviews how tos a comprehensive roundup 81 </a> 
 <a href="https://bandemusic.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-81-9/">mastering guides reviews how tos a comprehensive roundup 81 </a> 
 <a href="https://bandemusic.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-81-9-2/">mastering guides reviews how tos your ultimate resource roun</a> 
 <a href="https://bandemusic.com/mastering-guides-reviews-how-tos-your-ultimate-resource-roun-81-9/">mastering guides reviews how tos your ultimate resource roun</a> 
@@ -299,6 +316,7 @@
 <a href="https://bandemusic.com/mastering-online-reading-essential-digital-tools-resources-f-81-2/">mastering online reading essential digital tools resources f</a> 
 <a href="https://bandemusic.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
 <a href="https://bandemusic.com/mastering-personal-finance-business-and-marketing-a-comprehe-81-1/">mastering personal finance business and marketing a comprehe</a> 
+<a href="https://bandemusic.com/mastering-personal-finance-guides-reviews-and-how-tos-for-fi-81-9/">mastering personal finance guides reviews and how tos for fi</a> 
 <a href="https://bandemusic.com/mastering-personal-finance-how-strategic-business-and-market/">mastering personal finance how strategic business and market</a> 
 <a href="https://bandemusic.com/mastering-the-art-of-small-business-growth-a-personal-financ/">mastering the art of small business growth a personal financ</a> 
 <a href="https://bandemusic.com/mastering-the-digital-world-essential-tools-resources-for-le-81-2/">mastering the digital world essential tools resources for le</a> 
@@ -784,21 +802,3 @@
 <a href="https://bitslots.de.com/common-questions-answered-22/">common questions answered 22</a> 
 <a href="https://bitslots.de.com/common-questions-answered-23/">common questions answered 23</a> 
 <a href="https://bitslots.de.com/common-questions-answered-24/">common questions answered 24</a> 
-<a href="https://bitslots.de.com/common-questions-answered-25/">common questions answered 25</a> 
-<a href="https://bitslots.de.com/common-questions-answered-26/">common questions answered 26</a> 
-<a href="https://bitslots.de.com/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://bitslots.de.com/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://bitslots.de.com/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://bitslots.de.com/common-questions-answered-6/">common questions answered 6</a> 
-<a href="https://bitslots.de.com/common-questions-answered-7/">common questions answered 7</a> 
-<a href="https://bitslots.de.com/common-questions-answered-8/">common questions answered 8</a> 
-<a href="https://bitslots.de.com/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://bitslots.de.com/common-questions-answered/">common questions answered</a> 
-<a href="https://bitslots.de.com/crypto-credit-cards-explained-how-they-differ-from-debit-car/">crypto credit cards explained how they differ from debit car</a> 
-<a href="https://bitslots.de.com/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
-<a href="https://bitslots.de.com/decentralized-autonomous-organizations-daos-explained-simply/">decentralized autonomous organizations daos explained simply</a> 
-<a href="https://bitslots.de.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
-<a href="https://bitslots.de.com/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
-<a href="https://bitslots.de.com/garbage-disposal-troubleshooting-the-basics-every-homeowner/">garbage disposal troubleshooting the basics every homeowner</a> 
-<a href="https://bitslots.de.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://bitslots.de.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
