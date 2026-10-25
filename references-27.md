@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://ezoterizm.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://ezoterizm.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://ezoterizm.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://ezoterizm.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
+<a href="https://ezoterizm.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://ezoterizm.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://ezoterizm.com/how-ai-driven-apps-are-transforming-our-daily-digital-experi/">how ai driven apps are transforming our daily digital experi</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-revolutionizing-daily-life-and-work/">how ai powered apps are revolutionizing daily life and work</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-privacy/">how ai powered apps are transforming daily life and privacy</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work-3/">how ai powered apps are transforming daily life and work 3</a> 
+<a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://ezoterizm.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://ezoterizm.com/how-recent-economic-trends-are-shaping-global-currency-marke/">how recent economic trends are shaping global currency marke</a> 
+<a href="https://ezoterizm.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://ezoterizm.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://ezoterizm.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matters/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
 <a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
 <a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://fabbusinesssolutions.com/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://fabbusinesssolutions.com/understanding-europe-s-etias-travel-authorisation-a-general/">understanding europe s etias travel authorisation a general</a> 
 <a href="https://fabbusinesssolutions.com/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-explained-simply-2/">understanding how search engines rank pages explained simply</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://fabbusinesssolutions.com/understanding-legal-information-and-news-a-comprehensive-gui/">understanding legal information and news a comprehensive gui</a> 
-<a href="https://fabbusinesssolutions.com/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
-<a href="https://fabbusinesssolutions.com/understanding-the-interplay-of-cryptocurrency-bitcoin-and-bl/">understanding the interplay of cryptocurrency bitcoin and bl</a> 
-<a href="https://fabbusinesssolutions.com/understanding-the-latest-developments-in-cryptocurrency-news/">understanding the latest developments in cryptocurrency news</a> 
-<a href="https://fabbusinesssolutions.com/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://fabbusinesssolutions.com/understanding-today-s-news-landscape-in-depth-analysis-and-e/">understanding today s news landscape in depth analysis and e</a> 
-<a href="https://fabbusinesssolutions.com/understanding-web-tech-content-a-comprehensive-guide-to-cryp-94-5/">understanding web tech content a comprehensive guide to cryp</a> 
-<a href="https://fabbusinesssolutions.com/unlocking-creativity-how-ai-powered-apps-transform-digital-a/">unlocking creativity how ai powered apps transform digital a</a> 
-<a href="https://fabbusinesssolutions.com/unlocking-the-power-of-play-how-imaginative-play-benefits-ch/">unlocking the power of play how imaginative play benefits ch</a> 
-<a href="https://fabbusinesssolutions.com/unlocking-the-secrets-of-effective-home-organization-a-fresh/">unlocking the secrets of effective home organization a fresh</a> 
-<a href="https://fabbusinesssolutions.com/unlocking-the-world-of-horse-racing-digital-tools-online-res-94-9/">unlocking the world of horse racing digital tools online res</a> 
-<a href="https://fabbusinesssolutions.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi-94-5/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://fabbusinesssolutions.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://fabbusinesssolutions.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
-<a href="https://fabbusinesssolutions.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-59.md) · [‹ prev](references-57.md)
 
+<a href="https://pastelink.net/xkylfv1x">xkylfv1x</a> 
+<a href="https://pathway2prevention.org/gindex.html">gindex</a> 
+<a href="https://pathway2prevention.org/picks.html">picks</a> 
+<a href="https://peaceful-buttercream-3e3fdd.netlify.app/staying-safe-and-responsible-the-latest-online-casino-and-ga.html">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://peaceful-kangaroo-492943.netlify.app/the-basics-of-staying-safe-while-browsing-and-why-it-matters.html">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://peaceful-melba-03e27d.netlify.app/how-to-tell-explainer-journalism-from-opinion-a-quick-guide.html">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://peppy-marzipan-2a475d.netlify.app/mastering-the-art-of-content-marketing-a-step-by-step-guide.html">mastering the art of content marketing a step by step guide</a> 
+<a href="https://ph11com.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://ph11com.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://ph11com.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://ph11com.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://ph11com.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://ph11com.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://ph11com.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://ph11com.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://ph11com.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ph11com.xyz/hello-world/">hello world</a> 
+<a href="https://ph11com.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ph11com.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://ph11com.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://ph11com.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://ph11com.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://ph11com.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://ph11com.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
@@ -781,24 +802,3 @@
 <a href="https://pinasscatter.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
 <a href="https://pinasscatter.xyz/what-makes-a-baby-name-feel-timeless/">what makes a baby name feel timeless</a> 
 <a href="https://pinasscatter.xyz/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://pinasscatter.xyz/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://pinasscatter.xyz/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://pinasscatter.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide-2/">what to look for in a good news website a practical guide 2</a> 
-<a href="https://pinasscatter.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://pinasscatter.xyz/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
-<a href="https://pinasscatter.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://pinasscatter.xyz/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
-<a href="https://pinasscatter.xyz/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://pinasscatter.xyz/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://pinasscatter.xyz/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://pixect.xyz/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://pixect.xyz/a-closer-look-at-how-to-choose-the-perfect-baby-name/">a closer look at how to choose the perfect baby name</a> 
-<a href="https://pixect.xyz/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://pixect.xyz/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://pixect.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
-<a href="https://pixect.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://pixect.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://pixect.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://pixect.xyz/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
-<a href="https://pixect.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://pixect.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
