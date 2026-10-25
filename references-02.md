@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.blogocial.com/independent-crypto-and-finance-publications-to-bookmark-78989821">independent crypto and finance publications to bookmark 7898</a> 
+<a href="https://1mother.blogocial.com/more-independent-websites-worth-exploring-78989814">more independent websites worth exploring 78989814</a> 
+<a href="https://1mother.blogocial.com/useful-independent-sites-tools-and-crypto-resources-78989827">useful independent sites tools and crypto resources 78989827</a> 
 <a href="https://1mother.blogofoto.com/74400726/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
 <a href="https://1mother.blogofoto.com/74400732/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
 <a href="https://1mother.blogofoto.com/74400735/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 

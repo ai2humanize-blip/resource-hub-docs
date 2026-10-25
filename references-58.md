@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-59.md) · [‹ prev](references-57.md)
 
+<a href="https://ph888com.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ph888com.xyz/finding-the-right-outlet-for-your-announcement/">finding the right outlet for your announcement</a> 
+<a href="https://ph888com.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://ph888com.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://ph888com.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://ph888com.xyz/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://ph888com.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://ph888com.xyz/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://ph888com.xyz/getting-simple-habits-of-a-smart-internet-reader-right-2/">getting simple habits of a smart internet reader right 2</a> 
+<a href="https://ph888com.xyz/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://ph888com.xyz/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://ph888com.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://ph888com.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://ph888com.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://ph888com.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://ph888com.xyz/how-small-publishers-keep-advertising-transparent/">how small publishers keep advertising transparent</a> 
+<a href="https://ph888com.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ph888com.xyz/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://ph888com.xyz/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://ph888com.xyz/how-to-compare-sources-on-the-same-story-and-why-it-matters-2/">how to compare sources on the same story and why it matters </a> 
+<a href="https://ph888com.xyz/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
 <a href="https://ph888com.xyz/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
 <a href="https://ph888com.xyz/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
 <a href="https://ph888com.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
@@ -781,24 +802,3 @@
 <a href="https://pixect.xyz/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
 <a href="https://pixect.xyz/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
 <a href="https://pixect.xyz/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://pixect.xyz/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
-<a href="https://pixect.xyz/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://pixect.xyz/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://pixect.xyz/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
-<a href="https://pixect.xyz/understanding-the-air-quality-index-aqi-how-to-read-it-and-w/">understanding the air quality index aqi how to read it and w</a> 
-<a href="https://pixect.xyz/understanding-thefontworld-a-practical-guide/">understanding thefontworld a practical guide</a> 
-<a href="https://pixect.xyz/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
-<a href="https://pixect.xyz/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
-<a href="https://pixect.xyz/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
-<a href="https://pixect.xyz/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
-<a href="https://pixect.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
-<a href="https://pixect.xyz/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://pixect.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://pixect.xyz/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
-<a href="https://pixect.xyz/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
-<a href="https://pixect.xyz/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
-<a href="https://pixect.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://pixect.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://pixect.xyz/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://pixect.xyz/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://playboicartinetworth.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
