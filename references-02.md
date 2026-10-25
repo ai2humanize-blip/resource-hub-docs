@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.blogofoto.com/74400726/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
+<a href="https://1mother.blogofoto.com/74400732/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
+<a href="https://1mother.blogofoto.com/74400735/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
 <a href="https://1mother.blogofoto.com/74400736/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
 <a href="https://1mother.blogs-service.com/74017751/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
 <a href="https://1mother.blogs-service.com/74017753/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
