@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://earnmoneyplayinggames.xyz/how-surnames-get-their-meanings/">how surnames get their meanings</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list-2/">how to build a personal reading list 2</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-organize-the-information-you-find-online-a-practical-guide/">how to organize the information you find online a practical </a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
@@ -786,19 +802,3 @@
 <a href="https://emiamedical.com/exploring-the-best-guides-reviews-and-how-tos-for-fashion-an-92-3/">exploring the best guides reviews and how tos for fashion an</a> 
 <a href="https://emiamedical.com/exploring-the-best-independent-web-tech-content-resources-92-7/">exploring the best independent web tech content resources 92</a> 
 <a href="https://emiamedical.com/exploring-the-digital-realm-web-tech-content-insights-92-7/">exploring the digital realm web tech content insights 92 7</a> 
-<a href="https://emiamedical.com/exploring-the-dynamic-world-of-web-tech-and-content-a-compre-92-2/">exploring the dynamic world of web tech and content a compre</a> 
-<a href="https://emiamedical.com/exploring-the-future-digital-tools-online-resources-for-cryp-92-1/">exploring the future digital tools online resources for cryp</a> 
-<a href="https://emiamedical.com/exploring-the-interconnected-world-of-web-tech-content-92-2/">exploring the interconnected world of web tech content 92 2</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-fashion-style-and-modern-lifes-92-3/">exploring the intersection of fashion style and modern lifes</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-92-2/">exploring the intersection of web tech and content a compreh</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-2023-92-2/">exploring the intersection of web tech and content in 2023 9</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-indian-92-2/">exploring the intersection of web tech and content in indian</a> 
-<a href="https://emiamedical.com/exploring-the-intersection-of-web-tech-and-content-in-the-bl-92-2/">exploring the intersection of web tech and content in the bl</a> 
-<a href="https://emiamedical.com/exploring-the-web-tech-and-content-a-deep-dive-into-cryptocu-92-2/">exploring the web tech and content a deep dive into cryptocu</a> 
-<a href="https://emiamedical.com/exploring-the-world-of-online-casinos-business-finance-and-p-92-5/">exploring the world of online casinos business finance and p</a> 
-<a href="https://emiamedical.com/exploring-web-tech-content-a-comprehensive-roundup-92-7/">exploring web tech content a comprehensive roundup 92 7</a> 
-<a href="https://emiamedical.com/exploring-web-tech-content-a-comprehensive-roundup-for-knowl-92-7/">exploring web tech content a comprehensive roundup for knowl</a> 
-<a href="https://emiamedical.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://emiamedical.com/fruit-flies-in-the-kitchen-where-they-breed-and-how-to-clear/">fruit flies in the kitchen where they breed and how to clear</a> 
-<a href="https://emiamedical.com/gender-neutral-baby-names-explained-a-quick-guide/">gender neutral baby names explained a quick guide</a> 
-<a href="https://emiamedical.com/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 

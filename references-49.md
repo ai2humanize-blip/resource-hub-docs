@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-50.md) · [‹ prev](references-48.md)
 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/gst-slabs-explained-how-india-taxes/">gst slabs explained how india taxes</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/hbar-price-consolidates-below-155-as-momentum-remains/">hbar price consolidates below 155 as momentum remains</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/hive-bitcoin-holdings-drop-331-btc-q1-reports/">hive bitcoin holdings drop 331 btc q1 reports</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/housepainter/">housepainter</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-ai-is-transforming-the-global-economy-current-trends-and/">how ai is transforming the global economy current trends and</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-create-lead-magnet-that-people-actually-want/">how create lead magnet that people actually want</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-election-polling-works-and-why-it-misses/">how election polling works and why it misses</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-schools-can-better-accommodate-students-with-learning/">how schools can better accommodate students with learning</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-spot-etf-flows-affect-bitcoin-supply/">how spot etf flows affect bitcoin supply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-the-ev-battery-supply-chain-works/">how the ev battery supply chain works</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-commission-ai-portrait/">how to commission ai portrait</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
 <a href="https://ls-discover-the-be-msrom6eg.web.app/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
@@ -780,25 +802,3 @@
 <a href="https://ls-serpinsight-muxtstkz.wasmer.app/">ls-serpinsight-muxtstkz.wasmer.app</a> 
 <a href="https://ls-serpinsight-muxttcn1-imncw2y54a-uc.a.run.app">ls-serpinsight-muxttcn1-imncw2y54a-uc.a.run.app</a> 
 <a href="https://ls-serpinsight-muxttiq4-imncw2y54a-uc.a.run.app">ls-serpinsight-muxttiq4-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-serpinsight-muxttn5e-imncw2y54a-uc.a.run.app">ls-serpinsight-muxttn5e-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-serpinsight-muxtu5s9-imncw2y54a-uc.a.run.app">ls-serpinsight-muxtu5s9-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-serpinsight-muxtui9n-imncw2y54a-uc.a.run.app">ls-serpinsight-muxtui9n-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-serpinsightlink-msrejrn1.firebaseapp.com/">ls-serpinsightlink-msrejrn1.firebaseapp.com</a> 
-<a href="https://ls-serpinsightlink-msrejrn1.web.app/">ls-serpinsightlink-msrejrn1.web.app</a> 
-<a href="https://ls-serpinsightlinkinsertion-overview-and-lates-ms-imncw2y54a-uc.a.run.app">ls-serpinsightlinkinsertion-overview-and-lates-ms-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-serpinsightlinkinsertion-overview-and-latest-update.ai2hmnz-rhub.workers.dev/">ls-serpinsightlinkinsertion-overview-and-latest-update.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-simple-habits-of-a-smart-internet-reader-a--mv-imncw2y54a-uc.a.run.app">ls-simple-habits-of-a-smart-internet-reader-a--mv-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-simple-habits-of-a-smart-internet-reader-an-mt-imncw2y54a-uc.a.run.app">ls-simple-habits-of-a-smart-internet-reader-an-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-simple-habits-of-a-smart-internet-reader-mtmnc-imncw2y54a-uc.a.run.app">ls-simple-habits-of-a-smart-internet-reader-mtmnc-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-smartphone-basics-helping-elderly-par-muz4vsxr.wasmer.app/">ls-smartphone-basics-helping-elderly-par-muz4vsxr.wasmer.app</a> 
-<a href="https://ls-sources-muxlvwyh-imncw2y54a-uc.a.run.app">ls-sources-muxlvwyh-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-sources-muxlwuvq-imncw2y54a-uc.a.run.app">ls-sources-muxlwuvq-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-sources-muxlx65o-imncw2y54a-uc.a.run.app">ls-sources-muxlx65o-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-sources-muxm39pt-imncw2y54a-uc.a.run.app">ls-sources-muxm39pt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-sources-muxm3vrp-imncw2y54a-uc.a.run.app">ls-sources-muxm3vrp-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-states-sports-betting-age-18-muxmf7n1-imncw2y54a-uc.a.run.app">ls-states-sports-betting-age-18-muxmf7n1-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-states-sports-betting-age-18-muxmfuoj-imncw2y54a-uc.a.run.app">ls-states-sports-betting-age-18-muxmfuoj-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-states-sports-betting-age-18-muxmgf70-imncw2y54a-uc.a.run.app">ls-states-sports-betting-age-18-muxmgf70-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-states-sports-betting-age-18-muxmh2k8-imncw2y54a-uc.a.run.app">ls-states-sports-betting-age-18-muxmh2k8-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-states-sports-betting-age-18-muxmheht-imncw2y54a-uc.a.run.app">ls-states-sports-betting-age-18-muxmheht-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-staycluedup-muxqdcr1-imncw2y54a-uc.a.run.app">ls-staycluedup-muxqdcr1-imncw2y54a-uc.a.run.app</a> 

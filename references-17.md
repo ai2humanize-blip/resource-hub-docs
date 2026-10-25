@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://competitorscreenshots.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://competitorscreenshots.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
+<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
 <a href="https://competitorscreenshots.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://competitorscreenshots.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
 <a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
@@ -787,18 +802,3 @@
 <a href="https://crediblenews24.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
 <a href="https://crediblenews24.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://crediblenews24.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://crediblenews24.com/why-explainer-journalism-web-and-content-matter-in-today-s-w-86-8/">why explainer journalism web and content matter in today s w</a> 
-<a href="https://crediblenews24.com/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-86-8/">why niche blogs still matter a deep dive into web tech conte</a> 
-<a href="https://crediblenews24.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://crediblenews24.com/why-you-have-gnats-indoors-and-how-to-identify-the-source/">why you have gnats indoors and how to identify the source</a> 
-<a href="https://croginalcats.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://croginalcats.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://croginalcats.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://croginalcats.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://croginalcats.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://croginalcats.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 

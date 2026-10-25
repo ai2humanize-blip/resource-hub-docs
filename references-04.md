@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/betting-ages.html">betting ages</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/bitcoin-macro-hedge-m2-money-supply-global-liquidity.html">bitcoin macro hedge m2 money supply global liquidity</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/bitcoin-price-surges-key-drivers-behind-the-latest.html">bitcoin price surges key drivers behind the latest</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/bitcoin-price-usd-today-live-btc-to-dollar.html">bitcoin price usd today live btc to dollar</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/bitcoincasinosnews.html">bitcoincasinosnews</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/bitcoindigital.html">bitcoindigital</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/bitcoinprime.html">bitcoinprime</a> 
@@ -798,7 +802,3 @@
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/a-closer-look-at-tokenpr-net">a closer look at tokenpr net</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/curated-resource-hub-independent-publications-directory">curated resource hub independent publications directory</a> 
 <a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/exploring-blackpearlbitcoin-com">exploring blackpearlbitcoin com</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/exploring-carmannews">exploring carmannews</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/exploring-chandlerweekly-com">exploring chandlerweekly com</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/exploring-cryptocirclex-com">exploring cryptocirclex com</a> 
-<a href="https://ai2humanize.wixsite.com/curated-resource-hub/post/exploring-ecoinsupply-com">exploring ecoinsupply com</a> 

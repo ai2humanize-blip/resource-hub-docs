@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://bandemusic.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://bandemusic.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig-2/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://bandemusic.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://bandemusic.com/harnessing-ai-for-creative-inspiration-a-new-era-for-digital/">harnessing ai for creative inspiration a new era for digital</a> 
+<a href="https://bandemusic.com/how-ai-driven-apps-are-revolutionizing-everyday-life/">how ai driven apps are revolutionizing everyday life</a> 
+<a href="https://bandemusic.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
+<a href="https://bandemusic.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://bandemusic.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
 <a href="https://bandemusic.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://bandemusic.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
 <a href="https://bandemusic.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
@@ -317,6 +329,7 @@
 <a href="https://bandemusic.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
 <a href="https://bandemusic.com/mastering-personal-finance-business-and-marketing-a-comprehe-81-1/">mastering personal finance business and marketing a comprehe</a> 
 <a href="https://bandemusic.com/mastering-personal-finance-guides-reviews-and-how-tos-for-fi-81-9/">mastering personal finance guides reviews and how tos for fi</a> 
+<a href="https://bandemusic.com/mastering-personal-finance-guides-reviews-how-tos-for-debt-m-81-9/">mastering personal finance guides reviews how tos for debt m</a> 
 <a href="https://bandemusic.com/mastering-personal-finance-how-strategic-business-and-market/">mastering personal finance how strategic business and market</a> 
 <a href="https://bandemusic.com/mastering-the-art-of-small-business-growth-a-personal-financ/">mastering the art of small business growth a personal financ</a> 
 <a href="https://bandemusic.com/mastering-the-digital-world-essential-tools-resources-for-le-81-2/">mastering the digital world essential tools resources for le</a> 
@@ -789,16 +802,3 @@
 <a href="https://bitslots.de.com/common-questions-answered-10/">common questions answered 10</a> 
 <a href="https://bitslots.de.com/common-questions-answered-11/">common questions answered 11</a> 
 <a href="https://bitslots.de.com/common-questions-answered-12/">common questions answered 12</a> 
-<a href="https://bitslots.de.com/common-questions-answered-13/">common questions answered 13</a> 
-<a href="https://bitslots.de.com/common-questions-answered-14/">common questions answered 14</a> 
-<a href="https://bitslots.de.com/common-questions-answered-15/">common questions answered 15</a> 
-<a href="https://bitslots.de.com/common-questions-answered-16/">common questions answered 16</a> 
-<a href="https://bitslots.de.com/common-questions-answered-17/">common questions answered 17</a> 
-<a href="https://bitslots.de.com/common-questions-answered-18/">common questions answered 18</a> 
-<a href="https://bitslots.de.com/common-questions-answered-19/">common questions answered 19</a> 
-<a href="https://bitslots.de.com/common-questions-answered-2/">common questions answered 2</a> 
-<a href="https://bitslots.de.com/common-questions-answered-20/">common questions answered 20</a> 
-<a href="https://bitslots.de.com/common-questions-answered-21/">common questions answered 21</a> 
-<a href="https://bitslots.de.com/common-questions-answered-22/">common questions answered 22</a> 
-<a href="https://bitslots.de.com/common-questions-answered-23/">common questions answered 23</a> 
-<a href="https://bitslots.de.com/common-questions-answered-24/">common questions answered 24</a> 

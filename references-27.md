@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://ezoterizm.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://ezoterizm.com/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
+<a href="https://ezoterizm.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
+<a href="https://ezoterizm.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
+<a href="https://ezoterizm.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
+<a href="https://ezoterizm.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://ezoterizm.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://ezoterizm.com/marketing-seo-growth-essential-strategies-for-business-succe-93-3/">marketing seo growth essential strategies for business succe</a> 
+<a href="https://ezoterizm.com/marketing-seo-growth-strategies-for-success-in-the-digital-a-93-8/">marketing seo growth strategies for success in the digital a</a> 
+<a href="https://ezoterizm.com/master-business-finance-productivity-essential-web-skills-fo-93-4/">master business finance productivity essential web skills fo</a> 
+<a href="https://ezoterizm.com/master-marketing-seo-growth-essential-habits-for-smart-inter-93-3/">master marketing seo growth essential habits for smart inter</a> 
+<a href="https://ezoterizm.com/master-marketing-seo-growth-essential-strategies-for-success-93-8/">master marketing seo growth essential strategies for success</a> 
+<a href="https://ezoterizm.com/master-online-guides-reviews-how-tos-a-comprehensive-roundup-93-2/">master online guides reviews how tos a comprehensive roundup</a> 
+<a href="https://ezoterizm.com/master-online-learning-guides-reviews-and-how-tos-for-smart-93-2/">master online learning guides reviews and how tos for smart </a> 
+<a href="https://ezoterizm.com/master-online-reading-guides-reviews-how-tos-for-smarter-res-93-2/">master online reading guides reviews how tos for smarter res</a> 
+<a href="https://ezoterizm.com/master-online-research-guides-reviews-how-tos-for-reliable-i-93-2/">master online research guides reviews how tos for reliable i</a> 
 <a href="https://ezoterizm.com/master-the-art-of-online-learning-guides-reviews-how-tos-93-2/">master the art of online learning guides reviews how tos 93 </a> 
 <a href="https://ezoterizm.com/master-the-internet-guides-reviews-and-how-tos-for-savvy-use-93-2/">master the internet guides reviews and how tos for savvy use</a> 
 <a href="https://ezoterizm.com/master-the-web-guides-reviews-how-tos-for-smarter-online-nav-93-2/">master the web guides reviews how tos for smarter online nav</a> 
@@ -786,19 +802,3 @@
 <a href="https://fabbusinesssolutions.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://fabbusinesssolutions.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
 <a href="https://fabbusinesssolutions.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://fabbusinesssolutions.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
-<a href="https://fabbusinesssolutions.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview-2/">zakat al fitr and the lunar calendar a practical overview 2</a> 
-<a href="https://fabbusinesssolutions.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
-<a href="https://fabulous-valkyrie-be860a.netlify.app/simple-habits-of-a-smart-internet-reader-a-practical-guide.html">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://fabulous-yeot-40d948.netlify.app/aavotcom.html">aavotcom</a> 
-<a href="https://fabulous-zuccutto-0ee35e.netlify.app/daily-results-today.html">daily results today</a> 
-<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-bitcoin-gambling-what-you-need-to-know-27-5/">a beginner s guide to bitcoin gambling what you need to know</a> 
-<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-navigating-the-world-of-bitcoin-busine-27-5/">a beginner s guide to navigating the world of bitcoin busine</a> 
-<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
-<a href="https://fabulouspoetry.it.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-27-4/">a beginner s guide to understanding and starting with crypto</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://fabulouspoetry.it.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 

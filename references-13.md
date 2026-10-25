@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://captainjackinterview.com/getting-how-to-use-the-web-to-learn-a-new-skill-right-2/">getting how to use the web to learn a new skill right 2</a> 
+<a href="https://captainjackinterview.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://captainjackinterview.com/getting-rid-of-cockroaches-what-works-and-what-doesn-t/">getting rid of cockroaches what works and what doesn t</a> 
+<a href="https://captainjackinterview.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://captainjackinterview.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
+<a href="https://captainjackinterview.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://captainjackinterview.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://captainjackinterview.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-2/">guides reviews how tos 50 resources worth bookmarking 82 8 2</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-3/">guides reviews how tos 50 resources worth bookmarking 82 8 3</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8/">guides reviews how tos 50 resources worth bookmarking 82 8</a> 
+<a href="https://captainjackinterview.com/harnessing-the-power-of-apps-transforming-daily-life-in-the/">harnessing the power of apps transforming daily life in the</a> 
+<a href="https://captainjackinterview.com/how-ai-driven-apps-are-transforming-daily-life-and-work/">how ai driven apps are transforming daily life and work</a> 
+<a href="https://captainjackinterview.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://captainjackinterview.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
 <a href="https://captainjackinterview.com/how-ai-powered-apps-are-transforming-everyday-life-and-work/">how ai powered apps are transforming everyday life and work</a> 
 <a href="https://captainjackinterview.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
 <a href="https://captainjackinterview.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
@@ -787,18 +802,3 @@
 <a href="https://casinonutanlicens.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
 <a href="https://casinonutanlicens.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
 <a href="https://casinonutanlicens.xyz/cota-es-de-cripto-no-brasil/">cota es de cripto no brasil</a> 
-<a href="https://casinonutanlicens.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://casinonutanlicens.xyz/decentralized-autonomous-organizations-daos-explained-simply/">decentralized autonomous organizations daos explained simply</a> 
-<a href="https://casinonutanlicens.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://casinonutanlicens.xyz/digital-tools-online-resources-50-resources-worth-bookmarkin-243-10/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://casinonutanlicens.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://casinonutanlicens.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://casinonutanlicens.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://casinonutanlicens.xyz/fix-a-stuck-windows-update/">fix a stuck windows update</a> 
-<a href="https://casinonutanlicens.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://casinonutanlicens.xyz/garbage-disposal-troubleshooting-the-basics-every-homeowner/">garbage disposal troubleshooting the basics every homeowner</a> 
-<a href="https://casinonutanlicens.xyz/gender-neutral-baby-names-explained-and-why-it-matters/">gender neutral baby names explained and why it matters</a> 
-<a href="https://casinonutanlicens.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://casinonutanlicens.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://casinonutanlicens.xyz/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
-<a href="https://casinonutanlicens.xyz/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
