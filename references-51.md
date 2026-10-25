@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-52.md) · [‹ prev](references-50.md)
 
+<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://madeleine-dore.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://madeleine-dore.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://madwirebuild.com/gindex.html">gindex</a> 
+<a href="https://madwirebuild.com/picks.html">picks</a> 
+<a href="https://magenta-arithmetic-409861.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-and-.html">understanding the impact of ai on modern news reporting and</a> 
+<a href="https://magenta-cat-d1eb63.netlify.app/janibd.html">janibd</a> 
+<a href="https://magenta-granita-152aa6.netlify.app/how-much-custom-ai-art-cost.html">how much custom ai art cost</a> 
+<a href="https://magenta-kitsune-fe8c9e.netlify.app/fear-greed.html">fear greed</a> 
+<a href="https://magenta-melba-e4a69c.netlify.app/professional-construction-network.html">professional construction network</a> 
+<a href="https://magenta-sprite-849eb9.netlify.app/making-sense-of-complex-topics-online-explained-simply.html">making sense of complex topics online explained simply</a> 
+<a href="https://magenta-tarsier-440a8e.netlify.app/bitjackpot-de-com.html">bitjackpot de com</a> 
+<a href="https://magical-donut-ca7937.netlify.app/discovering-the-vibrant-world-of-asianpinay-a-deep-dive-into.html">discovering the vibrant world of asianpinay a deep dive into</a> 
+<a href="https://magical-donut-ffdbee.netlify.app/6-kalma-urdu.html">6 kalma urdu</a> 
+<a href="https://magical-sopapillas-5ec3d9.netlify.app/daily-aqi.html">daily aqi</a> 
+<a href="https://magicly.bio/1mother/A-curated-list-of-independent-websites">A curated list of independent websites</a> 
+<a href="https://magicly.bio/1mother/A-few-independent-websites-worth-bookmarking">A few independent websites worth bookmarking</a> 
+<a href="https://magicly.bio/1mother/Independent-sites-and-tools-worth-a-look">Independent sites and tools worth a look</a> 
+<a href="https://magicly.bio/1mother/Independent-websites-worth-bookmarking-a-reading-list">Independent websites worth bookmarking a reading list</a> 
+<a href="https://magicly.bio/1mother/More-independent-publications-to-explore">More independent publications to explore</a> 
+<a href="https://magnificent-dusk-3af8ef.netlify.app/what-to-know-about-simple-habits-of-a-smart-internet-reader.html">what to know about simple habits of a smart internet reader</a> 
 <a href="https://magnificent-kulfi-9ab25c.netlify.app/daily-results-today.html">daily results today</a> 
 <a href="https://magnificent-pony-e115be.netlify.app/a-closer-look-at-what-makes-an-explainer-article-genuinely-u.html">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://magnificent-zabaione-cf1f35.netlify.app/a-simple-framework-for-researching-any-topic-online.html">a simple framework for researching any topic online</a> 
@@ -781,24 +802,3 @@
 <a href="https://metromsk.se.net/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
 <a href="https://metromsk.se.net/how-to-compare-sources-on-the-same-story-the-basics-2/">how to compare sources on the same story the basics 2</a> 
 <a href="https://metromsk.se.net/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
-<a href="https://metromsk.se.net/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://metromsk.se.net/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
-<a href="https://metromsk.se.net/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
-<a href="https://metromsk.se.net/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://metromsk.se.net/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://metromsk.se.net/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
-<a href="https://metromsk.se.net/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://metromsk.se.net/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
-<a href="https://metromsk.se.net/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://metromsk.se.net/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://metromsk.se.net/how-to-find-reliable-how-to-guides-and-why-it-matters-2/">how to find reliable how to guides and why it matters 2</a> 
-<a href="https://metromsk.se.net/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
-<a href="https://metromsk.se.net/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://metromsk.se.net/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://metromsk.se.net/how-to-get-the-most-out-of-online-guides-and-why-it-matters-2/">how to get the most out of online guides and why it matters </a> 
-<a href="https://metromsk.se.net/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://metromsk.se.net/how-to-get-the-most-out-of-online-guides-the-basics-2/">how to get the most out of online guides the basics 2</a> 
-<a href="https://metromsk.se.net/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://metromsk.se.net/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://metromsk.se.net/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://metromsk.se.net/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.ampblogs.com/useful-independent-sites-tools-and-crypto-resources-79844937">useful independent sites tools and crypto resources 79844937</a> 
+<a href="https://1mother.ampedpages.com/a-reading-list-of-independent-news-and-finance-sites-69920791">a reading list of independent news and finance sites 6992079</a> 
+<a href="https://1mother.ampedpages.com/independent-crypto-and-finance-publications-to-bookmark-69920794">independent crypto and finance publications to bookmark 6992</a> 
 <a href="https://1mother.ampedpages.com/more-independent-websites-worth-exploring-69920787">more independent websites worth exploring 69920787</a> 
 <a href="https://1mother.ampedpages.com/useful-independent-sites-tools-and-crypto-resources-69920798">useful independent sites tools and crypto resources 69920798</a> 
 <a href="https://1mother.blog5.net/96799688/independent-websites-worth-bookmarking">independent websites worth bookmarking</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-daily-result-charts-and-staying-up-to-date/">understanding daily result charts and staying up to date</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-60.md) · [‹ prev](references-58.md)
 
+<a href="https://pixect.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://pixect.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://pixect.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
+<a href="https://pixect.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://pixect.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://pixect.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://pixect.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://pixect.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://pixect.xyz/check-matric-results-by-sms-2/">check matric results by sms 2</a> 
+<a href="https://pixect.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
+<a href="https://pixect.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://pixect.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://pixect.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://pixect.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://pixect.xyz/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://pixect.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://pixect.xyz/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://pixect.xyz/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://pixect.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
+<a href="https://pixect.xyz/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
+<a href="https://pixect.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://pixect.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
 <a href="https://pixect.xyz/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
 <a href="https://pixect.xyz/how-crypto-debit-cards-work-and-what-the-fees-really-are/">how crypto debit cards work and what the fees really are</a> 
@@ -781,24 +802,3 @@
 <a href="https://portalnewsletter.co.za/wp/2026/08/13/stay-safe-and-informed-the-latest-online-casino-and-gambling/">stay safe and informed the latest online casino and gambling</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/08/13/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
 <a href="https://portalnewsletter.co.za/wp/2026/08/13/the-art-of-grilling-mastering-techniques-for-perfect-bbq/">the art of grilling mastering techniques for perfect bbq</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/the-future-of-sports-news-how-analytics-and-technology-are-t/">the future of sports news how analytics and technology are t</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/the-rise-of-ai-news-aggregators-transforming-how-we-consume/">the rise of ai news aggregators transforming how we consume</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/the-ultimate-guide-to-choosing-the-perfect-watch-for-every-o/">the ultimate guide to choosing the perfect watch for every o</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/understanding-legal-news-a-guide-to-staying-informed-and-mak/">understanding legal news a guide to staying informed and mak</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/understanding-the-impact-of-ai-on-modern-news-reporting-a-co/">understanding the impact of ai on modern news reporting a co</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/understanding-the-latest-trends-in-news-consumption-and-anal-2/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/unlocking-creativity-how-ai-powered-tools-are-revolutionizin/">unlocking creativity how ai powered tools are revolutionizin</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/unlocking-the-future-how-ai-driven-apps-are-transforming-our/">unlocking the future how ai driven apps are transforming our</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/13/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/14/decoding-today-s-news-expert-analysis-and-insights-for-the-s/">decoding today s news expert analysis and insights for the s</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/14/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/14/mastering-personal-finance-a-strategic-approach-to-business-2/">mastering personal finance a strategic approach to business </a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/14/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/14/mastering-the-art-of-meal-prep-a-comprehensive-guide-to-heal/">mastering the art of meal prep a comprehensive guide to heal</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/14/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon/">navigating the crypto landscape bitcoin blockchain and beyon</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/14/navigating-the-evolving-landscape-of-news-consumption-trends/">navigating the evolving landscape of news consumption trends</a> 
-<a href="https://portalnewsletter.co.za/wp/2026/08/14/navigating-the-future-of-finance-cryptocurrency-bitcoin-and-2/">navigating the future of finance cryptocurrency bitcoin and </a> 

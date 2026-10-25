@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://ezoterizm.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide-3/">how to compare sources on the same story a quick guide 3</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-explained-simply-2/">how to compare sources on the same story explained simply 2</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://ezoterizm.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://ezoterizm.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://ezoterizm.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
+<a href="https://ezoterizm.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
+<a href="https://ezoterizm.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide-2/">how to find balanced coverage of a topic a practical guide 2</a> 
+<a href="https://ezoterizm.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
+<a href="https://ezoterizm.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://ezoterizm.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
+<a href="https://ezoterizm.com/how-to-find-balanced-coverage-of-a-topic-explained-simply-2/">how to find balanced coverage of a topic explained simply 2</a> 
+<a href="https://ezoterizm.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
 <a href="https://ezoterizm.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
 <a href="https://ezoterizm.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://ezoterizm.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
@@ -781,24 +802,3 @@
 <a href="https://fabbusinesssolutions.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
 <a href="https://fabbusinesssolutions.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://fabbusinesssolutions.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-50-resources-worth-bookmarking-94-10-2/">web tech content 50 resources worth bookmarking 94 10 2</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-50-resources-worth-bookmarking-94-10-3/">web tech content 50 resources worth bookmarking 94 10 3</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-50-resources-worth-bookmarking-94-10/">web tech content 50 resources worth bookmarking 94 10</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-94-5/">web tech content a comprehensive guide to navigating the dig</a> 
-<a href="https://fabbusinesssolutions.com/web-tech-content-your-ultimate-guide-to-digital-productivity-94-5/">web tech content your ultimate guide to digital productivity</a> 
-<a href="https://fabbusinesssolutions.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
-<a href="https://fabbusinesssolutions.com/what-a-seed-phrase-is-and-why-it-matters-for-self-custody/">what a seed phrase is and why it matters for self custody</a> 
-<a href="https://fabbusinesssolutions.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://fabbusinesssolutions.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://fabbusinesssolutions.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-compare-sources-on-the-same-story-2/">what to know about how to compare sources on the same story </a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm-2/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-fact-check-something-in-five-minutes/">what to know about how to fact check something in five minut</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-read-the-news-without-getting-over-2/">what to know about how to read the news without getting over</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://fabbusinesssolutions.com/what-to-know-about-how-to-tell-explainer-journalism-from-opinion/">what to know about how to tell explainer journalism from opi</a> 
