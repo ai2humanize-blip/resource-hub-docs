@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.ampedpages.com/more-independent-websites-worth-exploring-69920787">more independent websites worth exploring 69920787</a> 
+<a href="https://1mother.ampedpages.com/useful-independent-sites-tools-and-crypto-resources-69920798">useful independent sites tools and crypto resources 69920798</a> 
+<a href="https://1mother.blog5.net/96799688/independent-websites-worth-bookmarking">independent websites worth bookmarking</a> 
 <a href="https://1mother.blog5.net/96799722/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
 <a href="https://1mother.blog5.net/96799732/a-reading-list-of-independent-sites">a reading list of independent sites</a> 
 <a href="https://1mother.blog5.net/96799738/independent-publications-to-bookmark">independent publications to bookmark</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/understanding-daily-result-charts-and-staying-up-to-date/">understanding daily result charts and staying up to date</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
