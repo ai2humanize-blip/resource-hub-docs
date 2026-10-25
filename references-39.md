@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://ireplicadealers.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://ireplicadealers.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://ireplicadealers.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://ireplicadealers.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://ireplicadealers.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://ireplicadealers.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://ireplicadealers.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://ireplicadealers.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
+<a href="https://ireplicadealers.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://ireplicadealers.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://ireplicadealers.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
 <a href="https://ireplicadealers.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
 <a href="https://ireplicadealers.com/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
@@ -781,24 +802,3 @@
 <a href="https://labmagickite.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
 <a href="https://labmagickite.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://labmagickite.com/boosting-your-business-and-personal-finances-through-strateg/">boosting your business and personal finances through strateg</a> 
-<a href="https://labmagickite.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-i/">breaking down the latest news in depth analysis and expert i</a> 
-<a href="https://labmagickite.com/breaking-down-today-s-top-news-expert-insights-and-analysis/">breaking down today s top news expert insights and analysis</a> 
-<a href="https://labmagickite.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://labmagickite.com/building-a-healthy-daily-reading-habit-and-why-it-matters-2/">building a healthy daily reading habit and why it matters 2</a> 
-<a href="https://labmagickite.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://labmagickite.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://labmagickite.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://labmagickite.com/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://labmagickite.com/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://labmagickite.com/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
-<a href="https://labmagickite.com/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
-<a href="https://labmagickite.com/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne-104-10/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-g-104-5/">demystifying cryptocurrency bitcoin and blockchain a fresh g</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-p-2/">demystifying cryptocurrency bitcoin and blockchain a fresh p</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-fresh-p/">demystifying cryptocurrency bitcoin and blockchain a fresh p</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-2/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-3/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://labmagickite.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
-<a href="https://labmagickite.com/demystifying-web-tech-content-a-comprehensive-guide-to-crypt-104-5/">demystifying web tech content a comprehensive guide to crypt</a> 

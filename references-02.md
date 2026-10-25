@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.alltdesign.com/independent-crypto-and-finance-publications-to-bookmark-61607378">independent crypto and finance publications to bookmark 6160</a> 
+<a href="https://1mother.alltdesign.com/more-independent-websites-worth-exploring-61607372">more independent websites worth exploring 61607372</a> 
+<a href="https://1mother.alltdesign.com/useful-independent-sites-tools-and-crypto-resources-61607380">useful independent sites tools and crypto resources 61607380</a> 
 <a href="https://1mother.ampblogs.com/a-reading-list-of-independent-news-and-finance-sites-79844932">a reading list of independent news and finance sites 7984493</a> 
 <a href="https://1mother.ampblogs.com/independent-crypto-and-finance-publications-to-bookmark-79844935">independent crypto and finance publications to bookmark 7984</a> 
 <a href="https://1mother.ampblogs.com/more-independent-websites-worth-exploring-79844926">more independent websites worth exploring 79844926</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
 <a href="https://agenciainmobiliaria.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 

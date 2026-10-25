@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://frabjous-zabaione-7b8404.netlify.app/casino-utan-spelpaus-explained-a-practical-guide-for-players.html">casino utan spelpaus explained a practical guide for players</a> 
+<a href="https://friendly-pastelito-0b5c84.netlify.app/janibd.html">janibd</a> 
+<a href="https://fujigrouphk.com/gindex.html">gindex</a> 
+<a href="https://fujigrouphk.com/picks.html">picks</a> 
+<a href="https://funny-chimera-c2ef9f.netlify.app/currencynews.html">currencynews</a> 
+<a href="https://gbetlogin.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://gbetlogin.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://gbetlogin.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://gbetlogin.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://gbetlogin.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://gbetlogin.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://gbetlogin.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://gbetlogin.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://gbetlogin.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://gbetlogin.xyz/hello-world/">hello world</a> 
+<a href="https://gbetlogin.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://gbetlogin.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://gbetlogin.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://gbetlogin.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://gbetlogin.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://gbetlogin.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://gbetlogin.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://gentle-concha-28b99d.netlify.app/superlot2-com.html">superlot2 com</a> 
 <a href="https://gentle-kitten-b6b885.netlify.app/why-primary-sources-matter-and-how-to-find-them-a-quick-guid.html">why primary sources matter and how to find them a quick guid</a> 
@@ -781,24 +802,3 @@
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-14/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-15/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-16/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-17/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-18/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-19/">guides reviews how tos 50 resources worth bookmarking 29 6 1</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-2/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-20/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-21/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-22/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-23/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-24/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-25/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-26/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-27/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-28/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-29/">guides reviews how tos 50 resources worth bookmarking 29 6 2</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-3/">guides reviews how tos 50 resources worth bookmarking 29 6 3</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-30/">guides reviews how tos 50 resources worth bookmarking 29 6 3</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-31/">guides reviews how tos 50 resources worth bookmarking 29 6 3</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-32/">guides reviews how tos 50 resources worth bookmarking 29 6 3</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-33/">guides reviews how tos 50 resources worth bookmarking 29 6 3</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-34/">guides reviews how tos 50 resources worth bookmarking 29 6 3</a> 
-<a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-35/">guides reviews how tos 50 resources worth bookmarking 29 6 3</a> 

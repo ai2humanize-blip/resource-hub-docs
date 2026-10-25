@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://better1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://better1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://better1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://better1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://better1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://better1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://bigwin691.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://bigwin691.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://bigwin691.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://bigwin691.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://bigwin691.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://bigwin691.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://bigwin691.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://bigwin691.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://bigwin691.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://bigwin691.xyz/hello-world/">hello world</a> 
+<a href="https://bigwin691.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://bigwin691.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://bigwin691.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://bigwin691.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://bigwin691.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
@@ -784,21 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/reportspedia/">reportspedia</a> 
 <a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-07513b12/">retirewithcrypto 07513b12</a> 
 <a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-166834d6/">retirewithcrypto 166834d6</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-45600585/">retirewithcrypto 45600585</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-4d986fed/">retirewithcrypto 4d986fed</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-5b6ab414/">retirewithcrypto 5b6ab414</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-6d535b20/">retirewithcrypto 6d535b20</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-99a39c44/">retirewithcrypto 99a39c44</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-aed4cf80/">retirewithcrypto aed4cf80</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-c510df78/">retirewithcrypto c510df78</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-d96f857d/">retirewithcrypto d96f857d</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-e0046273/">retirewithcrypto e0046273</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-f31cf501/">retirewithcrypto f31cf501</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto-fb2ae469/">retirewithcrypto fb2ae469</a> 
-<a href="https://boostelearning.mataroa.blog/blog/retirewithcrypto/">retirewithcrypto</a> 
-<a href="https://boostelearning.mataroa.blog/blog/revolutionizing-daily-life-how-ai-powered-apps-are-transforming-the-digital-world/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://boostelearning.mataroa.blog/blog/revolutionizing-daily-life-the-impact-of-apps-on-modern-living/">revolutionizing daily life the impact of apps on modern livi</a> 
-<a href="https://boostelearning.mataroa.blog/blog/ripple-and-xrp-are-not-the-same-thing/">ripple and xrp are not the same thing</a> 
-<a href="https://boostelearning.mataroa.blog/blog/rwa-perpetual-futures-trading-volume-approaches-bitcoin-hyperliquid/">rwa perpetual futures trading volume approaches bitcoin hype</a> 
-<a href="https://boostelearning.mataroa.blog/blog/sabiguide-0cd69fd3/">sabiguide 0cd69fd3</a> 
-<a href="https://boostelearning.mataroa.blog/blog/sabiguide-470d4d2c/">sabiguide 470d4d2c</a> 
