@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-58.md) · [‹ prev](references-56.md)
 
+<a href="https://nicecitydatecraze.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://nicecitydatecraze.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://nicecitydatecraze.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://nicecitydatecraze.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://nicecitydatecraze.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
+<a href="https://obesetuber.com/10-essential-tips-for-boosting-your-website-s-seo-in-2023/">10 essential tips for boosting your website s seo in 2023</a> 
+<a href="https://obesetuber.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-surnames-get-their-meanings/">a closer look at how surnames get their meanings</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini-2/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://obesetuber.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://obesetuber.com/a-closer-look-at-the-difference-between-skimming-and-deep-re-2/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://obesetuber.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://obesetuber.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
+<a href="https://obesetuber.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
+<a href="https://obesetuber.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://obesetuber.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find-2/">a closer look at why primary sources matter and how to find </a> 
+<a href="https://obesetuber.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://obesetuber.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://obesetuber.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://obesetuber.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
@@ -781,24 +802,3 @@
 <a href="https://palacsintarecept.hu.net/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
 <a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill-2/">what to know about how to use the web to learn a new skill 2</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill-3/">what to know about how to use the web to learn a new skill 3</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://palacsintarecept.hu.net/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://palacsintarecept.hu.net/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://palacsintarecept.hu.net/what-to-look-for-in-a-good-news-website-explained-simply-2/">what to look for in a good news website explained simply 2</a> 
-<a href="https://palacsintarecept.hu.net/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://palacsintarecept.hu.net/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
-<a href="https://palacsintarecept.hu.net/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
-<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 

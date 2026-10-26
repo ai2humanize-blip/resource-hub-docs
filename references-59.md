@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-60.md) · [‹ prev](references-58.md)
 
+<a href="https://phwin99login.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://phwin99login.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://phwin99login.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://phwin99login.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://phwin99login.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://phwin99login.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://phwin99login.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://phwin99login.xyz/hello-world/">hello world</a> 
+<a href="https://phwin99login.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://phwin99login.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://phwin99login.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://phwin99login.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://phwin99login.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://phwin99login.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://phwin99login.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://pinasscatter.xyz/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://pinasscatter.xyz/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://pinasscatter.xyz/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://pinasscatter.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://pinasscatter.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://pinasscatter.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://pinasscatter.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://pinasscatter.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
 <a href="https://pinasscatter.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
@@ -781,24 +802,3 @@
 <a href="https://polovnakola.com/staying-informed-top-news-sources-and-analysis-for-2023/">staying informed top news sources and analysis for 2023</a> 
 <a href="https://polovnakola.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
 <a href="https://polovnakola.com/staying-safe-and-informed-the-latest-online-casino-and-gambl-2/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://polovnakola.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://polovnakola.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://polovnakola.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://polovnakola.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://polovnakola.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://polovnakola.com/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
-<a href="https://polovnakola.com/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
-<a href="https://polovnakola.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
-<a href="https://polovnakola.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://polovnakola.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://polovnakola.com/the-future-of-communication-how-apps-are-transforming-digita/">the future of communication how apps are transforming digita</a> 
-<a href="https://polovnakola.com/the-future-of-digital-news-emerging-trends-and-analysis-for/">the future of digital news emerging trends and analysis for</a> 
-<a href="https://polovnakola.com/the-future-of-sports-news-how-analytics-and-technology-are-t/">the future of sports news how analytics and technology are t</a> 
-<a href="https://polovnakola.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
-<a href="https://polovnakola.com/the-rise-of-ai-in-news-reporting-current-trends-and-future-i/">the rise of ai in news reporting current trends and future i</a> 
-<a href="https://polovnakola.com/the-rise-of-ai-powered-apps-transforming-our-digital-lives/">the rise of ai powered apps transforming our digital lives</a> 
-<a href="https://polovnakola.com/the-rise-of-sustainable-fashion-how-eco-friendly-choices-are/">the rise of sustainable fashion how eco friendly choices are</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading-a-quick-guide-2/">the value of slow careful reading a quick guide 2</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 

@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://capable-maamoul-d601fe.netlify.app/festivals.html">festivals</a> 
+<a href="https://capable-quokka-c82da3.netlify.app/travel-connectivity-basics.html">travel connectivity basics</a> 
+<a href="https://captainjackinterview.com/a-2023-fall-fashion-trends-elevate-your-style-with-these-fre/">a 2023 fall fashion trends elevate your style with these fre</a> 
+<a href="https://captainjackinterview.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-read-the-news-without-getting-overwhelmed/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://captainjackinterview.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://captainjackinterview.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://captainjackinterview.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://captainjackinterview.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
@@ -64,6 +82,9 @@
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-41/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-42/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-43/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-44/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-45/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-46/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-5/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-6/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-7/">business finance productivity 50 resources worth bookmarking</a> 
@@ -781,24 +802,3 @@
 <a href="https://casacours.uk.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
 <a href="https://casacours.uk.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
 <a href="https://casacours.uk.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
-<a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
-<a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://casacours.uk.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://casacours.uk.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
-<a href="https://casacours.uk.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
-<a href="https://casacours.uk.com/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
-<a href="https://casacours.uk.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://casacours.uk.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://casacours.uk.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://casacours.uk.com/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
-<a href="https://casacours.uk.com/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
-<a href="https://casacours.uk.com/what-makes-a-website-easy-and-pleasant-to-read/">what makes a website easy and pleasant to read</a> 
-<a href="https://casacours.uk.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://casacours.uk.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://casacours.uk.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
-<a href="https://casacours.uk.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://casacours.uk.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
-<a href="https://casacours.uk.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://casacours.uk.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://casacours.uk.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://casacours.uk.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 

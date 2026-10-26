@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-59.md) · [‹ prev](references-57.md)
 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill-3/">what to know about how to use the web to learn a new skill 3</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://palacsintarecept.hu.net/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://palacsintarecept.hu.net/what-to-look-for-in-a-good-news-website-explained-simply-2/">what to look for in a good news website explained simply 2</a> 
+<a href="https://palacsintarecept.hu.net/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://palacsintarecept.hu.net/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
+<a href="https://palacsintarecept.hu.net/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
 <a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-quick-guide-2/">why niche blogs still matter a quick guide 2</a> 
 <a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
 <a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
@@ -781,24 +802,3 @@
 <a href="https://phspin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://phwin99login.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://phwin99login.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://phwin99login.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://phwin99login.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://phwin99login.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://phwin99login.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://phwin99login.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://phwin99login.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://phwin99login.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://phwin99login.xyz/hello-world/">hello world</a> 
-<a href="https://phwin99login.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://phwin99login.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://phwin99login.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://phwin99login.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://phwin99login.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://phwin99login.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://phwin99login.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://pinasscatter.xyz/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://pinasscatter.xyz/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://pinasscatter.xyz/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://pinasscatter.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://pinasscatter.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://pinasscatter.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 

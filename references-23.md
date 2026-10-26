@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-in-the-web-tech-content-landscape-4ecm">why niche blogs still matter in the web tech content landsca</a> 
+<a href="https://dev.to/ai2humanizeblip/why-niche-digital-publications-are-winning-the-modern-newsroom-538j">why niche digital publications are winning the modern newsro</a> 
+<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-3op8">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-52g2">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://dinxsh.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://dinxsh.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://dinxsh.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://dinxsh.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://dinxsh.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://dinxsh.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://dinxsh.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://dinxsh.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://dinxsh.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://dinxsh.xyz/hello-world/">hello world</a> 
+<a href="https://dinxsh.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://dinxsh.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://dinxsh.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://dinxsh.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://dinxsh.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://dinxsh.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://dinxsh.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://docs.google.com/document/d/e/2PACX-1vSDSa_NYUlW-I8JNaAh_Ty7JpB-3xWuCxpd4BeJ9_rLoa-P4SRwpxfNVR_zGlDaqnJUm1f5p6dDfBF9/pub">pub</a> 
 <a href="https://domain.glass/2forksevents.com">2forksevents.com</a> 
 <a href="https://domain.glass/360sportnews.com">360sportnews.com</a> 
@@ -781,24 +802,3 @@
 <a href="https://ecomhuntreviews.com/what-a-seed-phrase-is-and-why-it-matters-for-self-custody/">what a seed phrase is and why it matters for self custody</a> 
 <a href="https://ecomhuntreviews.com/what-makes-a-baby-name-feel-timeless-a-practical-guide/">what makes a baby name feel timeless a practical guide</a> 
 <a href="https://ecomhuntreviews.com/what-makes-a-website-easy-and-pleasant-to-read/">what makes a website easy and pleasant to read</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful-2/">what makes an explainer article genuinely useful 2</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online-3/">what to know about recognizing credible experts online 3</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://ecomhuntreviews.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://ecomhuntreviews.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://ecomhuntreviews.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://ecomhuntreviews.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 

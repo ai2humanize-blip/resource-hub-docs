@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://illicitlabel.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-2/">how to evaluate online reviews and recommendations 2</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g-2/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://illicitlabel.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte-3/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://illicitlabel.com/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://illicitlabel.com/how-to-find-balanced-coverage-of-a-topic-2/">how to find balanced coverage of a topic 2</a> 
+<a href="https://illicitlabel.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
+<a href="https://illicitlabel.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://illicitlabel.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
+<a href="https://illicitlabel.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
+<a href="https://illicitlabel.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
+<a href="https://illicitlabel.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
 <a href="https://illicitlabel.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
 <a href="https://illicitlabel.com/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
 <a href="https://illicitlabel.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
@@ -781,24 +802,3 @@
 <a href="https://ipfs.filebase.io/ipfs/QmWKKDrBKHCuyCsvUV75zkuasBydNVdNNDs58b384Mg7Yw">QmWKKDrBKHCuyCsvUV75zkuasBydNVdNNDs58b384Mg7Yw</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmWLKpCWW1WnpwFJUrAa2RABJd7xD6MhxUkirseyVGHsFZ">QmWLKpCWW1WnpwFJUrAa2RABJd7xD6MhxUkirseyVGHsFZ</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmWLioNDELU8cGN2DLZJwMkHFwcBmeSbzJMfoZTR6jE8eb">QmWLioNDELU8cGN2DLZJwMkHFwcBmeSbzJMfoZTR6jE8eb</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmWVyRaQ17RNApRBZgtUvn7jKiNVJCPhdLPd8tjSPCFxdX">QmWVyRaQ17RNApRBZgtUvn7jKiNVJCPhdLPd8tjSPCFxdX</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmWcx4NDDs2ifF5YoLuSjeC4MAfg42RJGaKdstkt8DXmsZ">QmWcx4NDDs2ifF5YoLuSjeC4MAfg42RJGaKdstkt8DXmsZ</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmWdd9Qzpgr1kesNVUbsbfWCaNRaCstgkNQ9KD5CvKEPeP">QmWdd9Qzpgr1kesNVUbsbfWCaNRaCstgkNQ9KD5CvKEPeP</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmWfDwsezjZcYWYDyTG26iVwpLKtkKHKAEA9nRR2EZav6f">QmWfDwsezjZcYWYDyTG26iVwpLKtkKHKAEA9nRR2EZav6f</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmWhNr4QUMfJDgF15YdqK8yJgnAcmjo2GXvMwBxcBhCni4">QmWhNr4QUMfJDgF15YdqK8yJgnAcmjo2GXvMwBxcBhCni4</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmWqFCSRfr7SCnTSL6xqsVfSm2Zp363FkFCTxdakvJg3kU">QmWqFCSRfr7SCnTSL6xqsVfSm2Zp363FkFCTxdakvJg3kU</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmWqm2F9QbKhetquJ4i6RxfqMDVievw674jbtuxQ18cYqd">QmWqm2F9QbKhetquJ4i6RxfqMDVievw674jbtuxQ18cYqd</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmWtPJZzdV8t91Wuosb3HMMyVnNrvzrJqCdXdkCZHrx4ii">QmWtPJZzdV8t91Wuosb3HMMyVnNrvzrJqCdXdkCZHrx4ii</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmWz7Rsamzi1Y1grkx2fDY5uzGu8CRYeseFsVySLJWPwsH">QmWz7Rsamzi1Y1grkx2fDY5uzGu8CRYeseFsVySLJWPwsH</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmX2FGeJGN49xorEdPwzywvFnKZ2BwkwgJiZKnNAQBYAdS">QmX2FGeJGN49xorEdPwzywvFnKZ2BwkwgJiZKnNAQBYAdS</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmX9ukeqpt4Ch21evfvoUWeKsG1NKSd3T8FD7oxaxQ1tFF">QmX9ukeqpt4Ch21evfvoUWeKsG1NKSd3T8FD7oxaxQ1tFF</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmX9xuPWBpnGT7Ku3P6tQceMkEPX43X9j1ieNMWB1pdZtj">QmX9xuPWBpnGT7Ku3P6tQceMkEPX43X9j1ieNMWB1pdZtj</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXSZ2tsNiqHheidwzvxwxTQT5WYFUPQGHt73gvx3visg2">QmXSZ2tsNiqHheidwzvxwxTQT5WYFUPQGHt73gvx3visg2</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp">QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA">QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW">QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmXrwtRqLoHJXTuExRKjzTqNzfSAJMUNqEtmN9gkxrSw8z">QmXrwtRqLoHJXTuExRKjzTqNzfSAJMUNqEtmN9gkxrSw8z</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw">QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp">QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa">QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc">QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc</a> 

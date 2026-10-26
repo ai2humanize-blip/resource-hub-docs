@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother-ls-simple-habits-of-a-smart-internet-reader.static.hf.space/">1mother-ls-simple-habits-of-a-smart-internet-reader.static.hf.space</a> 
+<a href="https://1mother-ls-the-difference-between-skimming-and-deep-reading-online-and.static.hf.space/">1mother-ls-the-difference-between-skimming-and-deep-reading-online-and.static.hf.space</a> 
+<a href="https://1mother-ls-understanding-digital-literacy-explained-simply.static.hf.space/">1mother-ls-understanding-digital-literacy-explained-simply.static.hf.space</a> 
 <a href="https://1mother-ls-understanding-how-search-engines-rank-pages-and-why-it-matte.static.hf.space/">1mother-ls-understanding-how-search-engines-rank-pages-and-why-it-matte.static.hf.space</a> 
 <a href="https://1mother-ls-what-to-know-about-how-to-bookmark-and-revisit-useful-resour.static.hf.space/">1mother-ls-what-to-know-about-how-to-bookmark-and-revisit-useful-resour.static.hf.space</a> 
 <a href="https://1mother-ls-what-to-know-about-how-to-build-a-personal-reading-list.static.hf.space/">1mother-ls-what-to-know-about-how-to-build-a-personal-reading-list.static.hf.space</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://agenciainmobiliaria.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
 <a href="https://agenciainmobiliaria.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
-<a href="https://agenciainmobiliaria.xyz/print-on-demand-economics/">print on demand economics</a> 
-<a href="https://agenciainmobiliaria.xyz/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
-<a href="https://agenciainmobiliaria.xyz/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
