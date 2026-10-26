@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://casacours.uk.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://casacours.uk.com/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
+<a href="https://casacours.uk.com/stubble-burning-and-winter-smog-in-north-india-why-air-quali/">stubble burning and winter smog in north india why air quali</a> 
+<a href="https://casacours.uk.com/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
+<a href="https://casacours.uk.com/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
+<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://casacours.uk.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://casacours.uk.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://casacours.uk.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
+<a href="https://casacours.uk.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://casacours.uk.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://casacours.uk.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
+<a href="https://casacours.uk.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
+<a href="https://casacours.uk.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://casacours.uk.com/understanding-baby-name-origins-across-cultures-and-language-2/">understanding baby name origins across cultures and language</a> 
+<a href="https://casacours.uk.com/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
+<a href="https://casacours.uk.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://casacours.uk.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
+<a href="https://casacours.uk.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
 <a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
 <a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://casacours.uk.com/understanding-digital-literacy/">understanding digital literacy</a> 
@@ -781,24 +802,3 @@
 <a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-19/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-83-3-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-83-3-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-83-3-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-83-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://cbd-stone.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://cbd-stone.com/understanding-digital-literacy-2/">understanding digital literacy 2</a> 
-<a href="https://cbd-stone.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 

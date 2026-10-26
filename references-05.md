@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-how-to-build-a-personal-reading-list.html">what to know about how to build a personal reading list</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-how-to-compare-sources-on-the-same-story.html">what to know about how to compare sources on the same story</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-how-to-evaluate-online-reviews-and-recomm.html">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-how-to-find-balanced-coverage-of-a-topic.html">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-making-sense-of-complex-topics-online.html">what to know about making sense of complex topics online</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-recognizing-credible-experts-online.html">what to know about recognizing credible experts online</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-the-value-of-slow-careful-reading.html">what to know about the value of slow careful reading</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-understanding-how-search-engines-rank-pag.html">what to know about understanding how search engines rank pag</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-know-about-what-to-look-for-in-a-good-news-website.html">what to know about what to look for in a good news website</a> 
@@ -486,6 +492,7 @@
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-gamers-and-tech-77-6/">essential digital tools online resources for gamers and tech</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-islamic-practic-77-6/">essential digital tools online resources for islamic practic</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-cities-a-77-6/">essential digital tools online resources for modern cities a</a> 
+<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-entrepre-77-6/">essential digital tools online resources for modern entrepre</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-learning-77-6/">essential digital tools online resources for modern learning</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-10/">essential digital tools online resources for modern living 7</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-living-77-6-2/">essential digital tools online resources for modern living 7</a> 
@@ -512,6 +519,7 @@
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-2/">essential digital tools online resources for modern professi</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-3/">essential digital tools online resources for modern professi</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-4/">essential digital tools online resources for modern professi</a> 
+<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-5/">essential digital tools online resources for modern professi</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6/">essential digital tools online resources for modern professi</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-readers-77-6/">essential digital tools online resources for modern readers </a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-users-77-6/">essential digital tools online resources for modern users 77</a> 
@@ -540,6 +548,7 @@
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-4/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-5/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-6/">exploring essential digital tools online resources for crypt</a> 
+<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-7/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-1-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-1/">exploring essential digital tools online resources for moder</a> 
@@ -793,12 +802,3 @@
 <a href="https://algiamedical.com/mastering-the-art-of-growing-your-own-herb-garden-a-beginner/">mastering the art of growing your own herb garden a beginner</a> 
 <a href="https://algiamedical.com/mastering-the-art-of-link-building-choosing-the-right-smartw-77-3/">mastering the art of link building choosing the right smartw</a> 
 <a href="https://algiamedical.com/mastering-the-art-of-online-music-discovery-a-practical-guid-77-7/">mastering the art of online music discovery a practical guid</a> 
-<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-77-7-2/">mastering web tech content a comprehensive guide 77 7 2</a> 
-<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-77-7-3/">mastering web tech content a comprehensive guide 77 7 3</a> 
-<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-77-7-4/">mastering web tech content a comprehensive guide 77 7 4</a> 
-<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-77-7-5/">mastering web tech content a comprehensive guide 77 7 5</a> 
-<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-77-7/">mastering web tech content a comprehensive guide 77 7</a> 
-<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-77-7/">mastering web tech content a comprehensive guide for modern </a> 
-<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-77-7/">mastering web tech content a comprehensive guide for savvy r</a> 
-<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-u-77-7/">mastering web tech content a comprehensive guide for savvy u</a> 
-<a href="https://algiamedical.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-77-7-2/">mastering web tech content a comprehensive guide for smart r</a> 
