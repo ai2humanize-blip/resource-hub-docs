@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q">QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj">QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmR4xtwTnEELKdog7g5o2oDAhK2te5DaL6EnBT8qrqcGT2">QmR4xtwTnEELKdog7g5o2oDAhK2te5DaL6EnBT8qrqcGT2</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmR6yYAJY8BgFp8fgEbgn9cz6s8XtRR6XhkYMcdJrZCsDR">QmR6yYAJY8BgFp8fgEbgn9cz6s8XtRR6XhkYMcdJrZCsDR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRCWGVgoY2YPD631LQi59WQsCLTSQTZn2DYYu6pXvhdhX">QmRCWGVgoY2YPD631LQi59WQsCLTSQTZn2DYYu6pXvhdhX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRRVnEzKd6X7iGZAnRCEvUD9znyvcbmey9LbU6WhRsSJ3">QmRRVnEzKd6X7iGZAnRCEvUD9znyvcbmey9LbU6WhRsSJ3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRS59sEKDB3PAUoXY83riuwfpqZwKGeMMRvr7ttgDnytJ">QmRS59sEKDB3PAUoXY83riuwfpqZwKGeMMRvr7ttgDnytJ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRVejWUaeMDvzJzxprsFFjMWwkU2BEhPS3rPHz5wtzRzS">QmRVejWUaeMDvzJzxprsFFjMWwkU2BEhPS3rPHz5wtzRzS</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRWEA618P2aAnwY6h5RqEGpjS19PSzAJLDqjhPvqnHvAE">QmRWEA618P2aAnwY6h5RqEGpjS19PSzAJLDqjhPvqnHvAE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRYm8ubsn9RNr3XQpXqpbmQcJHQAdsLqkV6xbKmMnAcfP">QmRYm8ubsn9RNr3XQpXqpbmQcJHQAdsLqkV6xbKmMnAcfP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRavaF6wv3PURMCJ7AYXh67Jesah2N6iw1nCcM4gJSXGj">QmRavaF6wv3PURMCJ7AYXh67Jesah2N6iw1nCcM4gJSXGj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRbTAfyQN5axnnCWN3KBqA22Aqd4AGY2kbr7YxNSJD5Qg">QmRbTAfyQN5axnnCWN3KBqA22Aqd4AGY2kbr7YxNSJD5Qg</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRcKfQy2ZxAZitBSvXD3DViSeiE9XSscPCFNRTZro3FJn">QmRcKfQy2ZxAZitBSvXD3DViSeiE9XSscPCFNRTZro3FJn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRiTnwttz3tfxjfbx1NcHPmeTxKf5ioRcnQEnYznt16uA">QmRiTnwttz3tfxjfbx1NcHPmeTxKf5ioRcnQEnYznt16uA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRkjpyPoqicaa3C18UpAKdoLpbGjiFPF7VTniZSun2gmz">QmRkjpyPoqicaa3C18UpAKdoLpbGjiFPF7VTniZSun2gmz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRnaVrX7KFAzUpgH7ob8B3sqyEhcCehk4vkZrGmj9Dx7S">QmRnaVrX7KFAzUpgH7ob8B3sqyEhcCehk4vkZrGmj9Dx7S</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRvnygAjp6ZBDYa8oPp6Vhfnu4sbepZhr6U8V3wB3oApY">QmRvnygAjp6ZBDYa8oPp6Vhfnu4sbepZhr6U8V3wB3oApY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmRyMABoYnhFgxkECFXT2eKTemfyxHypKnEezi1qprqePf">QmRyMABoYnhFgxkECFXT2eKTemfyxHypKnEezi1qprqePf</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS33rHiCNQbsDUsfhcHrk54eQCtVzHh2SWW4bjZsJxDmX">QmS33rHiCNQbsDUsfhcHrk54eQCtVzHh2SWW4bjZsJxDmX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS42wJKsqMr85MHvwGoJeYKksPmQd8ajHXNayoERZKJWR">QmS42wJKsqMr85MHvwGoJeYKksPmQd8ajHXNayoERZKJWR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmS6MRCZEZmqmVaxQ832ywKMhJhWZntHkBv1tZQmB7N8t1">QmS6MRCZEZmqmVaxQ832ywKMhJhWZntHkBv1tZQmB7N8t1</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmSBSKQEmT89VBXpxj2eHChF9c9hLHh79PYJqVeWBPaVCF">QmSBSKQEmT89VBXpxj2eHChF9c9hLHh79PYJqVeWBPaVCF</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmSCxtJ3xB6NC332YgtDY1wVRhiUtsZGfy5kL3eQJWfa1c">QmSCxtJ3xB6NC332YgtDY1wVRhiUtsZGfy5kL3eQJWfa1c</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmSZcGqrWKrQr69kT3vFcVGLKRUfjNy7jgdy7GskuYY1M6">QmSZcGqrWKrQr69kT3vFcVGLKRUfjNy7jgdy7GskuYY1M6</a> 
@@ -781,24 +802,3 @@
 <a href="https://jollibeecasino.xyz/a-practical-guide-to-understanding-off-page-seo/">a practical guide to understanding off page seo</a> 
 <a href="https://jollibeecasino.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://jollibeecasino.xyz/a-practical-introduction-to-travel-insurance-for-internation/">a practical introduction to travel insurance for internation</a> 
-<a href="https://jollibeecasino.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://jollibeecasino.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://jollibeecasino.xyz/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
-<a href="https://jollibeecasino.xyz/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://jollibeecasino.xyz/arcenturf-co-resource-3-2/">arcenturf co resource 3 2</a> 
-<a href="https://jollibeecasino.xyz/arcenturf-co-resource-3/">arcenturf co resource 3</a> 
-<a href="https://jollibeecasino.xyz/bettingagescom-net-resource-3/">bettingagescom net resource 3</a> 
-<a href="https://jollibeecasino.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://jollibeecasino.xyz/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://jollibeecasino.xyz/building-a-healthy-daily-reading-habit-explained-simply-2/">building a healthy daily reading habit explained simply 2</a> 
-<a href="https://jollibeecasino.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://jollibeecasino.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://jollibeecasino.xyz/common-questions-about-daily-prayer-times-answered/">common questions about daily prayer times answered</a> 
-<a href="https://jollibeecasino.xyz/common-questions-about-indonesian-documents-and-services-ans/">common questions about indonesian documents and services ans</a> 
-<a href="https://jollibeecasino.xyz/common-questions-about-the-air-quality-index-answered/">common questions about the air quality index answered</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-10/">common questions answered 10</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-11/">common questions answered 11</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-12/">common questions answered 12</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-13/">common questions answered 13</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-14/">common questions answered 14</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-15/">common questions answered 15</a> 

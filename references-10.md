@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://autumnfallsinterview.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://autumnfallsinterview.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
+<a href="https://autumnfallsinterview.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://autumnfallsinterview.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://autumnfallsinterview.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://autumnfallsinterview.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://autumnfallsinterview.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
@@ -76,9 +91,11 @@
 <a href="https://bandemusic.com/comprehensive-guides-in-depth-reviews-and-step-by-step-how-t-81-9/">comprehensive guides in depth reviews and step by step how t</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-empowering-your-cry-81-9/">comprehensive guides reviews and how tos empowering your cry</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-empowering-your-kno-81-9/">comprehensive guides reviews and how tos empowering your kno</a> 
+<a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-for-crypto-and-stoc-81-9/">comprehensive guides reviews and how tos for crypto and stoc</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-81-9-2/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-81-9-3/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-81-9-4/">comprehensive guides reviews and how tos for crypto enthusia</a> 
+<a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-81-9-5/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-for-crypto-enthusia-81-9/">comprehensive guides reviews and how tos for crypto enthusia</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-for-every-need-81-4/">comprehensive guides reviews and how tos for every need 81 4</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-for-modern-enthusia-81-9-2/">comprehensive guides reviews and how tos for modern enthusia</a> 
@@ -89,6 +106,7 @@
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-navigating-online-c-81-9/">comprehensive guides reviews and how tos navigating online c</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-navigating-the-cryp-81-9/">comprehensive guides reviews and how tos navigating the cryp</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-navigating-the-worl-81-9/">comprehensive guides reviews and how tos navigating the worl</a> 
+<a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-your-go-to-resource-81-9/">comprehensive guides reviews and how tos your go to resource</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-81-9-2/">comprehensive guides reviews and how tos your ultimate resou</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-81-9-3/">comprehensive guides reviews and how tos your ultimate resou</a> 
 <a href="https://bandemusic.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-81-9-4/">comprehensive guides reviews and how tos your ultimate resou</a> 
@@ -784,21 +802,3 @@
 <a href="https://be1.ru/stat/coincrafty.com">coincrafty.com</a> 
 <a href="https://be1.ru/stat/coinculb.com">coinculb.com</a> 
 <a href="https://be1.ru/stat/coingsty.com">coingsty.com</a> 
-<a href="https://be1.ru/stat/coinnews.de.com">coinnews.de.com</a> 
-<a href="https://be1.ru/stat/coinpric.com">coinpric.com</a> 
-<a href="https://be1.ru/stat/conisec.com">conisec.com</a> 
-<a href="https://be1.ru/stat/cplemaire.co">cplemaire.co</a> 
-<a href="https://be1.ru/stat/criptano.com">criptano.com</a> 
-<a href="https://be1.ru/stat/crunchbanglinux.org">crunchbanglinux.org</a> 
-<a href="https://be1.ru/stat/crypto-house.net">crypto house.net</a> 
-<a href="https://be1.ru/stat/cryptocardscout.com">cryptocardscout.com</a> 
-<a href="https://be1.ru/stat/cryptocirclex.com">cryptocirclex.com</a> 
-<a href="https://be1.ru/stat/cryptocomman.com">cryptocomman.com</a> 
-<a href="https://be1.ru/stat/cryptocurrencyminers.net">cryptocurrencyminers.net</a> 
-<a href="https://be1.ru/stat/cryptonews.co.bz">cryptonews.co.bz</a> 
-<a href="https://be1.ru/stat/cryptonewsus.com">cryptonewsus.com</a> 
-<a href="https://be1.ru/stat/cryptopronetworkcom.org">cryptopronetworkcom.org</a> 
-<a href="https://be1.ru/stat/cryptorublecoins.com">cryptorublecoins.com</a> 
-<a href="https://be1.ru/stat/cubednews.com">cubednews.com</a> 
-<a href="https://be1.ru/stat/currencynews.co">currencynews.co</a> 
-<a href="https://be1.ru/stat/cyberkannadigs.org">cyberkannadigs.org</a> 

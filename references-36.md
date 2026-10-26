@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://haomvc.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://haomvc.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://haomvc.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://haomvc.com/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
+<a href="https://harjuno.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://harjuno.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://harjuno.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://harjuno.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://harjuno.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://harjuno.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://harjuno.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://harjuno.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://harjuno.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://harjuno.xyz/hello-world/">hello world</a> 
+<a href="https://harjuno.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://harjuno.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://harjuno.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://harjuno.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://harjuno.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://harjuno.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://harjuno.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://harmonious-puppy-c6e98b.netlify.app/ai-policy.html">ai policy</a> 
 <a href="https://harmonious-snickerdoodle-5055c0.netlify.app/practical-tech-tips-for-everyday-digital-life.html">practical tech tips for everyday digital life</a> 
 <a href="https://harmonious-tulumba-dcc343.netlify.app/how-to-evaluate-20-minimum-deposit-casinos-before.html">how to evaluate 20 minimum deposit casinos before</a> 
@@ -781,24 +802,3 @@
 <a href="https://hedaroibergroup.com/navigating-the-modern-news-landscape-ai-trends-and-reliable-100-9/">navigating the modern news landscape ai trends and reliable </a> 
 <a href="https://hedaroibergroup.com/navigating-the-modern-news-landscape-trends-ai-and-reliable-100-9/">navigating the modern news landscape trends ai and reliable </a> 
 <a href="https://hedaroibergroup.com/navigating-the-news-landscape-guides-reviews-and-how-tos-for-100-10/">navigating the news landscape guides reviews and how tos for</a> 
-<a href="https://hedaroibergroup.com/navigating-the-shifting-tides-of-2023-news-in-depth-analysis-100-9/">navigating the shifting tides of 2023 news in depth analysis</a> 
-<a href="https://hedaroibergroup.com/navigating-the-web-a-comprehensive-guide-to-tech-content-and-100-9-2/">navigating the web a comprehensive guide to tech content and</a> 
-<a href="https://hedaroibergroup.com/navigating-the-web-a-comprehensive-guide-to-tech-content-and-100-9/">navigating the web a comprehensive guide to tech content and</a> 
-<a href="https://hedaroibergroup.com/navigating-the-web-tech-content-a-comprehensive-guide-for-sm-100-9/">navigating the web tech content a comprehensive guide for sm</a> 
-<a href="https://hedaroibergroup.com/navigating-the-web-tech-content-landscape-a-comprehensive-gu-100-9-2/">navigating the web tech content landscape a comprehensive gu</a> 
-<a href="https://hedaroibergroup.com/navigating-the-web-tech-content-landscape-a-comprehensive-gu-100-9/">navigating the web tech content landscape a comprehensive gu</a> 
-<a href="https://hedaroibergroup.com/navigating-today-s-news-guides-reviews-and-how-tos-for-infor-100-10/">navigating today s news guides reviews and how tos for infor</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-and-content-a-comprehensive-guide-for-cr-100-9/">navigating web tech and content a comprehensive guide for cr</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-100-9-2/">navigating web tech content a comprehensive guide 100 9 2</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-100-9/">navigating web tech content a comprehensive guide 100 9</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-100-9-2/">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-100-9-3/">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-100-9/">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-to-digital-100-9/">navigating web tech content a comprehensive guide to digital</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-to-informe-100-9-2/">navigating web tech content a comprehensive guide to informe</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-to-informe-100-9/">navigating web tech content a comprehensive guide to informe</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-to-online-100-9/">navigating web tech content a comprehensive guide to online </a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-to-reliabl-100-9-2/">navigating web tech content a comprehensive guide to reliabl</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-to-reliabl-100-9-3/">navigating web tech content a comprehensive guide to reliabl</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-to-reliabl-100-9/">navigating web tech content a comprehensive guide to reliabl</a> 
-<a href="https://hedaroibergroup.com/navigating-web-tech-content-a-comprehensive-guide-to-staying-100-9/">navigating web tech content a comprehensive guide to staying</a> 

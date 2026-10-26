@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-bitcoin-btc-how-it-works.html">what is bitcoin btc how it works</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-crypto-wallet-how-to-keep.html">what is crypto wallet how to keep</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-layer.html">what is layer</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-learning-management-system.html">what is learning management system</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-urban-air-mobility-evtol.html">what is urban air mobility evtol</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/what-makes-a-multi-topic-blog-worth-following.html">what makes a multi topic blog worth following</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-makes-an-explainer-article-genuinely-useful-the-basics.html">what makes an explainer article genuinely useful the basics</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-makes-an-explainer-article-genuinely-useful.html">what makes an explainer article genuinely useful</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-market-cap-does-not-tell.html">what market cap does not tell</a> 
@@ -528,6 +534,7 @@
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-4/">essential digital tools online resources for modern professi</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-5/">essential digital tools online resources for modern professi</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-6/">essential digital tools online resources for modern professi</a> 
+<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-7/">essential digital tools online resources for modern professi</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6/">essential digital tools online resources for modern professi</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-readers-77-6/">essential digital tools online resources for modern readers </a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-users-77-6/">essential digital tools online resources for modern users 77</a> 
@@ -566,6 +573,8 @@
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-13/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-14/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-15/">exploring essential digital tools online resources for moder</a> 
+<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-16/">exploring essential digital tools online resources for moder</a> 
+<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-17/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-3/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-4/">exploring essential digital tools online resources for moder</a> 
@@ -793,12 +802,3 @@
 <a href="https://algiamedical.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-77-8/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://algiamedical.com/mastering-online-reading-guides-reviews-how-tos-for-smarter-77-8/">mastering online reading guides reviews how tos for smarter </a> 
 <a href="https://algiamedical.com/mastering-online-reading-research-and-safety-a-comprehensive-77-8/">mastering online reading research and safety a comprehensive</a> 
-<a href="https://algiamedical.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-77-8/">mastering online research guides reviews and how tos for sav</a> 
-<a href="https://algiamedical.com/mastering-online-research-guides-reviews-and-how-tos-for-the-77-8/">mastering online research guides reviews and how tos for the</a> 
-<a href="https://algiamedical.com/mastering-online-research-guides-reviews-how-tos-for-effecti-77-8/">mastering online research guides reviews how tos for effecti</a> 
-<a href="https://algiamedical.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-77-3/">mastering online research guides reviews how tos for savvy r</a> 
-<a href="https://algiamedical.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-77-8/">mastering online research guides reviews how tos for smart l</a> 
-<a href="https://algiamedical.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-77-8/">mastering online research guides reviews how tos for smart r</a> 
-<a href="https://algiamedical.com/mastering-online-research-guides-reviews-how-tos-for-smarter-77-8/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://algiamedical.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-77-8/">mastering online resources guides reviews how tos for smarte</a> 
-<a href="https://algiamedical.com/mastering-personal-finance-a-guide-to-building-wealth-throug/">mastering personal finance a guide to building wealth throug</a> 
