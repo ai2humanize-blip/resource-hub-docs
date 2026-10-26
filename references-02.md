@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother.acidblog.net/74197655/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
+<a href="https://1mother.acidblog.net/74197661/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
+<a href="https://1mother.alltdesign.com/a-reading-list-of-independent-news-and-finance-sites-61607375">a reading list of independent news and finance sites 6160737</a> 
 <a href="https://1mother.alltdesign.com/independent-crypto-and-finance-publications-to-bookmark-61607378">independent crypto and finance publications to bookmark 6160</a> 
 <a href="https://1mother.alltdesign.com/more-independent-websites-worth-exploring-61607372">more independent websites worth exploring 61607372</a> 
 <a href="https://1mother.alltdesign.com/useful-independent-sites-tools-and-crypto-resources-61607380">useful independent sites tools and crypto resources 61607380</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 
 <a href="https://agenciainmobiliaria.xyz/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
 <a href="https://agenciainmobiliaria.xyz/travel-authorisations-compared-etias-esta-and-the-uk-eta/">travel authorisations compared etias esta and the uk eta</a> 
-<a href="https://agenciainmobiliaria.xyz/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
-<a href="https://agenciainmobiliaria.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://agenciainmobiliaria.xyz/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
