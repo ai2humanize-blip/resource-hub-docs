@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-53.md) · [‹ prev](references-51.md)
 
+<a href="https://marlonwayansnetworth.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
+<a href="https://marlonwayansnetworth.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://marlonwayansnetworth.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
+<a href="https://marlonwayansnetworth.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://marvelous-biscochitos-a2039e.netlify.app/exploring-the-vibrant-world-of-independent-music-culture.html">exploring the vibrant world of independent music culture</a> 
+<a href="https://marvelous-lamington-26c103.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://marvelous-praline-700fa9.netlify.app/bitjackpot-de-com.html">bitjackpot de com</a> 
+<a href="https://masterwriter.org/gindex.html">gindex</a> 
+<a href="https://masterwriter.org/picks.html">picks</a> 
+<a href="https://meek-biscochitos-50822a.netlify.app/areyoufashion.html">areyoufashion</a> 
+<a href="https://mellifluous-fudge-015eea.netlify.app/what-to-know-about-how-to-avoid-misinformation-and-hype.html">what to know about how to avoid misinformation and hype</a> 
+<a href="https://mellifluous-marigold-0fc61c.netlify.app/ivanaturf.html">ivanaturf</a> 
+<a href="https://mellifluous-sprite-eaa5bc.netlify.app/getting-building-a-healthy-daily-reading-habit-right.html">getting building a healthy daily reading habit right</a> 
+<a href="https://mellow-croquembouche-28cd79.netlify.app/daily-aqi.html">daily aqi</a> 
+<a href="https://mellow-cupcake-4cd56a.netlify.app/fear-greed.html">fear greed</a> 
+<a href="https://merry-kelpie-35d38d.netlify.app/how-to-safely-follow-an-app-that-s-still-in-development.html">how to safely follow an app that s still in development</a> 
+<a href="https://merry-macaron-1db4dc.netlify.app/how-much-custom-ai-art-cost.html">how much custom ai art cost</a> 
+<a href="https://merry-pie-a5f6b5.netlify.app/the-difference-between-skimming-and-deep-reading-online-a-qu.html">the difference between skimming and deep reading online a qu</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://metromsk.se.net/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
 <a href="https://metromsk.se.net/a-closer-look-at-how-to-pick-a-middle-name-that-fits/">a closer look at how to pick a middle name that fits</a> 
 <a href="https://metromsk.se.net/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
 <a href="https://metromsk.se.net/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
@@ -781,24 +802,3 @@
 <a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smart-internet-21-2-3/">essential digital tools online resources for smart internet </a> 
 <a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smart-internet-21-2/">essential digital tools online resources for smart internet </a> 
 <a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smart-navigatio-21-2/">essential digital tools online resources for smart navigatio</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smarter-interne-21-2-2/">essential digital tools online resources for smarter interne</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smarter-interne-21-2/">essential digital tools online resources for smarter interne</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smarter-learnin-21-2-2/">essential digital tools online resources for smarter learnin</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smarter-learnin-21-2/">essential digital tools online resources for smarter learnin</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smarter-living-21-2/">essential digital tools online resources for smarter living </a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smarter-news-co-21-2/">essential digital tools online resources for smarter news co</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smarter-researc-21-2-2/">essential digital tools online resources for smarter researc</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smarter-researc-21-2-3/">essential digital tools online resources for smarter researc</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-smarter-researc-21-2/">essential digital tools online resources for smarter researc</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-social-media-an-21-2/">essential digital tools online resources for social media an</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-south-africans-21-2-2/">essential digital tools online resources for south africans </a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-south-africans-21-2/">essential digital tools online resources for south africans </a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-staying-informe-21-2/">essential digital tools online resources for staying informe</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-the-modern-read-21-2-2/">essential digital tools online resources for the modern read</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-the-modern-read-21-2/">essential digital tools online resources for the modern read</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-for-understanding-c-21-2/">essential digital tools online resources for understanding c</a> 
-<a href="https://moneynewsweb.co.in/essential-digital-tools-online-resources-to-solve-common-tec-21-2/">essential digital tools online resources to solve common tec</a> 
-<a href="https://moneynewsweb.co.in/essential-guides-for-business-finance-and-productivity-enthu-21-1/">essential guides for business finance and productivity enthu</a> 
-<a href="https://moneynewsweb.co.in/essential-home-maintenance-tips-for-a-pest-free-and-efficien-21-1/">essential home maintenance tips for a pest free and efficien</a> 
-<a href="https://moneynewsweb.co.in/essential-tips-for-improving-business-finance-and-productivi-21-1/">essential tips for improving business finance and productivi</a> 
-<a href="https://moneynewsweb.co.in/essential-tools-for-business-finance-and-productivity-a-comp-21-1/">essential tools for business finance and productivity a comp</a> 

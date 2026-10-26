@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-get-the-most-out-of-online-guides.html">a closer look at how to get the most out of online guides</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-spot-low-quality-content-online.html">a closer look at how to spot low quality content online</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-tell-explainer-journalism-from-opini.html">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy.html">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-making-sense-of-complex-topics-online.html">a closer look at making sense of complex topics online</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-the-basics-of-staying-safe-while-browsing.html">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-understanding-digital-literacy.html">a closer look at understanding digital literacy</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-understanding-how-search-engines-rank-pages.html">a closer look at understanding how search engines rank pages</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-what-makes-an-explainer-article-genuinely-u.html">a closer look at what makes an explainer article genuinely u</a> 
@@ -796,9 +802,3 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/why-context-matters-when-reading-online-explained-simply.html">why context matters when reading online explained simply</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/why-context-matters-when-reading-online.html">why context matters when reading online</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/why-does-crypto-have-value.html">why does crypto have value</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-explainer-journalism-web-and-content-matter-in-today-s-w-43-6.html">why explainer journalism web and content matter in today s w</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-flash-death-didnt-kill-casual-gaming.html">why flash death didnt kill casual gaming</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-is-crypto-down-today-key-reasons.html">why is crypto down today key reasons</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-market-cap-can-be-misleading-in-crypto.html">why market cap can be misleading in crypto</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-mental-health-care-access-is-so-unequal.html">why mental health care access is so unequal</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-niche-blogs-still-matter-explained-simply.html">why niche blogs still matter explained simply</a> 

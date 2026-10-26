@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://beamish-crostata-ff3227.netlify.app/navigating-the-latest-news-expert-insights-and-analysis-for-.html">navigating the latest news expert insights and analysis for</a> 
+<a href="https://beautiful-manatee-47cb7d.netlify.app/a-simple-framework-for-researching-any-topic-online-the-basi.html">a simple framework for researching any topic online the basi</a> 
+<a href="https://bespoke-dragon-c0e891.netlify.app/best-time-to-visit-japan.html">best time to visit japan</a> 
+<a href="https://bespoke-figolla-d1d214.netlify.app/ai-policy.html">ai policy</a> 
+<a href="https://bespoke-horse-83b6c6.netlify.app/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://bespoke-rolypoly-56c3ad.netlify.app/daily-aqi.html">daily aqi</a> 
+<a href="https://bespoke-sorbet-0255c9.netlify.app/festivals.html">festivals</a> 
+<a href="https://bespoke-starlight-e8a311.netlify.app/end-to-end-encryption-what-it-protects.html">end to end encryption what it protects</a> 
+<a href="https://betjili1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://betjili1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://betjili1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://betjili1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://betjili1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://betjili1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://betjili1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://betjili1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://betjili1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://betjili1.xyz/hello-world/">hello world</a> 
 <a href="https://betjili1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://betjili1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://betjili1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -784,21 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/pqrnews/">pqrnews</a> 
 <a href="https://boostelearning.mataroa.blog/blog/privacy-policy-5f624cba/">privacy policy 5f624cba</a> 
 <a href="https://boostelearning.mataroa.blog/blog/privacy-policy-93b9f518/">privacy policy 93b9f518</a> 
-<a href="https://boostelearning.mataroa.blog/blog/privacy-policy-b591f73f/">privacy policy b591f73f</a> 
-<a href="https://boostelearning.mataroa.blog/blog/privacy-policy-b76b7578/">privacy policy b76b7578</a> 
-<a href="https://boostelearning.mataroa.blog/blog/privacy-policy/">privacy policy</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-insurance-to-be-added-01220691/">proof of insurance to be added 01220691</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-insurance-to-be-added-1c4f15d8/">proof of insurance to be added 1c4f15d8</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-insurance-to-be-added-2cb8a21b/">proof of insurance to be added 2cb8a21b</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-insurance-to-be-added-738357f2/">proof of insurance to be added 738357f2</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-insurance-to-be-added-d7574a48/">proof of insurance to be added d7574a48</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-insurance-to-be-added/">proof of insurance to be added</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-145c5dd5/">proof of work vs proof of stake 145c5dd5</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-5c62dbff/">proof of work vs proof of stake 5c62dbff</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-820b8037/">proof of work vs proof of stake 820b8037</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-9e306d7a/">proof of work vs proof of stake 9e306d7a</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-fc0f3275/">proof of work vs proof of stake fc0f3275</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake/">proof of work vs proof of stake</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-08069893/">quikconsolecom 08069893</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-2ebf9264/">quikconsolecom 2ebf9264</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-3f34b222/">quikconsolecom 3f34b222</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F">QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H">QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE">QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ">QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc">QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY">Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB">QmcusoCQTGj8qvg9Dr6CdJjQEFYqTqqLtHM2QPHpbAPWGB</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7">QmcvPgpPNNMjt5jwFjxU1u3f96xzD8j6zVpkzFrixN5DY7</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6">Qmd1fn4RrhpAM5DTJSUu5HCTnuZoT5t6WGs4sAZmtUMki6</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH">Qmd5B79nZ3eLYkw9ETRGXsrT5et27AndeKEX1S32XyckvH</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY">Qmd96tbWtHEscTgYYdJFdC78nyhxqNM9VYE9x7BhEFTqsY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn">QmdH8zFx7RM9FhiPWvMZkZ53X4LFUQDu6jYYhzCGfpCRxn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE">QmdSq3XXzBTmsZyhmLum9Cyo6rJF7KavnT32fb2RPmaRVE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt">QmdUg1zr4SrgfrixNQ8n3AKbRL6F6XA1wA11PQJY6yoXdt</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX">QmdXKVHHBqUy6Qv2DWiXoD31BkGknuHReZjxxk7QLnCLjX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G">QmdXSoHsJcM1sYzaBsfgcMZX5GSB5RdhjrSqYojdU3bE8G</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdemBTMw2MWN9cMav8gz9a6o5sVqS6P12RwVAdHXyq39m">QmdemBTMw2MWN9cMav8gz9a6o5sVqS6P12RwVAdHXyq39m</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdhQWwvPNznD6ozEu2L6MS7NZLhX6st3UCWo12LgCE6J1">QmdhQWwvPNznD6ozEu2L6MS7NZLhX6st3UCWo12LgCE6J1</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmdoH5KswDD2CcfeRKtBqionAr95xBSRe4zy6sxd6d6ykS">QmdoH5KswDD2CcfeRKtBqionAr95xBSRe4zy6sxd6d6ykS</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qme54TEw9878RjcFYzyD5WSE2RwGQn4457S3g5dbipQhaM">Qme54TEw9878RjcFYzyD5WSE2RwGQn4457S3g5dbipQhaM</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qme5NECJQmFbpENisU8eX3FuibPDvDFLgRqp4BvH71J1Aq">Qme5NECJQmFbpENisU8eX3FuibPDvDFLgRqp4BvH71J1Aq</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmeCaG1rnePAwmvZ4rkBnE9sXRfNAm7oeKTfJT76D69USa">QmeCaG1rnePAwmvZ4rkBnE9sXRfNAm7oeKTfJT76D69USa</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmeGjMYESFYdXk1QtebYnPNMW1yZ69KaceVKusNpvY89kp">QmeGjMYESFYdXk1QtebYnPNMW1yZ69KaceVKusNpvY89kp</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmebwZtdC1JhNASjFsfFhWzUpGmoS5uF6GwRfEwTemtzXV">QmebwZtdC1JhNASjFsfFhWzUpGmoS5uF6GwRfEwTemtzXV</a> 
@@ -781,24 +802,3 @@
 <a href="https://kkkjili16.xyz/hello-world/">hello world</a> 
 <a href="https://kkkjili16.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://kkkjili16.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://kkkjili16.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://kkkjili16.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://kkkjili16.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://kkkjili16.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://kkkjili16.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://labmagickite.com/5-emerging-fashion-and-lifestyle-trends-to-elevate-your-styl/">5 emerging fashion and lifestyle trends to elevate your styl</a> 
-<a href="https://labmagickite.com/5-essential-tips-for-navigating-modern-careers-and-finding-y/">5 essential tips for navigating modern careers and finding y</a> 
-<a href="https://labmagickite.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-build-a-personal-reading-list-3/">a closer look at how to build a personal reading list 3</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://labmagickite.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://labmagickite.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://labmagickite.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://1mother-ls-why-primary-sources-matter-and-how-to-find-them.static.hf.space/">1mother-ls-why-primary-sources-matter-and-how-to-find-them.static.hf.space</a> 
+<a href="https://1mother.acidblog.net/74197650/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
+<a href="https://1mother.acidblog.net/74197652/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
 <a href="https://1mother.acidblog.net/74197655/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
 <a href="https://1mother.acidblog.net/74197661/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
 <a href="https://1mother.alltdesign.com/a-reading-list-of-independent-news-and-finance-sites-61607375">a reading list of independent news and finance sites 6160737</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
 <a href="https://agenciainmobiliaria.xyz/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
-<a href="https://agenciainmobiliaria.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 
-<a href="https://agenciainmobiliaria.xyz/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
-<a href="https://agenciainmobiliaria.xyz/travel-authorisations-compared-etias-esta-and-the-uk-eta/">travel authorisations compared etias esta and the uk eta</a> 
