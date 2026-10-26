@@ -23,7 +23,6 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://2forksevents.com/">2forksevents.com</a> 
 <a href="https://cyberkannadigs.org/">cyberkannadigs.org</a> 
 <a href="https://artpromptsgenerator.org/">artpromptsgenerator.org</a> 
-<a href="https://boostelearning.com/">boostelearning.com</a> 
 <a href="https://internetchicks.sa.com/">internetchicks.sa.com</a> 
 <a href="https://hogatoga.com.co/">hogatoga.com.co</a> 
 <a href="https://optimistindia.co/">optimistindia.co</a> 
@@ -33,7 +32,6 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://tavereviews.com/">tavereviews.com</a> 
 <a href="https://cubednews.com/">cubednews.com</a> 
 <a href="https://technofee.in.net/">technofee.in.net</a> 
-<a href="https://areyoufashion.com/">areyoufashion.com</a> 
 <a href="https://worldgeek.net/">worldgeek.net</a> 
 <a href="https://360sportnews.com/">360sportnews.com</a> 
 <a href="https://pqrnews.com/">pqrnews.com</a> 
@@ -146,6 +144,8 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://criptano.com/">criptano.com</a> 
 <a href="https://sattaresultnow.com/">sattaresultnow.com</a> 
 <a href="https://ivanaturf.cc/">ivanaturf.cc</a> 
+<a href="https://boostelearning.com/">boostelearning.com</a> 
+<a href="https://areyoufashion.com/">areyoufashion.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -223,7 +223,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 73](references-73.md)
 - [Reference set 74](references-74.md)
 
-_58,495 curated references across 74 sets._
+_58,525 curated references across 74 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)

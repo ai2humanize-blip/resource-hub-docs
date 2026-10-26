@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-59.md) · [‹ prev](references-57.md)
 
+<a href="https://pastebin.com/25RmgqAd">25RmgqAd</a> 
+<a href="https://pastebin.com/39cUEMGF">39cUEMGF</a> 
+<a href="https://pastebin.com/3crC2VX7">3crC2VX7</a> 
+<a href="https://pastebin.com/3uUu7A6k">3uUu7A6k</a> 
+<a href="https://pastebin.com/4Te3LqEq">4Te3LqEq</a> 
+<a href="https://pastebin.com/5CTMAMzV">5CTMAMzV</a> 
+<a href="https://pastebin.com/5vGm8pTb">5vGm8pTb</a> 
+<a href="https://pastebin.com/6KUaC9u2">6KUaC9u2</a> 
+<a href="https://pastebin.com/6cc5NBN2">6cc5NBN2</a> 
+<a href="https://pastebin.com/6uV7WhxD">6uV7WhxD</a> 
+<a href="https://pastebin.com/7rCu2j5e">7rCu2j5e</a> 
+<a href="https://pastebin.com/8NjeHQuD">8NjeHQuD</a> 
+<a href="https://pastebin.com/9ckEvWGb">9ckEvWGb</a> 
+<a href="https://pastebin.com/AB00uNUS">AB00uNUS</a> 
+<a href="https://pastebin.com/AXYycESC">AXYycESC</a> 
+<a href="https://pastebin.com/CXqxMV09">CXqxMV09</a> 
+<a href="https://pastebin.com/CiKJWgSR">CiKJWgSR</a> 
+<a href="https://pastebin.com/FC0M9YtL">FC0M9YtL</a> 
+<a href="https://pastebin.com/FhwtzAmN">FhwtzAmN</a> 
+<a href="https://pastebin.com/GJNsr578">GJNsr578</a> 
+<a href="https://pastebin.com/Gnq9zQKk">Gnq9zQKk</a> 
 <a href="https://pastebin.com/Hai0Wm3G">Hai0Wm3G</a> 
 <a href="https://pastebin.com/HwvpufBz">HwvpufBz</a> 
 <a href="https://pastebin.com/JB8J3e7f">JB8J3e7f</a> 
@@ -781,24 +802,3 @@
 <a href="https://pinasscatter.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
 <a href="https://pinasscatter.xyz/criptano/">criptano</a> 
 <a href="https://pinasscatter.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://pinasscatter.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://pinasscatter.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://pinasscatter.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://pinasscatter.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://pinasscatter.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://pinasscatter.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://pinasscatter.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://pinasscatter.xyz/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://pinasscatter.xyz/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://pinasscatter.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://pinasscatter.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
-<a href="https://pinasscatter.xyz/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
-<a href="https://pinasscatter.xyz/house-painter/">house painter</a> 
-<a href="https://pinasscatter.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://pinasscatter.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://pinasscatter.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://pinasscatter.xyz/how-crypto-debit-cards-work-and-what-the-fees-really-are/">how crypto debit cards work and what the fees really are</a> 
-<a href="https://pinasscatter.xyz/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
-<a href="https://pinasscatter.xyz/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
-<a href="https://pinasscatter.xyz/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
-<a href="https://pinasscatter.xyz/how-manuscript-revision-works/">how manuscript revision works</a> 

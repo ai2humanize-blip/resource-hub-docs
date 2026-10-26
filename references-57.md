@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-58.md) · [‹ prev](references-56.md)
 
+<a href="https://obesetuber.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://obesetuber.com/business-finance-productivity-navigating-online-casinos-and-115-7/">business finance productivity navigating online casinos and </a> 
+<a href="https://obesetuber.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
+<a href="https://obesetuber.com/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
+<a href="https://obesetuber.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://obesetuber.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://obesetuber.com/digital-tools-online-resources-50-resources-worth-bookmarkin-115-8/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://obesetuber.com/discovering-the-vibrant-world-of-independent-music-culture/">discovering the vibrant world of independent music culture</a> 
+<a href="https://obesetuber.com/embracing-organic-living-health-and-wellness-tips-for-a-bala/">embracing organic living health and wellness tips for a bala</a> 
+<a href="https://obesetuber.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://obesetuber.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://obesetuber.com/exploring-the-best-digital-tools-online-resources-for-modern-115-8/">exploring the best digital tools online resources for modern</a> 
+<a href="https://obesetuber.com/exploring-the-future-how-ai-and-apps-are-transforming-our-di/">exploring the future how ai and apps are transforming our di</a> 
+<a href="https://obesetuber.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://obesetuber.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://obesetuber.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://obesetuber.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://obesetuber.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://obesetuber.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://obesetuber.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://obesetuber.com/getting-the-basics-of-staying-safe-while-browsing-right-2/">getting the basics of staying safe while browsing right 2</a> 
 <a href="https://obesetuber.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
 <a href="https://obesetuber.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://obesetuber.com/getting-the-difference-between-skimming-and-deep-reading-online-right/">getting the difference between skimming and deep reading onl</a> 
@@ -781,24 +802,3 @@
 <a href="https://pastebin.com/18GUjLX1">18GUjLX1</a> 
 <a href="https://pastebin.com/1CgcCPd7">1CgcCPd7</a> 
 <a href="https://pastebin.com/1QWGgGCb">1QWGgGCb</a> 
-<a href="https://pastebin.com/25RmgqAd">25RmgqAd</a> 
-<a href="https://pastebin.com/39cUEMGF">39cUEMGF</a> 
-<a href="https://pastebin.com/3crC2VX7">3crC2VX7</a> 
-<a href="https://pastebin.com/3uUu7A6k">3uUu7A6k</a> 
-<a href="https://pastebin.com/4Te3LqEq">4Te3LqEq</a> 
-<a href="https://pastebin.com/5CTMAMzV">5CTMAMzV</a> 
-<a href="https://pastebin.com/5vGm8pTb">5vGm8pTb</a> 
-<a href="https://pastebin.com/6KUaC9u2">6KUaC9u2</a> 
-<a href="https://pastebin.com/6cc5NBN2">6cc5NBN2</a> 
-<a href="https://pastebin.com/6uV7WhxD">6uV7WhxD</a> 
-<a href="https://pastebin.com/7rCu2j5e">7rCu2j5e</a> 
-<a href="https://pastebin.com/8NjeHQuD">8NjeHQuD</a> 
-<a href="https://pastebin.com/9ckEvWGb">9ckEvWGb</a> 
-<a href="https://pastebin.com/AB00uNUS">AB00uNUS</a> 
-<a href="https://pastebin.com/AXYycESC">AXYycESC</a> 
-<a href="https://pastebin.com/CXqxMV09">CXqxMV09</a> 
-<a href="https://pastebin.com/CiKJWgSR">CiKJWgSR</a> 
-<a href="https://pastebin.com/FC0M9YtL">FC0M9YtL</a> 
-<a href="https://pastebin.com/FhwtzAmN">FhwtzAmN</a> 
-<a href="https://pastebin.com/GJNsr578">GJNsr578</a> 
-<a href="https://pastebin.com/Gnq9zQKk">Gnq9zQKk</a> 

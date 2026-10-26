@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-05.md) · [‹ prev](references-03.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-a-simple-framework-for-researching-any-topi.html">a closer look at a simple framework for researching any topi</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-avoid-misinformation-and-hype.html">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-build-a-personal-reading-list.html">a closer look at how to build a personal reading list</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-compare-sources-on-the-same-story.html">a closer look at how to compare sources on the same story</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen.html">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-find-reliable-how-to-guides.html">a closer look at how to find reliable how to guides</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-get-the-most-out-of-online-guides.html">a closer look at how to get the most out of online guides</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-spot-low-quality-content-online.html">a closer look at how to spot low quality content online</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/a-closer-look-at-how-to-tell-explainer-journalism-from-opini.html">a closer look at how to tell explainer journalism from opini</a> 
@@ -796,9 +802,3 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-look-for-in-a-good-news-website-explained-simply.html">what to look for in a good news website explained simply</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-look-for-in-a-good-news-website-the-basics.html">what to look for in a good news website the basics</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-to-look-for-in-a-good-news-website.html">what to look for in a good news website</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/where-the-cloud-really-is-data-centers-explained.html">where the cloud really is data centers explained</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-browser-games-are-perfect-for-a-quick-break.html">why browser games are perfect for a quick break</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-context-matters-when-reading-online-a-practical-guide.html">why context matters when reading online a practical guide</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-context-matters-when-reading-online-explained-simply.html">why context matters when reading online explained simply</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-context-matters-when-reading-online.html">why context matters when reading online</a> 
-<a href="https://ai2humanize-blip.github.io/linkstack-pages/why-does-crypto-have-value.html">why does crypto have value</a> 
