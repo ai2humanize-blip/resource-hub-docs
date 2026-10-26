@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-60.md) · [‹ prev](references-58.md)
 
+<a href="https://pinasscatter.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://pinasscatter.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
+<a href="https://pinasscatter.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://pinasscatter.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://pinasscatter.xyz/a-simple-framework-for-researching-any-topic-online-and-why-it-matters/">a simple framework for researching any topic online and why </a> 
+<a href="https://pinasscatter.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://pinasscatter.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://pinasscatter.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://pinasscatter.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
+<a href="https://pinasscatter.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://pinasscatter.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://pinasscatter.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://pinasscatter.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
+<a href="https://pinasscatter.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://pinasscatter.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://pinasscatter.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://pinasscatter.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
+<a href="https://pinasscatter.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
+<a href="https://pinasscatter.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
+<a href="https://pinasscatter.xyz/criptano/">criptano</a> 
+<a href="https://pinasscatter.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
 <a href="https://pinasscatter.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://pinasscatter.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://pinasscatter.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
@@ -781,24 +802,3 @@
 <a href="https://polovnakola.com/the-value-of-slow-careful-reading-a-quick-guide-2/">the value of slow careful reading a quick guide 2</a> 
 <a href="https://polovnakola.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://polovnakola.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://polovnakola.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
-<a href="https://polovnakola.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://polovnakola.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
-<a href="https://polovnakola.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
-<a href="https://polovnakola.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
-<a href="https://polovnakola.com/transform-your-life-top-health-wellness-and-organic-living-t/">transform your life top health wellness and organic living t</a> 
-<a href="https://polovnakola.com/transforming-daily-life-how-apps-are-revolutionizing-the-dig/">transforming daily life how apps are revolutionizing the dig</a> 
-<a href="https://polovnakola.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
-<a href="https://polovnakola.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://polovnakola.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-19/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://polovnakola.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-20/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

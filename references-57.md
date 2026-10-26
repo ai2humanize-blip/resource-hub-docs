@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-58.md) · [‹ prev](references-56.md)
 
+<a href="https://obesetuber.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://obesetuber.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://obesetuber.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://obesetuber.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://obesetuber.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://obesetuber.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://obesetuber.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://obesetuber.com/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
+<a href="https://obesetuber.com/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
+<a href="https://obesetuber.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://obesetuber.com/baby-name-meanings-guide/">baby name meanings guide</a> 
+<a href="https://obesetuber.com/baginda168-review/">baginda168 review</a> 
+<a href="https://obesetuber.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://obesetuber.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://obesetuber.com/boosting-your-business-and-personal-finances-a-marketing-dri/">boosting your business and personal finances a marketing dri</a> 
+<a href="https://obesetuber.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
+<a href="https://obesetuber.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://obesetuber.com/building-a-healthy-daily-reading-habit-and-why-it-matters-2/">building a healthy daily reading habit and why it matters 2</a> 
+<a href="https://obesetuber.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://obesetuber.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://obesetuber.com/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
 <a href="https://obesetuber.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://obesetuber.com/business-finance-productivity-navigating-online-casinos-and-115-7/">business finance productivity navigating online casinos and </a> 
 <a href="https://obesetuber.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
@@ -781,24 +802,3 @@
 <a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://palacsintarecept.hu.net/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-quick-guide-2/">why niche blogs still matter a quick guide 2</a> 
-<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://palacsintarecept.hu.net/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://palacsintarecept.hu.net/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://papaya-blini-d4f131.netlify.app/footyntel.html">footyntel</a> 
-<a href="https://paper.wf/1mother/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
-<a href="https://paper.wf/1mother/a-useful-resource-what-to-do-after-a-data-breach">a useful resource what to do after a data breach</a> 
-<a href="https://paper.wf/1mother/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
-<a href="https://paper.wf/1mother/independent-websites-worth-bookmarking">independent websites worth bookmarking</a> 
-<a href="https://paper.wf/1mother/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
-<a href="https://paper.wf/1mother/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
-<a href="https://pastebin.com/0FQdJ0Br">0FQdJ0Br</a> 
-<a href="https://pastebin.com/0PUSy2f3">0PUSy2f3</a> 
-<a href="https://pastebin.com/0QbqeZhW">0QbqeZhW</a> 
-<a href="https://pastebin.com/0QywkJGB">0QywkJGB</a> 
-<a href="https://pastebin.com/0cxSYR0C">0cxSYR0C</a> 
-<a href="https://pastebin.com/18GUjLX1">18GUjLX1</a> 
-<a href="https://pastebin.com/1CgcCPd7">1CgcCPd7</a> 
-<a href="https://pastebin.com/1QWGgGCb">1QWGgGCb</a> 

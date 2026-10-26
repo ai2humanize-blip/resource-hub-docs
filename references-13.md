@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://captainjackinterview.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://captainjackinterview.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://captainjackinterview.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://captainjackinterview.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://captainjackinterview.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
+<a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://captainjackinterview.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://captainjackinterview.com/air-quality-in-bengaluru-how-it-compares-and-what-to-watch/">air quality in bengaluru how it compares and what to watch</a> 
+<a href="https://captainjackinterview.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://captainjackinterview.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://captainjackinterview.com/bien-choisir-ses-sources-d-information-sur-le-turf/">bien choisir ses sources d information sur le turf</a> 
+<a href="https://captainjackinterview.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://captainjackinterview.com/boost-your-business-master-finance-and-enhance-productivity-82-10/">boost your business master finance and enhance productivity </a> 
+<a href="https://captainjackinterview.com/boost-your-website-s-visibility-a-comprehensive-guide-to-seo/">boost your website s visibility a comprehensive guide to seo</a> 
+<a href="https://captainjackinterview.com/boosting-business-finance-and-productivity-in-indian-cities-82-10/">boosting business finance and productivity in indian cities </a> 
+<a href="https://captainjackinterview.com/boosting-business-finance-and-productivity-tips-and-tools-fo-82-10/">boosting business finance and productivity tips and tools fo</a> 
+<a href="https://captainjackinterview.com/boosting-business-finance-productivity-with-islamic-practice-82-10/">boosting business finance productivity with islamic practice</a> 
 <a href="https://captainjackinterview.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-i/">breaking down the latest news in depth analysis and expert i</a> 
 <a href="https://captainjackinterview.com/breaking-down-today-s-top-news-analysis-and-insights-you-nee/">breaking down today s top news analysis and insights you nee</a> 
 <a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
@@ -43,6 +61,9 @@
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-39/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-4/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-40/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-41/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-42/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-43/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-5/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-6/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-7/">business finance productivity 50 resources worth bookmarking</a> 
@@ -781,24 +802,3 @@
 <a href="https://casacours.uk.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
 <a href="https://casacours.uk.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://casacours.uk.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://casacours.uk.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://casacours.uk.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://casacours.uk.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://casacours.uk.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://casacours.uk.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://casacours.uk.com/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
-<a href="https://casacours.uk.com/why-a-toilet-keeps-running-and-the-simple-parts-behind-it/">why a toilet keeps running and the simple parts behind it</a> 
-<a href="https://casacours.uk.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://casacours.uk.com/why-context-matters-when-reading-online-the-basics-2/">why context matters when reading online the basics 2</a> 
-<a href="https://casacours.uk.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
-<a href="https://casacours.uk.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://casacours.uk.com/why-niche-blogs-still-matter-2/">why niche blogs still matter 2</a> 
-<a href="https://casacours.uk.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://casacours.uk.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://casacours.uk.com/why-phone-speakers-sound-muffled-and-how-to-fix-it/">why phone speakers sound muffled and how to fix it</a> 
-<a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://casinoeinnlakewales.com/gindex.html">gindex</a> 
-<a href="https://casinoeinnlakewales.com/picks.html">picks</a> 
-<a href="https://casinoisloty.xyz/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
