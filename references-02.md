@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://188jili1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://188jili1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://188jili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://188jili1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://188jili1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://188jili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/how-crypto-debit-cards-work-and-what-the-fees-really-are/">how crypto debit cards work and what the fees really are</a> 
 <a href="https://agenciainmobiliaria.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://agenciainmobiliaria.xyz/how-digital-pr-and-sponsored-content-actually-work/">how digital pr and sponsored content actually work</a> 
-<a href="https://agenciainmobiliaria.xyz/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
-<a href="https://agenciainmobiliaria.xyz/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
-<a href="https://agenciainmobiliaria.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
