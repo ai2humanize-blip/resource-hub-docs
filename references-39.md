@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT">QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE">QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3">QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP">QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP">QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V">QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY">QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B">QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX">QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPU34QrHYAvu3LugT9ERWah6DrEtMYvhnLwq78BistxFb">QmPU34QrHYAvu3LugT9ERWah6DrEtMYvhnLwq78BistxFb</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPWBnXTubcpkb6HNJ7PHwrMkwUqAxLadtFCGCycgS3DNz">QmPWBnXTubcpkb6HNJ7PHwrMkwUqAxLadtFCGCycgS3DNz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPhe8jRmXbxFZn1WD8Kk22EdJxkM7k8rMkVQMZjQxYgzm">QmPhe8jRmXbxFZn1WD8Kk22EdJxkM7k8rMkVQMZjQxYgzm</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPiWKjw7fSkDSCSAjfjRcakmNAS45SA1WiX1E9mLL46aY">QmPiWKjw7fSkDSCSAjfjRcakmNAS45SA1WiX1E9mLL46aY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPom5pKmNMdGWy83px6VBmcCT85XxeBqJXL35sqJbEbQh">QmPom5pKmNMdGWy83px6VBmcCT85XxeBqJXL35sqJbEbQh</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPsKsmLkivcTsiFUc3dPECD8jxXB5MbXJqxpWG3MkJG2S">QmPsKsmLkivcTsiFUc3dPECD8jxXB5MbXJqxpWG3MkJG2S</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQ1mjRxf89qJ9YpX3qhGeQeDeN4EAjiBr3orPABwXBayC">QmQ1mjRxf89qJ9YpX3qhGeQeDeN4EAjiBr3orPABwXBayC</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQ3hDnBhNqoz5gkVYhQxQaZ6uvpvjzNjkCDXpCtA4uF5o">QmQ3hDnBhNqoz5gkVYhQxQaZ6uvpvjzNjkCDXpCtA4uF5o</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQB3amsXmyxs6SqooL35pXFcUiNCoAQKSxrvXLKbc6GKk">QmQB3amsXmyxs6SqooL35pXFcUiNCoAQKSxrvXLKbc6GKk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQCj5pxJbY1SSu4QpXneJLFUi2HS8uqYjdq387Z7RWgzF">QmQCj5pxJbY1SSu4QpXneJLFUi2HS8uqYjdq387Z7RWgzF</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQUbgrAvzE7NZE9vpCYXAfiyfXoFwWk2oinL6eYJdbpYe">QmQUbgrAvzE7NZE9vpCYXAfiyfXoFwWk2oinL6eYJdbpYe</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQbDhmHiL7vckUS7cTd2vjFyuUQtVC3TpNPBfD7aK3zTx">QmQbDhmHiL7vckUS7cTd2vjFyuUQtVC3TpNPBfD7aK3zTx</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q">QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj">QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmR4xtwTnEELKdog7g5o2oDAhK2te5DaL6EnBT8qrqcGT2">QmR4xtwTnEELKdog7g5o2oDAhK2te5DaL6EnBT8qrqcGT2</a> 
@@ -781,24 +802,3 @@
 <a href="https://jollibee7771.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://jollibee7771.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://jollibee7771.xyz/hello-world/">hello world</a> 
-<a href="https://jollibee7771.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://jollibee7771.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://jollibee7771.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://jollibee7771.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://jollibee7771.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://jollibee7771.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://jollibee7771.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://jollibeecasino.xyz/a-beginner-s-guide-to-understanding-ai-image-generation/">a beginner s guide to understanding ai image generation</a> 
-<a href="https://jollibeecasino.xyz/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://jollibeecasino.xyz/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
-<a href="https://jollibeecasino.xyz/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://jollibeecasino.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://jollibeecasino.xyz/a-guide-to-guest-contributing-and-press-outreach/">a guide to guest contributing and press outreach</a> 
-<a href="https://jollibeecasino.xyz/a-practical-guide-to-choosing-everyday-ai-tools/">a practical guide to choosing everyday ai tools</a> 
-<a href="https://jollibeecasino.xyz/a-practical-guide-to-following-new-movie-and-series-releases/">a practical guide to following new movie and series releases</a> 
-<a href="https://jollibeecasino.xyz/a-practical-guide-to-reading-cryptocurrency-price-informatio/">a practical guide to reading cryptocurrency price informatio</a> 
-<a href="https://jollibeecasino.xyz/a-practical-guide-to-reading-football-league-tables-and-stan/">a practical guide to reading football league tables and stan</a> 
-<a href="https://jollibeecasino.xyz/a-practical-guide-to-seasonal-style-transitions/">a practical guide to seasonal style transitions</a> 
-<a href="https://jollibeecasino.xyz/a-practical-guide-to-understanding-off-page-seo/">a practical guide to understanding off page seo</a> 
-<a href="https://jollibeecasino.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://jollibeecasino.xyz/a-practical-introduction-to-travel-insurance-for-internation/">a practical introduction to travel insurance for internation</a> 
