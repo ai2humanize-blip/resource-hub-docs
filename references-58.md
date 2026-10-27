@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-59.md) · [‹ prev](references-57.md)
 
+<a href="https://palacsintarecept.hu.net/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://palacsintarecept.hu.net/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://palacsintarecept.hu.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://palacsintarecept.hu.net/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://palacsintarecept.hu.net/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://palacsintarecept.hu.net/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://palacsintarecept.hu.net/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://palacsintarecept.hu.net/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
+<a href="https://palacsintarecept.hu.net/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://palacsintarecept.hu.net/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://palacsintarecept.hu.net/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://palacsintarecept.hu.net/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://palacsintarecept.hu.net/how-to-bookmark-and-revisit-useful-resources-explained-simpl-2/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://palacsintarecept.hu.net/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://palacsintarecept.hu.net/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://palacsintarecept.hu.net/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://palacsintarecept.hu.net/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://palacsintarecept.hu.net/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://palacsintarecept.hu.net/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://palacsintarecept.hu.net/how-to-find-balanced-coverage-of-a-topic-a-quick-guide-2/">how to find balanced coverage of a topic a quick guide 2</a> 
+<a href="https://palacsintarecept.hu.net/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
 <a href="https://palacsintarecept.hu.net/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
 <a href="https://palacsintarecept.hu.net/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
 <a href="https://palacsintarecept.hu.net/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
@@ -781,24 +802,3 @@
 <a href="https://phlwin1.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
 <a href="https://phlwin1.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
 <a href="https://phlwin1.xyz/getting-the-difference-between-skimming-and-deep-reading-online-right/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://phlwin1.xyz/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://phlwin1.xyz/getting-what-makes-an-explainer-article-genuinely-useful-right/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://phlwin1.xyz/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://phlwin1.xyz/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
-<a href="https://phlwin1.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://phlwin1.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://phlwin1.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://phlwin1.xyz/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
-<a href="https://phlwin1.xyz/how-digital-pr-and-sponsored-content-actually-work/">how digital pr and sponsored content actually work</a> 
-<a href="https://phlwin1.xyz/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
-<a href="https://phlwin1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://phlwin1.xyz/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://phlwin1.xyz/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide/">how to evaluate online reviews and recommendations a quick g</a> 
-<a href="https://phlwin1.xyz/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://phlwin1.xyz/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
-<a href="https://phlwin1.xyz/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://phlwin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://phlwin1.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://phlwin1.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://phlwin1.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://phlwin1.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 

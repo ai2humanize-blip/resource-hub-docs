@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://fideleturfturf.it.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://fideleturfturf.it.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://fideleturfturf.it.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://fideleturfturf.it.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://fideleturfturf.it.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://fil7771.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://fil7771.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://fil7771.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://fil7771.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://fil7771.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://fil7771.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://fil7771.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://fil7771.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://fil7771.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://fil7771.xyz/hello-world/">hello world</a> 
+<a href="https://fil7771.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://fil7771.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://fil7771.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://fil7771.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://fil7771.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://fil7771.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://fil7771.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://financieelveiligouderworden.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
 <a href="https://financieelveiligouderworden.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
@@ -781,24 +802,3 @@
 <a href="https://forotesis.com/mastering-marketing-seo-growth-strategies-for-success-in-the-96-5-2/">mastering marketing seo growth strategies for success in the</a> 
 <a href="https://forotesis.com/mastering-marketing-seo-growth-strategies-for-success-in-the-96-5/">mastering marketing seo growth strategies for success in the</a> 
 <a href="https://forotesis.com/mastering-marketing-seo-growth-the-latest-strategies-for-suc-96-10/">mastering marketing seo growth the latest strategies for suc</a> 
-<a href="https://forotesis.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-96-10/">mastering marketing seo growth your guide to building a succ</a> 
-<a href="https://forotesis.com/mastering-meal-prep-a-step-by-step-guide-to-quick-and-health/">mastering meal prep a step by step guide to quick and health</a> 
-<a href="https://forotesis.com/mastering-mobile-app-management-a-guide-to-optimizing-your-d/">mastering mobile app management a guide to optimizing your d</a> 
-<a href="https://forotesis.com/mastering-modern-communication-a-deep-dive-into-web-tech-con-96-8/">mastering modern communication a deep dive into web tech con</a> 
-<a href="https://forotesis.com/mastering-online-reading-from-skimming-to-deep-understanding-96-5/">mastering online reading from skimming to deep understanding</a> 
-<a href="https://forotesis.com/mastering-online-research-guides-reviews-and-how-tos-for-eff-96-9/">mastering online research guides reviews and how tos for eff</a> 
-<a href="https://forotesis.com/mastering-personal-finance-a-business-owner-s-guide-to-finan/">mastering personal finance a business owner s guide to finan</a> 
-<a href="https://forotesis.com/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
-<a href="https://forotesis.com/mastering-the-art-of-business-finance-and-productivity-a-com-96-6/">mastering the art of business finance and productivity a com</a> 
-<a href="https://forotesis.com/mastering-the-art-of-home-coffee-brewing-a-comprehensive-gui/">mastering the art of home coffee brewing a comprehensive gui</a> 
-<a href="https://forotesis.com/mastering-the-digital-world-essential-tools-online-resources-96-7/">mastering the digital world essential tools online resources</a> 
-<a href="https://forotesis.com/mastering-the-digital-world-essential-tools-resources-for-sm-96-7/">mastering the digital world essential tools resources for sm</a> 
-<a href="https://forotesis.com/maximizing-business-and-personal-success-with-digital-tools-96-7/">maximizing business and personal success with digital tools </a> 
-<a href="https://forotesis.com/maximizing-digital-efficiency-how-ai-powered-apps-are-transf-96-9/">maximizing digital efficiency how ai powered apps are transf</a> 
-<a href="https://forotesis.com/maximizing-your-digital-life-tools-tips-and-resources-for-ev-96-7/">maximizing your digital life tools tips and resources for ev</a> 
-<a href="https://forotesis.com/maximizing-your-website-s-potential-a-comprehensive-guide-to-96-8/">maximizing your website s potential a comprehensive guide to</a> 
-<a href="https://forotesis.com/modern-fashion-trends-navigating-style-and-sustainability-in/">modern fashion trends navigating style and sustainability in</a> 
-<a href="https://forotesis.com/navigating-business-finance-productivity-essential-tools-and-96-6/">navigating business finance productivity essential tools and</a> 
-<a href="https://forotesis.com/navigating-business-finance-productivity-for-virginia-childh-96-6/">navigating business finance productivity for virginia childh</a> 
-<a href="https://forotesis.com/navigating-business-finance-productivity-in-the-digital-age-96-6-2/">navigating business finance productivity in the digital age </a> 
-<a href="https://forotesis.com/navigating-business-finance-productivity-in-the-digital-age-96-6/">navigating business finance productivity in the digital age </a> 

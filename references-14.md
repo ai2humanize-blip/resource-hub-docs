@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://casacours.uk.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://casacours.uk.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://casacours.uk.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
+<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://casacours.uk.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://casacours.uk.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://casacours.uk.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://casacours.uk.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://casacours.uk.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://casacours.uk.com/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://casacours.uk.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://casacours.uk.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://casacours.uk.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://casacours.uk.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://casacours.uk.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
 <a href="https://casacours.uk.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://casacours.uk.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
@@ -781,24 +802,3 @@
 <a href="https://cbd-stone.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
 <a href="https://cbd-stone.com/navigating-the-digital-landscape-a-comprehensive-guide-to-ma-83-3/">navigating the digital landscape a comprehensive guide to ma</a> 
 <a href="https://cbd-stone.com/navigating-the-digital-world-how-to-choose-the-best-apps-for/">navigating the digital world how to choose the best apps for</a> 
-<a href="https://cbd-stone.com/navigating-the-ever-evolving-news-landscape-a-comprehensive-83-3/">navigating the ever evolving news landscape a comprehensive </a> 
-<a href="https://cbd-stone.com/navigating-the-evolving-news-landscape-in-depth-analysis-rev-83-7/">navigating the evolving news landscape in depth analysis rev</a> 
-<a href="https://cbd-stone.com/navigating-the-future-business-finance-productivity-in-2026-83-4/">navigating the future business finance productivity in 2026 </a> 
-<a href="https://cbd-stone.com/navigating-the-future-how-bitcoin-and-blockchain-are-transfo-83-3/">navigating the future how bitcoin and blockchain are transfo</a> 
-<a href="https://cbd-stone.com/navigating-the-future-of-business-finance-productivity-a-com-83-4/">navigating the future of business finance productivity a com</a> 
-<a href="https://cbd-stone.com/navigating-the-future-of-digital-currency-trends-challenges-83-3/">navigating the future of digital currency trends challenges </a> 
-<a href="https://cbd-stone.com/navigating-the-future-of-finance-understanding-bitcoin-block-83-3/">navigating the future of finance understanding bitcoin block</a> 
-<a href="https://cbd-stone.com/navigating-the-future-of-news-business-finance-and-ai-in-mod-83-4/">navigating the future of news business finance and ai in mod</a> 
-<a href="https://cbd-stone.com/navigating-the-future-of-news-digital-tools-online-resources-83-5/">navigating the future of news digital tools online resources</a> 
-<a href="https://cbd-stone.com/navigating-the-future-of-news-emerging-trends-and-what-they/">navigating the future of news emerging trends and what they</a> 
-<a href="https://cbd-stone.com/navigating-the-latest-news-landscape-in-depth-analysis-and-e/">navigating the latest news landscape in depth analysis and e</a> 
-<a href="https://cbd-stone.com/navigating-the-latest-news-landscape-insights-and-analysis-f/">navigating the latest news landscape insights and analysis f</a> 
-<a href="https://cbd-stone.com/navigating-the-modern-news-landscape-tools-trends-and-ai-ins-83-5/">navigating the modern news landscape tools trends and ai ins</a> 
-<a href="https://cbd-stone.com/navigating-the-shifting-landscape-of-2023-news-consumption-t/">navigating the shifting landscape of 2023 news consumption t</a> 
-<a href="https://cbd-stone.com/navigating-today-s-news-landscape-a-comprehensive-guide-to-b-83-4/">navigating today s news landscape a comprehensive guide to b</a> 
-<a href="https://cbd-stone.com/navigating-web-tech-and-content-from-online-casinos-to-indep-83-6/">navigating web tech and content from online casinos to indep</a> 
-<a href="https://cbd-stone.com/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
-<a href="https://cbd-stone.com/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://cbd-stone.com/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://cbd-stone.com/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://cbd-stone.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 

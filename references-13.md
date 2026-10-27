@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhekctmcf2z">3myhekctmcf2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhelwj6d223">3myhelwj6d223</a> 
+<a href="https://bucolic-phoenix-a5be38.netlify.app/fear-greed.html">fear greed</a> 
+<a href="https://builtwith.com/2forksevents.com">2forksevents.com</a> 
+<a href="https://builtwith.com/666game.com.im">666game.com.im</a> 
+<a href="https://builtwith.com/aavotcom.cc">aavotcom.cc</a> 
+<a href="https://builtwith.com/abcyapi.net">abcyapi.net</a> 
+<a href="https://builtwith.com/advantagebizmarketing.com">advantagebizmarketing.com</a> 
+<a href="https://builtwith.com/app.dofollow.pro">app.dofollow.pro</a> 
+<a href="https://builtwith.com/arcenturf.co">arcenturf.co</a> 
+<a href="https://builtwith.com/areyoufashion.com">areyoufashion.com</a> 
+<a href="https://builtwith.com/asianpinay.in.net">asianpinay.in.net</a> 
+<a href="https://builtwith.com/baginda168.gb.net">baginda168.gb.net</a> 
+<a href="https://builtwith.com/banneradsites.cc">banneradsites.cc</a> 
+<a href="https://builtwith.com/bitcoincasinosnews.com">bitcoincasinosnews.com</a> 
+<a href="https://builtwith.com/bitcoindigital.info">bitcoindigital.info</a> 
+<a href="https://builtwith.com/bitcoinprime.info">bitcoinprime.info</a> 
+<a href="https://builtwith.com/bitcointalk.co.bz">bitcointalk.co.bz</a> 
 <a href="https://builtwith.com/blackpearlbitcoin.com">blackpearlbitcoin.com</a> 
 <a href="https://builtwith.com/boostelearning.com">boostelearning.com</a> 
 <a href="https://builtwith.com/btccasinonews.com">btccasinonews.com</a> 
@@ -170,7 +188,10 @@
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-56/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-57/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-58/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-59/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-6/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-60/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-61/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-7/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-8/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-9/">business finance productivity 50 resources worth bookmarking</a> 
@@ -781,24 +802,3 @@
 <a href="https://casacours.uk.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
 <a href="https://casacours.uk.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
 <a href="https://casacours.uk.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://casacours.uk.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://casacours.uk.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://casacours.uk.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
-<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://casacours.uk.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
-<a href="https://casacours.uk.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://casacours.uk.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://casacours.uk.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://casacours.uk.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://casacours.uk.com/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://casacours.uk.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://casacours.uk.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
-<a href="https://casacours.uk.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
-<a href="https://casacours.uk.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
-<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
-<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
-<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
