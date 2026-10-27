@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://jiurui9.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://jiurui9.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://jiurui9.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://jiurui9.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://jiurui9.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://jiurui9.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://jiurui9.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://jiurui9.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://jiurui9.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
+<a href="https://jiurui9.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://jiurui9.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://jiurui9.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://jiurui9.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://jiurui9.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://jiurui9.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
 <a href="https://jiurui9.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
@@ -781,24 +802,3 @@
 <a href="https://landscape-paintings.net/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
 <a href="https://landscape-paintings.net/recognizing-credible-experts-online-explained-simply-2/">recognizing credible experts online explained simply 2</a> 
 <a href="https://landscape-paintings.net/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://landscape-paintings.net/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://landscape-paintings.net/revolutionizing-creativity-how-ai-powered-apps-are-transform/">revolutionizing creativity how ai powered apps are transform</a> 
-<a href="https://landscape-paintings.net/revolutionizing-creativity-how-ai-powered-tools-transform-ma-105-6/">revolutionizing creativity how ai powered tools transform ma</a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-ai-powered-apps-digital-wellness-105-5/">revolutionizing daily life ai powered apps digital wellness </a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform-2/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform-3/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform-4/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://landscape-paintings.net/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
-<a href="https://landscape-paintings.net/sattaresultnow/">sattaresultnow</a> 
-<a href="https://landscape-paintings.net/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
-<a href="https://landscape-paintings.net/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://landscape-paintings.net/simple-habits-of-a-smart-internet-reader-a-quick-guide-2/">simple habits of a smart internet reader a quick guide 2</a> 
-<a href="https://landscape-paintings.net/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
-<a href="https://landscape-paintings.net/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-informed-the-latest-in-online-casino-and-ga-105-5/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://landscape-paintings.net/staying-safe-and-responsible-the-latest-online-casino-and-ga-5/">staying safe and responsible the latest online casino and ga</a> 
