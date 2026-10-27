@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://188jili1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://188jili1.xyz/hello-world/">hello world</a> 
+<a href="https://188jili1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://188jili1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://188jili1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://188jili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://agenciainmobiliaria.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
 <a href="https://agenciainmobiliaria.xyz/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
-<a href="https://agenciainmobiliaria.xyz/how-crypto-debit-cards-work-and-what-the-fees-really-are/">how crypto debit cards work and what the fees really are</a> 
-<a href="https://agenciainmobiliaria.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
-<a href="https://agenciainmobiliaria.xyz/how-digital-pr-and-sponsored-content-actually-work/">how digital pr and sponsored content actually work</a> 

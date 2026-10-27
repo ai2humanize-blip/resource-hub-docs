@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://epicwin1.xyz/hello-world/">hello world</a> 
+<a href="https://epicwin1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://epicwin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://epicwin1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://epicwin1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://epicwin1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://epicwin1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://epicwin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://esm.sh/curated-web-directory-hub/index.html">index</a> 
+<a href="https://esm.sh/curated-web-directory-hub@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00387e8/tsam.html">tsam</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00516ce/how-android-updates-reach-your-phone.html">how android updates reach your phone</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@006a7e9/independent-web-resources.html">independent web resources</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00729f7/up-satta-king.html">up satta king</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00b0d03/a-closer-look-at-why-primary-sources-matter-and-how-to-find-.html">a closer look at why primary sources matter and how to find</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00f3b9c/one-speaker-louder-than-the-other.html">one speaker louder than the other</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@00fe7d8/revolutionizing-daily-life-how-apps-are-transforming-the-dig.html">revolutionizing daily life how apps are transforming the dig</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@015fe6e/netflix-crime-drama-all-sinners-bleed-starring-sope.html">netflix crime drama all sinners bleed starring sope</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@0167f9e/simple-habits-of-a-smart-internet-reader.html">simple habits of a smart internet reader</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@0180a81/pt-br.html">pt br</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@019c76b/getting-why-primary-sources-matter-and-how-to-find-them-righ.html">getting why primary sources matter and how to find them righ</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@01bc4cf/trouver-la-qibla.html">trouver la qibla</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@01e6aae/serpinsight.html">serpinsight</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@021ae9d/navigating-the-future-how-bitcoin-and-blockchain-are-transfo.html">navigating the future how bitcoin and blockchain are transfo</a> 
@@ -781,24 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d3972a2/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy.html">a closer look at how to tell if a website is trustworthy</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d3f493d/seminole-casino-coconut-creek-gaming-dining-and-entertainmen.html">seminole casino coconut creek gaming dining and entertainmen</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d413639/do-not-sell-my-info.html">do not sell my info</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d464125/see-why-blck-tokens-fantastic-investment.html">see why blck tokens fantastic investment</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d480dc3/pools-de-pret-et-teneurs-de-marche-expliques.html">pools de pret et teneurs de marche expliques</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d48c68b/navigating-the-crypto-world-bitcoin-blockchain-and-beyond.html">navigating the crypto world bitcoin blockchain and beyond</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d490fa1/what-to-know-about-the-value-of-slow-careful-reading.html">what to know about the value of slow careful reading</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d4cd514/internetchicks.html">internetchicks</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d4d087b/getgabay.html">getgabay</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d4d5831/cloudstacklinks.html">cloudstacklinks</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d50b05b/beauty-tips-well-health-organic.html">beauty tips well health organic</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d5c50a0/urus-id.html">urus id</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d6575ed/what-size-artwork-above-sofa.html">what size artwork above sofa</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d659b23/mycoinpartner.html">mycoinpartner</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d66d54b/why-is-crypto-down-today-key-reasons.html">why is crypto down today key reasons</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d6a2ac3/the-rise-of-ai-in-journalism-transforming-newsrooms-and-repo.html">the rise of ai in journalism transforming newsrooms and repo</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d6c3332/what-size-artwork-above-sofa.html">what size artwork above sofa</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d6c94a4/advantagebizmarketing.html">advantagebizmarketing</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d73fb3a/ivanaturf.html">ivanaturf</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d79313b/thecryptoonline.html">thecryptoonline</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d826a75/names-that-mean-dark.html">names that mean dark</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d87031d/ivanaturf.html">ivanaturf</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d877bf5/xrp-live-price-real-time-ripple-value-market.html">xrp live price real time ripple value market</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d914f70/tokenspin.html">tokenspin</a> 
