@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muztezago226">3muztezago226</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muztkogveb2n">3muztkogveb2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muztqkcnb324">3muztqkcnb324</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myahrhc7ln24">3myahrhc7ln24</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygip52x3w2h">3mygip52x3w2h</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygirqnd3d2b">3mygirqnd3d2b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygiulcxof2t">3mygiulcxof2t</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygixfd7lc2b">3mygixfd7lc2b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygj2cnad52r">3mygj2cnad52r</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygj5d2byv2r">3mygj5d2byv2r</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjaandu52t">3mygjaandu52t</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjdadnwm26">3mygjdadnwm26</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjp4545524">3mygjp4545524</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjtzk3qt2t">3mygjtzk3qt2t</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjwpbwg42b">3mygjwpbwg42b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjzfltcb2b">3mygjzfltcb2b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygk44t3m726">3mygk44t3m726</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygk6vkqtl2t">3mygk6vkqtl2t</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkbsu3y52b">3mygkbsu3y52b</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkejkghb2h">3mygkejkghb2h</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkhafkwa2f">3mygkhafkwa2f</a> 
@@ -234,7 +252,10 @@
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-65/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-66/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-67/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-68/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-69/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-7/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-70/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-8/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-9/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10/">business finance productivity 50 resources worth bookmarking</a> 
@@ -781,24 +802,3 @@
 <a href="https://captainjackinterview.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://captainjackinterview.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://captainjackinterview.com/wifi-keeps-disconnecting/">wifi keeps disconnecting</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-4/">a closer look at how to avoid misinformation and hype 4</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 

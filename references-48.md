@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-49.md) · [‹ prev](references-47.md)
 
+<a href="https://loblarehouse.com/getting-the-difference-between-skimming-and-deep-reading-onl-2/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://loblarehouse.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://loblarehouse.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
+<a href="https://loblarehouse.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://loblarehouse.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://loblarehouse.com/getting-why-context-matters-when-reading-online-right-2/">getting why context matters when reading online right 2</a> 
+<a href="https://loblarehouse.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://loblarehouse.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://loblarehouse.com/guides-reviews-how-tos-50-resources-worth-bookmarking-106-9/">guides reviews how tos 50 resources worth bookmarking 106 9</a> 
+<a href="https://loblarehouse.com/how-ai-driven-apps-are-transforming-daily-life-and-work/">how ai driven apps are transforming daily life and work</a> 
+<a href="https://loblarehouse.com/how-ai-powered-apps-are-revolutionizing-daily-life-and-work/">how ai powered apps are revolutionizing daily life and work</a> 
+<a href="https://loblarehouse.com/how-ai-powered-apps-are-transforming-everyday-life-and-work/">how ai powered apps are transforming everyday life and work</a> 
+<a href="https://loblarehouse.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://loblarehouse.com/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://loblarehouse.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://loblarehouse.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://loblarehouse.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://loblarehouse.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://loblarehouse.com/how-to-bookmark-and-revisit-useful-resources-a-practical-guide/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://loblarehouse.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://loblarehouse.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://loblarehouse.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
 <a href="https://loblarehouse.com/how-to-build-a-personal-reading-list-a-quick-guide-2/">how to build a personal reading list a quick guide 2</a> 
 <a href="https://loblarehouse.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
@@ -781,24 +802,3 @@
 <a href="https://ls-boosting-produc-msro9yji.web.app/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
 <a href="https://ls-boosting-produc-msro9yji.web.app/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/why-the-night-sky-is-dark/">why the night sky is dark</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/why-washington-not-charts-is-driving-crypto/">why washington not charts is driving crypto</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/why-withdrawal-speed-is-the-real-casino-signal/">why withdrawal speed is the real casino signal</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/wiki-finance-expo-cyprus-europes-premier-fintech-event/">wiki finance expo cyprus europes premier fintech event</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/worldgeek/">worldgeek</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/write-for-us/">write for us</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/xrp-price-prediction-south-korean-market-sends-xrp/">xrp price prediction south korean market sends xrp</a> 
-<a href="https://ls-boosting-produc-msro9yji.web.app/xrp-price-surges-amid-key-market-and-legal/">xrp price surges amid key market and legal</a> 
-<a href="https://ls-boosting-your-business-and-personal-finances-with-s.ai2hmnz-rhub.workers.dev/">ls-boosting-your-business-and-personal-finances-with-s.ai2hmnz-rhub.workers.dev</a> 
-<a href="https://ls-breaking-down-t-msrje4o9.firebaseapp.com/">ls-breaking-down-t-msrje4o9.firebaseapp.com</a> 
-<a href="https://ls-breaking-down-t-msrje4o9.web.app/">ls-breaking-down-t-msrje4o9.web.app</a> 
-<a href="https://ls-breaking-down-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app">ls-breaking-down-the-latest-trends-in-news-con-ms-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-building-a-healthy-daily-reading-habit-a-pr-mt-imncw2y54a-uc.a.run.app">ls-building-a-healthy-daily-reading-habit-a-pr-mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-building-a-healthy-daily-reading-habit-and--mt-imncw2y54a-uc.a.run.app">ls-building-a-healthy-daily-reading-habit-and--mt-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-building-a-healthy-daily-reading-habit-and--mv-imncw2y54a-uc.a.run.app">ls-building-a-healthy-daily-reading-habit-and--mv-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-building-a-healthy-daily-reading-habit-expl-mv-imncw2y54a-uc.a.run.app">ls-building-a-healthy-daily-reading-habit-expl-mv-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-camo-crypt-muxtb8qa-imncw2y54a-uc.a.run.app">ls-camo-crypt-muxtb8qa-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-camo-crypt-muxtbanr-imncw2y54a-uc.a.run.app">ls-camo-crypt-muxtbanr-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-camo-crypt-muxtblwv-imncw2y54a-uc.a.run.app">ls-camo-crypt-muxtblwv-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-camo-crypt-muxtc5n5-imncw2y54a-uc.a.run.app">ls-camo-crypt-muxtc5n5-imncw2y54a-uc.a.run.app</a> 
-<a href="https://ls-camo-crypt-muxtcchj-imncw2y54a-uc.a.run.app">ls-camo-crypt-muxtcchj-imncw2y54a-uc.a.run.app</a> 

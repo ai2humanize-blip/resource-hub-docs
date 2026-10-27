@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://captainjackinterview.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://captainjackinterview.com/wifi-keeps-disconnecting/">wifi keeps disconnecting</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-4/">a closer look at how to avoid misinformation and hype 4</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://casacours.uk.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3-4/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-for-authors-and-book-publishe-83-3/">mastering marketing seo growth for authors and book publishe</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-navigating-the-best-online-re-83-3-2/">mastering marketing seo growth navigating the best online re</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-navigating-the-best-online-re-83-3/">mastering marketing seo growth navigating the best online re</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-navigating-the-web-for-succes-83-3/">mastering marketing seo growth navigating the web for succes</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-business-succe-83-3-2/">mastering marketing seo growth strategies for business succe</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-business-succe-83-3/">mastering marketing seo growth strategies for business succe</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-10/">mastering marketing seo growth strategies for success 83 3 1</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-11/">mastering marketing seo growth strategies for success 83 3 1</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-12/">mastering marketing seo growth strategies for success 83 3 1</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-13/">mastering marketing seo growth strategies for success 83 3 1</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-14/">mastering marketing seo growth strategies for success 83 3 1</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-15/">mastering marketing seo growth strategies for success 83 3 1</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-16/">mastering marketing seo growth strategies for success 83 3 1</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-17/">mastering marketing seo growth strategies for success 83 3 1</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-2/">mastering marketing seo growth strategies for success 83 3 2</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-3/">mastering marketing seo growth strategies for success 83 3 3</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-4/">mastering marketing seo growth strategies for success 83 3 4</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-5/">mastering marketing seo growth strategies for success 83 3 5</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-6/">mastering marketing seo growth strategies for success 83 3 6</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-7/">mastering marketing seo growth strategies for success 83 3 7</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-8/">mastering marketing seo growth strategies for success 83 3 8</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-success-83-3-9/">mastering marketing seo growth strategies for success 83 3 9</a> 

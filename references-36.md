@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://grouperfishingsecrets.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
+<a href="https://grouperfishingsecrets.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
+<a href="https://grouperfishingsecrets.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://grouperfishingsecrets.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://grouperfishingsecrets.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://groups.google.com/g/curated-resource-dir-hub/c/TIhVnafEzVA">TIhVnafEzVA</a> 
+<a href="https://guileless-cuchufli-c39fbf.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
+<a href="https://guileless-gaufre-23b82b.netlify.app/laptop-fan-loud-and-hot.html">laptop fan loud and hot</a> 
+<a href="https://haomvc.com/a-closer-look-at-a-simple-framework-for-researching-any-topi-2/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://haomvc.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://haomvc.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://haomvc.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://haomvc.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://haomvc.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://haomvc.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://haomvc.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://haomvc.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://haomvc.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://haomvc.com/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://haomvc.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader-2/">a closer look at simple habits of a smart internet reader 2</a> 
+<a href="https://haomvc.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
 <a href="https://haomvc.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://haomvc.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://haomvc.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
@@ -781,24 +802,3 @@
 <a href="https://hedaroibergroup.com/mastering-marketing-seo-growth-building-digital-skills-for-c-100-1/">mastering marketing seo growth building digital skills for c</a> 
 <a href="https://hedaroibergroup.com/mastering-marketing-seo-growth-essential-strategies-for-succ-100-1/">mastering marketing seo growth essential strategies for succ</a> 
 <a href="https://hedaroibergroup.com/mastering-marketing-seo-growth-strategies-for-success-100-1/">mastering marketing seo growth strategies for success 100 1</a> 
-<a href="https://hedaroibergroup.com/mastering-marketing-seo-growth-strategies-for-success-in-the-100-1/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://hedaroibergroup.com/mastering-marketing-seo-growth-strategies-for-success-in-the-100-6/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://hedaroibergroup.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-100-6/">mastering marketing seo growth your guide to building a succ</a> 
-<a href="https://hedaroibergroup.com/mastering-news-consumption-guides-reviews-how-tos-for-smart-100-10/">mastering news consumption guides reviews how tos for smart </a> 
-<a href="https://hedaroibergroup.com/mastering-online-content-guides-reviews-and-how-tos-for-smar-100-10/">mastering online content guides reviews and how tos for smar</a> 
-<a href="https://hedaroibergroup.com/mastering-online-information-guides-reviews-and-how-tos-for-100-10-2/">mastering online information guides reviews and how tos for </a> 
-<a href="https://hedaroibergroup.com/mastering-online-information-guides-reviews-and-how-tos-for-100-10-3/">mastering online information guides reviews and how tos for </a> 
-<a href="https://hedaroibergroup.com/mastering-online-information-guides-reviews-and-how-tos-for-100-10/">mastering online information guides reviews and how tos for </a> 
-<a href="https://hedaroibergroup.com/mastering-online-information-guides-reviews-how-tos-for-savv-100-10-2/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://hedaroibergroup.com/mastering-online-information-guides-reviews-how-tos-for-savv-100-10-3/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://hedaroibergroup.com/mastering-online-information-guides-reviews-how-tos-for-savv-100-10/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://hedaroibergroup.com/mastering-online-information-guides-reviews-how-tos-for-smar-100-10-2/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://hedaroibergroup.com/mastering-online-information-guides-reviews-how-tos-for-smar-100-10/">mastering online information guides reviews how tos for smar</a> 
-<a href="https://hedaroibergroup.com/mastering-online-learning-and-reading-guides-reviews-how-tos-100-10/">mastering online learning and reading guides reviews how tos</a> 
-<a href="https://hedaroibergroup.com/mastering-online-learning-guides-reviews-how-tos-for-the-sav-100-10/">mastering online learning guides reviews how tos for the sav</a> 
-<a href="https://hedaroibergroup.com/mastering-online-reading-guides-reviews-and-how-tos-for-smar-100-10/">mastering online reading guides reviews and how tos for smar</a> 
-<a href="https://hedaroibergroup.com/mastering-online-research-guides-reviews-and-how-tos-for-eff-100-10/">mastering online research guides reviews and how tos for eff</a> 
-<a href="https://hedaroibergroup.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-100-10/">mastering online research guides reviews and how tos for sav</a> 
-<a href="https://hedaroibergroup.com/mastering-online-research-guides-reviews-and-how-tos-for-sma-100-10/">mastering online research guides reviews and how tos for sma</a> 
-<a href="https://hedaroibergroup.com/mastering-online-research-guides-reviews-how-tos-for-effecti-100-10/">mastering online research guides reviews how tos for effecti</a> 
-<a href="https://hedaroibergroup.com/mastering-online-research-guides-reviews-how-tos-for-reliabl-100-10/">mastering online research guides reviews how tos for reliabl</a> 

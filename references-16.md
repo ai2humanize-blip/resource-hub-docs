@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cbdstent.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cbdstent.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cbdstent.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://cbdstent.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cbdstent.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cbdstent.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cbdstent.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cbdstent.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cbdstent.com/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
+<a href="https://cbdstent.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cbdstent.com/air-quality-in-kolkata-winter-pollution-and-health-context/">air quality in kolkata winter pollution and health context</a> 
+<a href="https://cbdstent.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cbdstent.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://cbdstent.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://cbdstent.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cbdstent.com/boost-your-local-seo-proven-strategies-for-small-business-su/">boost your local seo proven strategies for small business su</a> 
+<a href="https://cbdstent.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
 <a href="https://cbdstent.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
 <a href="https://cbdstent.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://cbdstent.com/building-your-personal-web-toolkit-guides-reviews-how-tos-85-5/">building your personal web toolkit guides reviews how tos 85</a> 
@@ -781,24 +802,3 @@
 <a href="https://cnlawblog.jpn.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
 <a href="https://cnlawblog.jpn.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://cnlawblog.jpn.com/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://cnlawblog.jpn.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
-<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-a-quick-guide/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
-<a href="https://cnlawblog.jpn.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
-<a href="https://cnlawblog.jpn.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
-<a href="https://cnlawblog.jpn.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
-<a href="https://cnlawblog.jpn.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
-<a href="https://cnlawblog.jpn.com/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
-<a href="https://cnlawblog.jpn.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://cnlawblog.jpn.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
