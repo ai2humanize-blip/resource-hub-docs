@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-52.md) · [‹ prev](references-50.md)
 
+<a href="https://madeleine-dore.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://madeleine-dore.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
+<a href="https://madeleine-dore.com/discover-the-best-digital-tools-online-resources-for-success-107-1/">discover the best digital tools online resources for success</a> 
+<a href="https://madeleine-dore.com/discover-unique-event-ideas-and-expert-planning-tips-for-mem-107-8/">discover unique event ideas and expert planning tips for mem</a> 
+<a href="https://madeleine-dore.com/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
+<a href="https://madeleine-dore.com/embrace-a-healthier-lifestyle-organic-living-wellness-tips-f/">embrace a healthier lifestyle organic living wellness tips f</a> 
+<a href="https://madeleine-dore.com/essential-digital-tools-online-resources-for-cryptocurrency-107-6/">essential digital tools online resources for cryptocurrency </a> 
+<a href="https://madeleine-dore.com/essential-digital-tools-online-resources-for-modern-needs-107-1/">essential digital tools online resources for modern needs 10</a> 
+<a href="https://madeleine-dore.com/essential-digital-tools-online-resources-for-understanding-c-107-6/">essential digital tools online resources for understanding c</a> 
+<a href="https://madeleine-dore.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://madeleine-dore.com/exploring-cryptocurrency-bitcoin-and-blockchain-guides-revie-107-8-2/">exploring cryptocurrency bitcoin and blockchain guides revie</a> 
+<a href="https://madeleine-dore.com/exploring-cryptocurrency-bitcoin-and-blockchain-guides-revie-107-8/">exploring cryptocurrency bitcoin and blockchain guides revie</a> 
+<a href="https://madeleine-dore.com/exploring-essential-digital-tools-online-resources-for-moder-107-6/">exploring essential digital tools online resources for moder</a> 
+<a href="https://madeleine-dore.com/exploring-the-future-of-finance-digital-tools-online-resourc-107-6/">exploring the future of finance digital tools online resourc</a> 
+<a href="https://madeleine-dore.com/exploring-the-future-of-news-ai-trends-and-reliable-sources-107-8/">exploring the future of news ai trends and reliable sources </a> 
+<a href="https://madeleine-dore.com/exploring-the-intersection-of-business-finance-and-productiv-107-10/">exploring the intersection of business finance and productiv</a> 
+<a href="https://madeleine-dore.com/exploring-the-intersection-of-business-finance-productivity-107-10/">exploring the intersection of business finance productivity </a> 
+<a href="https://madeleine-dore.com/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
+<a href="https://madeleine-dore.com/exploring-the-world-of-guides-reviews-how-tos-from-coffee-to-107-8/">exploring the world of guides reviews how tos from coffee to</a> 
+<a href="https://madeleine-dore.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://madeleine-dore.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
 <a href="https://madeleine-dore.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://madeleine-dore.com/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
 <a href="https://madeleine-dore.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
@@ -781,24 +802,3 @@
 <a href="https://marlonwayansnetworth.com/how-to-tell-explainer-journalism-from-opinion-2/">how to tell explainer journalism from opinion 2</a> 
 <a href="https://marlonwayansnetworth.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
 <a href="https://marlonwayansnetworth.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://marlonwayansnetworth.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
-<a href="https://marlonwayansnetworth.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://marlonwayansnetworth.com/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
-<a href="https://marlonwayansnetworth.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
-<a href="https://marlonwayansnetworth.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://marlonwayansnetworth.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://marlonwayansnetworth.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://marlonwayansnetworth.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://marlonwayansnetworth.com/mastering-business-finance-productivity-a-deep-dive-into-cry-109-8/">mastering business finance productivity a deep dive into cry</a> 
-<a href="https://marlonwayansnetworth.com/mastering-business-growth-personal-finance-and-marketing-str/">mastering business growth personal finance and marketing str</a> 
-<a href="https://marlonwayansnetworth.com/mastering-business-growth-personal-finance-strategies-for-en/">mastering business growth personal finance strategies for en</a> 
-<a href="https://marlonwayansnetworth.com/mastering-business-personal-finance-and-marketing-synergy-fo/">mastering business personal finance and marketing synergy fo</a> 
-<a href="https://marlonwayansnetworth.com/mastering-digital-productivity-and-modern-living-top-apps-an-109-9/">mastering digital productivity and modern living top apps an</a> 
-<a href="https://marlonwayansnetworth.com/mastering-marketing-seo-growth-a-comprehensive-guide-for-sma-109-2/">mastering marketing seo growth a comprehensive guide for sma</a> 
-<a href="https://marlonwayansnetworth.com/mastering-marketing-seo-growth-essential-strategies-for-succ-109-2/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://marlonwayansnetworth.com/mastering-personal-finance-a-strategic-approach-to-business-109-10/">mastering personal finance a strategic approach to business </a> 
-<a href="https://marlonwayansnetworth.com/mastering-personal-finance-marketing-and-business-growth-a-c-109-10/">mastering personal finance marketing and business growth a c</a> 
-<a href="https://marlonwayansnetworth.com/mastering-the-balance-business-personal-finance-and-marketin/">mastering the balance business personal finance and marketin</a> 
-<a href="https://marlonwayansnetworth.com/mastering-the-intersection-of-business-personal-finance-and/">mastering the intersection of business personal finance and</a> 
-<a href="https://marlonwayansnetworth.com/mastering-web-tech-content-a-comprehensive-guide-to-modern-l-109-10/">mastering web tech content a comprehensive guide to modern l</a> 
-<a href="https://marlonwayansnetworth.com/mastering-your-digital-life-top-apps-for-enhanced-productivi/">mastering your digital life top apps for enhanced productivi</a> 

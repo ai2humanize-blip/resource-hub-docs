@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-59.md) · [‹ prev](references-57.md)
 
+<a href="https://palacsintarecept.hu.net/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://palacsintarecept.hu.net/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://palacsintarecept.hu.net/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://palacsintarecept.hu.net/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://palacsintarecept.hu.net/fruit-flies-in-the-kitchen-where-they-breed-and-how-to-clear/">fruit flies in the kitchen where they breed and how to clear</a> 
+<a href="https://palacsintarecept.hu.net/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://palacsintarecept.hu.net/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://palacsintarecept.hu.net/getting-a-simple-framework-for-researching-any-topic-online-2/">getting a simple framework for researching any topic online </a> 
+<a href="https://palacsintarecept.hu.net/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://palacsintarecept.hu.net/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://palacsintarecept.hu.net/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
+<a href="https://palacsintarecept.hu.net/getting-how-to-fact-check-something-in-five-minutes-right-2/">getting how to fact check something in five minutes right 2</a> 
+<a href="https://palacsintarecept.hu.net/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://palacsintarecept.hu.net/getting-how-to-read-the-news-without-getting-overwhelmed-rig-2/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://palacsintarecept.hu.net/getting-how-to-read-the-news-without-getting-overwhelmed-rig-3/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://palacsintarecept.hu.net/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://palacsintarecept.hu.net/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://palacsintarecept.hu.net/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://palacsintarecept.hu.net/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://palacsintarecept.hu.net/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
+<a href="https://palacsintarecept.hu.net/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://palacsintarecept.hu.net/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://palacsintarecept.hu.net/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://palacsintarecept.hu.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
@@ -781,24 +802,3 @@
 <a href="https://phlwin1.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
 <a href="https://phlwin1.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
 <a href="https://phlwin1.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
-<a href="https://phlwin1.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://phlwin1.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://phlwin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://phlwin1.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://phlwin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://phlwin1.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://phlwin1.xyz/classic-versus-modern-baby-names-explained-simply/">classic versus modern baby names explained simply</a> 
-<a href="https://phlwin1.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://phlwin1.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
-<a href="https://phlwin1.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
-<a href="https://phlwin1.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
-<a href="https://phlwin1.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://phlwin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://phlwin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://phlwin1.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://phlwin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://phlwin1.xyz/finding-the-right-outlet-for-your-announcement/">finding the right outlet for your announcement</a> 
-<a href="https://phlwin1.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://phlwin1.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://phlwin1.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://phlwin1.xyz/getting-the-difference-between-skimming-and-deep-reading-online-right/">getting the difference between skimming and deep reading onl</a> 

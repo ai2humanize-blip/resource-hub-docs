@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-60.md) · [‹ prev](references-58.md)
 
+<a href="https://phlwin1.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://phlwin1.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://phlwin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://phlwin1.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
+<a href="https://phlwin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://phlwin1.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://phlwin1.xyz/classic-versus-modern-baby-names-explained-simply/">classic versus modern baby names explained simply</a> 
+<a href="https://phlwin1.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://phlwin1.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
+<a href="https://phlwin1.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
+<a href="https://phlwin1.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
+<a href="https://phlwin1.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
+<a href="https://phlwin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://phlwin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://phlwin1.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://phlwin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://phlwin1.xyz/finding-the-right-outlet-for-your-announcement/">finding the right outlet for your announcement</a> 
+<a href="https://phlwin1.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://phlwin1.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://phlwin1.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://phlwin1.xyz/getting-the-difference-between-skimming-and-deep-reading-online-right/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://phlwin1.xyz/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://phlwin1.xyz/getting-what-makes-an-explainer-article-genuinely-useful-right/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://phlwin1.xyz/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
@@ -781,24 +802,3 @@
 <a href="https://polovnakola.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
 <a href="https://polovnakola.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
 <a href="https://polovnakola.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
-<a href="https://polovnakola.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
-<a href="https://polovnakola.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
-<a href="https://polovnakola.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://polovnakola.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://polovnakola.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
-<a href="https://polovnakola.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://polovnakola.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://polovnakola.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://polovnakola.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
-<a href="https://polovnakola.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
-<a href="https://polovnakola.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://polovnakola.com/how-to-build-a-personal-reading-list-2/">how to build a personal reading list 2</a> 
-<a href="https://polovnakola.com/how-to-build-a-personal-reading-list-a-practical-guide-2/">how to build a personal reading list a practical guide 2</a> 
-<a href="https://polovnakola.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
-<a href="https://polovnakola.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://polovnakola.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://polovnakola.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
-<a href="https://polovnakola.com/how-to-choose-a-travel-esim-for-your-destination/">how to choose a travel esim for your destination</a> 
-<a href="https://polovnakola.com/how-to-choose-the-right-child-care-center-a-comprehensive-gu/">how to choose the right child care center a comprehensive gu</a> 
-<a href="https://polovnakola.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
-<a href="https://polovnakola.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
