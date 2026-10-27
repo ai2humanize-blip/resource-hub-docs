@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://captainjackinterview.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-the-basics-of-staying-safe-while-browsing-2/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
+<a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://captainjackinterview.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
+<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
+<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://captainjackinterview.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
+<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-for-the-83-3/">mastering marketing seo growth a comprehensive guide for the</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-to-digi-83-3/">mastering marketing seo growth a comprehensive guide to digi</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-to-esse-83-3/">mastering marketing seo growth a comprehensive guide to esse</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-to-onli-83-3/">mastering marketing seo growth a comprehensive guide to onli</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-to-thri-83-3-2/">mastering marketing seo growth a comprehensive guide to thri</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-to-thri-83-3-3/">mastering marketing seo growth a comprehensive guide to thri</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-guide-to-thri-83-3/">mastering marketing seo growth a comprehensive guide to thri</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-comprehensive-roundup-83-8/">mastering marketing seo growth a comprehensive roundup 83 8</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-curated-guide-to-essential-83-3-2/">mastering marketing seo growth a curated guide to essential </a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-curated-guide-to-essential-83-3/">mastering marketing seo growth a curated guide to essential </a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-curated-guide-to-the-best-o-83-3/">mastering marketing seo growth a curated guide to the best o</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-a-guide-to-essential-online-r-83-3/">mastering marketing seo growth a guide to essential online r</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-habits-for-success-83-3/">mastering marketing seo growth essential habits for success </a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-online-resources-an-83-3/">mastering marketing seo growth essential online resources an</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-resources-and-strat-83-3/">mastering marketing seo growth essential resources and strat</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-skills-for-the-digi-83-3/">mastering marketing seo growth essential skills for the digi</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-and-reso-83-3/">mastering marketing seo growth essential strategies and reso</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-and-reso-83-8/">mastering marketing seo growth essential strategies and reso</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-onli-83-3/">mastering marketing seo growth essential strategies for onli</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3-2/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3-3/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3-4/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-for-authors-and-book-publishe-83-3/">mastering marketing seo growth for authors and book publishe</a> 

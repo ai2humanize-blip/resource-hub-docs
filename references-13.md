@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoikgkrff2f">3muoikgkrff2f</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoilpd4kp24">3muoilpd4kp24</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoimx4zet2x">3muoimx4zet2x</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoio5j6bu2c">3muoio5j6bu2c</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoipih6jt2i">3muoipih6jt2i</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoiqulwgb2i">3muoiqulwgb2i</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muois62ioc2e">3muois62ioc2e</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoitfjwps2l">3muoitfjwps2l</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoiunbmp22e">3muoiunbmp22e</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muoivw7xi22l">3muoivw7xi22l</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutrguvbys26">3mutrguvbys26</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutrncolsz2t">3mutrncolsz2t</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutrtojuzu2n">3mutrtojuzu2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muts4c3mvl2q">3muts4c3mvl2q</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutschvxzi2z">3mutschvxzi2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutuczhtte25">3mutuczhtte25</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutuio5wh426">3mutuio5wh426</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mutuo4f25y24">3mutuo4f25y24</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muztezago226">3muztezago226</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muztkogveb2n">3muztkogveb2n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muztqkcnb324">3muztqkcnb324</a> 
@@ -256,6 +274,9 @@
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-69/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-7/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-70/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-71/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-72/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-73/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-8/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-9/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10/">business finance productivity 50 resources worth bookmarking</a> 
@@ -781,24 +802,3 @@
 <a href="https://captainjackinterview.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-the-basics-of-staying-safe-while-browsing-2/">what to know about the basics of staying safe while browsing</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://captainjackinterview.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://captainjackinterview.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
