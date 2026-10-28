@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://app.zentrack.net/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://app.zentrack.net/how-to-build-a-personal-reading-list-and-why-it-matters-2/">how to build a personal reading list and why it matters 2</a> 
+<a href="https://app.zentrack.net/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://app.zentrack.net/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://app.zentrack.net/how-to-choose-a-baby-name-meaning-origin-and-sound-2/">how to choose a baby name meaning origin and sound 2</a> 
+<a href="https://app.zentrack.net/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://app.zentrack.net/how-to-choose-a-travel-esim-for-your-destination/">how to choose a travel esim for your destination</a> 
+<a href="https://app.zentrack.net/how-to-choose-a-trustworthy-online-casino-a-comprehensive-gu-25-2/">how to choose a trustworthy online casino a comprehensive gu</a> 
 <a href="https://app.zentrack.net/how-to-compare-sources-on-the-same-story-a-practical-guide-2/">how to compare sources on the same story a practical guide 2</a> 
 <a href="https://app.zentrack.net/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
 <a href="https://app.zentrack.net/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
@@ -793,12 +802,3 @@
 <a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-smarter-researc-79-9-2/">essential digital tools online resources for smarter researc</a> 
 <a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-smarter-researc-79-9-3/">essential digital tools online resources for smarter researc</a> 
 <a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-smarter-researc-79-9/">essential digital tools online resources for smarter researc</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-south-africans-79-9/">essential digital tools online resources for south africans </a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-staying-informe-79-9-2/">essential digital tools online resources for staying informe</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-staying-informe-79-9/">essential digital tools online resources for staying informe</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-the-modern-read-79-9/">essential digital tools online resources for the modern read</a> 
-<a href="https://arcadefloristbedford.com/essential-guides-reviews-and-how-tos-for-independent-news-fi-79-1/">essential guides reviews and how tos for independent news fi</a> 
-<a href="https://arcadefloristbedford.com/essential-guides-reviews-and-how-tos-for-the-modern-web-enth-79-1/">essential guides reviews and how tos for the modern web enth</a> 
-<a href="https://arcadefloristbedford.com/essential-guides-reviews-how-tos-for-a-smarter-safer-digital-79-1/">essential guides reviews how tos for a smarter safer digital</a> 
-<a href="https://arcadefloristbedford.com/essential-guides-reviews-how-tos-for-cryptocurrency-bitcoin-79-1/">essential guides reviews how tos for cryptocurrency bitcoin </a> 
-<a href="https://arcadefloristbedford.com/essential-guides-reviews-how-tos-for-everyday-life-in-nigeri-79-1/">essential guides reviews how tos for everyday life in nigeri</a> 
