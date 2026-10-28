@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://188jili1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://188jili1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://188jili1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://188jili1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://188jili1.xyz/hello-world/">hello world</a> 
 <a href="https://188jili1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://agenciainmobiliaria.xyz/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
 <a href="https://agenciainmobiliaria.xyz/getting-practical-tips-for-naming-siblings-right/">getting practical tips for naming siblings right</a> 
-<a href="https://agenciainmobiliaria.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
-<a href="https://agenciainmobiliaria.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
-<a href="https://agenciainmobiliaria.xyz/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://emiamedical.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://emiamedical.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://emiamedical.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
+<a href="https://emiamedical.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview-2/">zakat al fitr and the lunar calendar a practical overview 2</a> 
+<a href="https://emiamedical.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://enchanting-mochi-1ead5c.netlify.app/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://endearing-truffle-d89cbb.netlify.app/the-elearning-trends-reshaping-how-we-teach-and-learn.html">the elearning trends reshaping how we teach and learn</a> 
+<a href="https://ephemeral-chaja-f9adef.netlify.app/how-to-evaluate-20-minimum-deposit-casinos-before.html">how to evaluate 20 minimum deposit casinos before</a> 
+<a href="https://epicwin1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://epicwin1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://epicwin1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://epicwin1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://epicwin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://epicwin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://epicwin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://epicwin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://epicwin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://epicwin1.xyz/hello-world/">hello world</a> 
 <a href="https://epicwin1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://epicwin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
@@ -781,24 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@cd7eec0/teckjb.html">teckjb</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@cda04f0/newsgiga.html">newsgiga</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ce8ff04/agartala.html">agartala</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@cf095d8/discover-unique-event-ideas-and-planning-tips-for-memorable-.html">discover unique event ideas and planning tips for memorable</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@cf425e4/newsgiga.html">newsgiga</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@cf88373/breaking-down-today-s-top-news-analysis-and-expert-insights.html">breaking down today s top news analysis and expert insights</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@cfb1e07/why-primary-sources-matter-and-how-to-find-them-a-practical-.html">why primary sources matter and how to find them a practical</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@cfe4892/chandlerweekly.html">chandlerweekly</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@cfe52c4/agartala.html">agartala</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@cfedfcb/debt-payoff-calculator.html">debt payoff calculator</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d040f61/satsspin-de-com.html">satsspin de com</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d04b2b0/navigating-the-future-the-latest-in-cryptocurrency-bitcoin-a.html">navigating the future the latest in cryptocurrency bitcoin a</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d07252c/tokenspin.html">tokenspin</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d0dd082/staying-safe-and-responsible-the-latest-online-casino-and-ga.html">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d17c5c3/where-nfts-found-real-utility.html">where nfts found real utility</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d18ebe8/what-rsi-and-moving-averages-tell.html">what rsi and moving averages tell</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d226aac/satsspin-de-com.html">satsspin de com</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d2608ef/eternal-slots-casino-review-top-online-slots-casino.html">eternal slots casino review top online slots casino</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d2a8835/what-the-fear-greed-index-can-and-cannot.html">what the fear greed index can and cannot</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d31eb46/the-history-and-evolution-of-online-casino-gaming.html">the history and evolution of online casino gaming</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d339d0a/netflix-crime-drama-all-sinners-bleed-starring-sope.html">netflix crime drama all sinners bleed starring sope</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d3972a2/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy.html">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d3f493d/seminole-casino-coconut-creek-gaming-dining-and-entertainmen.html">seminole casino coconut creek gaming dining and entertainmen</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@d413639/do-not-sell-my-info.html">do not sell my info</a> 

@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
+<a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
+<a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://algiamedical.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
+<a href="https://algiamedical.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://algiamedical.com/it-certification-courses-online/">it certification courses online</a> 
+<a href="https://algiamedical.com/jouer-de-fa-on-responsable-aux-courses/">jouer de fa on responsable aux courses</a> 
 <a href="https://algiamedical.com/le-turf-pour-d-butants-lire-et-suivre-les-courses-hippiques/">le turf pour d butants lire et suivre les courses hippiques</a> 
 <a href="https://algiamedical.com/leveraging-web-tech-content-for-personal-and-professional-gr-77-7/">leveraging web tech content for personal and professional gr</a> 
 <a href="https://algiamedical.com/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
@@ -793,12 +802,3 @@
 <a href="https://app.zentrack.net/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
 <a href="https://app.zentrack.net/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
 <a href="https://app.zentrack.net/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://app.zentrack.net/how-to-research-a-name-s-history-and-meaning/">how to research a name s history and meaning</a> 
-<a href="https://app.zentrack.net/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://app.zentrack.net/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
-<a href="https://app.zentrack.net/how-to-stay-informed-a-guide-to-navigating-current-news-expl/">how to stay informed a guide to navigating current news expl</a> 
-<a href="https://app.zentrack.net/how-to-stay-informed-in-the-digital-age-a-practical-guide-to-25-3/">how to stay informed in the digital age a practical guide to</a> 
-<a href="https://app.zentrack.net/how-to-stay-informed-the-best-news-sources-for-in-depth-anal/">how to stay informed the best news sources for in depth anal</a> 
-<a href="https://app.zentrack.net/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://app.zentrack.net/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://app.zentrack.net/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
