@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://classy-custard-27adf4.netlify.app/what-is-yield-farming-real-risks.html">what is yield farming real risks</a> 
+<a href="https://classy-empanada-6ccd15.netlify.app/how-to-read-the-news-without-getting-overwhelmed-explained-s.html">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://classy-pudding-7b19a6.netlify.app/carmannews.html">carmannews</a> 
+<a href="https://clever-fenglisu-21c457.netlify.app/how-to-tell-explainer-journalism-from-opinion-the-basics.html">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://clinquant-moonbeam-2b26e4.netlify.app/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon.html">navigating the crypto landscape bitcoin blockchain and beyon</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-makes-an-explainer-article-genuinely-useful/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://cmdslot.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cmdslot.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cmdslot.xyz/a-guide-to-guest-contributing-and-press-outreach/">a guide to guest contributing and press outreach</a> 
+<a href="https://cmdslot.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://cmdslot.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cmdslot.xyz/a-practical-guide-to-working-with-independent-publishers/">a practical guide to working with independent publishers</a> 
+<a href="https://cmdslot.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cmdslot.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
 <a href="https://cmdslot.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
 <a href="https://cmdslot.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
@@ -781,24 +802,3 @@
 <a href="https://cplemaire.us.org/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://cplemaire.us.org/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
 <a href="https://cplemaire.us.org/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://cplemaire.us.org/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
-<a href="https://cplemaire.us.org/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
-<a href="https://cplemaire.us.org/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://cplemaire.us.org/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://cplemaire.us.org/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://cplemaire.us.org/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
-<a href="https://cplemaire.us.org/why-niche-blogs-still-matter-2/">why niche blogs still matter 2</a> 
-<a href="https://cplemaire.us.org/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://cplemaire.us.org/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://cplemaire.us.org/why-phone-speakers-sound-muffled-and-how-to-fix-it/">why phone speakers sound muffled and how to fix it</a> 
-<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 

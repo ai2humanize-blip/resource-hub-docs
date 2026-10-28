@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cplemaire.us.org/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://cplemaire.us.org/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://cplemaire.us.org/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
+<a href="https://cplemaire.us.org/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://cplemaire.us.org/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://cplemaire.us.org/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://cplemaire.us.org/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
+<a href="https://cplemaire.us.org/why-niche-blogs-still-matter-2/">why niche blogs still matter 2</a> 
+<a href="https://cplemaire.us.org/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://cplemaire.us.org/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://cplemaire.us.org/why-phone-speakers-sound-muffled-and-how-to-fix-it/">why phone speakers sound muffled and how to fix it</a> 
+<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://cplemaire.us.org/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
 <a href="https://crackstube7.wordpress.com/2026/09/02/explainer-journalism-making-sense-of-how-the-world-works/">explainer journalism making sense of how the world works</a> 
 <a href="https://crackstube7.wordpress.com/2026/09/02/independent-crypto-and-finance-news-to-follow-in-2026/">independent crypto and finance news to follow in 2026</a> 
@@ -781,24 +802,3 @@
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/blackpearlbitcoincom-comprehensive.html">blackpearlbitcoincom comprehensive</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/blog-post.html">blog post</a> 
 <a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/blog-post_08.html">blog post 08</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/blog-post_166.html">blog post 166</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/blog-post_337.html">blog post 337</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/blogger-outreach-service.html">blogger outreach service</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/blogger-reconnect-test.html">blogger reconnect test</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/blogger-reconnect-test_02013003984.html">blogger reconnect test 02013003984</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/boostelearning.html">boostelearning</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/boostelearningcom-certified-digital.html">boostelearningcom certified digital</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/brightstartnews-your-trusted-source-for.html">brightstartnews your trusted source for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/broken-link-building.html">broken link building</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/btccasinonewscom-your-go-to-source-for.html">btccasinonewscom your go to source for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/buy-link-insertions.html">buy link insertions</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/capsule-wardrobe-philippines.html">capsule wardrobe philippines</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/career-advice.html">career advice</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/carmannews-your-trusted-source-for-news.html">carmannews your trusted source for news</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/casino-bonus-comparison.html">casino bonus comparison</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/casino-reviews-uk.html">casino reviews uk</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/cebu-itinerary-4-days.html">cebu itinerary 4 days</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/certified-digital-academy.html">certified digital academy</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/chandler-weekly.html">chandler weekly</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/coincraftycom-your-trusted-source-for.html">coincraftycom your trusted source for</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/coinculbcom-your-trusted-source-for.html">coinculbcom your trusted source for</a> 
