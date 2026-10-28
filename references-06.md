@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
+<a href="https://algiamedical.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://algiamedical.com/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
+<a href="https://algiamedical.com/how-to-get-the-most-out-of-online-guides-explained-simply-2/">how to get the most out of online guides explained simply 2</a> 
+<a href="https://algiamedical.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
+<a href="https://algiamedical.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
 <a href="https://algiamedical.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
 <a href="https://algiamedical.com/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
 <a href="https://algiamedical.com/how-to-organize-the-information-you-find-online-explained-si/">how to organize the information you find online explained si</a> 
@@ -796,9 +802,3 @@
 <a href="https://app.zentrack.net/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
 <a href="https://app.zentrack.net/how-to-choose-a-travel-esim-for-your-destination/">how to choose a travel esim for your destination</a> 
 <a href="https://app.zentrack.net/how-to-choose-a-trustworthy-online-casino-a-comprehensive-gu-25-2/">how to choose a trustworthy online casino a comprehensive gu</a> 
-<a href="https://app.zentrack.net/how-to-compare-sources-on-the-same-story-a-practical-guide-2/">how to compare sources on the same story a practical guide 2</a> 
-<a href="https://app.zentrack.net/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
-<a href="https://app.zentrack.net/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://app.zentrack.net/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
-<a href="https://app.zentrack.net/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://app.zentrack.net/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 

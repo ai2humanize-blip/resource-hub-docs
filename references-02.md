@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
+<a href="https://123angelnumber.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview-2/">zakat al fitr and the lunar calendar a practical overview 2</a> 
 <a href="https://123angelnumber.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
 <a href="https://188jili1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://188jili1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
@@ -800,5 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
 <a href="https://agenciainmobiliaria.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://agenciainmobiliaria.xyz/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
-<a href="https://agenciainmobiliaria.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
-<a href="https://agenciainmobiliaria.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
