@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cmdslot.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://cmdslot.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cmdslot.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cmdslot.xyz/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
+<a href="https://cmdslot.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
+<a href="https://cmdslot.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cmdslot.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
+<a href="https://cmdslot.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://cmdslot.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://cmdslot.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cmdslot.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
+<a href="https://cmdslot.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cmdslot.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://cmdslot.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://cmdslot.xyz/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
+<a href="https://cmdslot.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
+<a href="https://cmdslot.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
+<a href="https://cmdslot.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
+<a href="https://cmdslot.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cmdslot.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://cmdslot.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
 <a href="https://cmdslot.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://cmdslot.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
 <a href="https://cmdslot.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
@@ -781,24 +802,3 @@
 <a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
 <a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://cplemaire.us.org/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
-<a href="https://crackstube7.wordpress.com/2026/09/02/explainer-journalism-making-sense-of-how-the-world-works/">explainer journalism making sense of how the world works</a> 
-<a href="https://crackstube7.wordpress.com/2026/09/02/independent-crypto-and-finance-news-to-follow-in-2026/">independent crypto and finance news to follow in 2026</a> 
-<a href="https://crackstube7.wordpress.com/2026/09/02/independent-news-and-explainer-sites-worth-following-in-2026/">independent news and explainer sites worth following in 2026</a> 
-<a href="https://crackstube7.wordpress.com/2026/09/02/practical-tech-guides-and-digital-resources-worth-bookmarking/">practical tech guides and digital resources worth bookmarkin</a> 
-<a href="https://creative-bienenstitch-143c3f.netlify.app/what-to-know-about-understanding-digital-literacy.html">what to know about understanding digital literacy</a> 
-<a href="https://creative-dieffenbachia-31cde3.netlify.app/a-closer-look-at-the-basics-of-staying-safe-while-browsing.html">a closer look at the basics of staying safe while browsing</a> 
-<a href="https://creativecasinoties.com/gindex.html">gindex</a> 
-<a href="https://creativecasinoties.com/picks.html">picks</a> 
-<a href="https://crediblenews24.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-86-5/">a beginner s guide to understanding and starting with crypto</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://crediblenews24.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 

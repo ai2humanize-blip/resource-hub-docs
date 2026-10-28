@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://algiamedical.com/how-to-be-a-smarter-news-reader-in-2026/">how to be a smarter news reader in 2026</a> 
+<a href="https://algiamedical.com/how-to-bookmark-and-revisit-useful-resources-the-basics-2/">how to bookmark and revisit useful resources the basics 2</a> 
+<a href="https://algiamedical.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://algiamedical.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://algiamedical.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://algiamedical.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
+<a href="https://algiamedical.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://algiamedical.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
 <a href="https://algiamedical.com/how-to-choose-the-perfect-restaurant-for-your-next-outing-a-77-7/">how to choose the perfect restaurant for your next outing a </a> 
 <a href="https://algiamedical.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://algiamedical.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
@@ -793,12 +802,3 @@
 <a href="https://app.zentrack.net/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://app.zentrack.net/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
 <a href="https://app.zentrack.net/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
-<a href="https://app.zentrack.net/how-crypto-cards-work-and-how-to-compare-them/">how crypto cards work and how to compare them</a> 
-<a href="https://app.zentrack.net/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
-<a href="https://app.zentrack.net/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
-<a href="https://app.zentrack.net/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
-<a href="https://app.zentrack.net/how-dailywatchreports-transforms-news-consumption-in-india/">how dailywatchreports transforms news consumption in india</a> 
-<a href="https://app.zentrack.net/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
-<a href="https://app.zentrack.net/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
-<a href="https://app.zentrack.net/how-html5-revolutionized-casual-browser-gaming-for-business-25-2/">how html5 revolutionized casual browser gaming for business </a> 
-<a href="https://app.zentrack.net/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 

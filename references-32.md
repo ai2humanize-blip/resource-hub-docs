@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-33.md) · [‹ prev](references-31.md)
 
+<a href="https://forotesis.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://forotesis.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://forotesis.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://forotesis.com/a-guide-to-names-that-mean-moon-star-and-sun-explained-simpl/">a guide to names that mean moon star and sun explained simpl</a> 
+<a href="https://forotesis.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://forotesis.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://forotesis.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://forotesis.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://forotesis.com/air-quality-in-pune-what-affects-the-air-you-breathe/">air quality in pune what affects the air you breathe</a> 
+<a href="https://forotesis.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://forotesis.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://forotesis.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://forotesis.com/boost-your-business-finance-productivity-with-smart-internet-96-6/">boost your business finance productivity with smart internet</a> 
 <a href="https://forotesis.com/boost-your-online-visibility-a-fresh-approach-to-seo-for-sma/">boost your online visibility a fresh approach to seo for sma</a> 
 <a href="https://forotesis.com/boosting-your-business-and-personal-finances-a-marketing-dri/">boosting your business and personal finances a marketing dri</a> 
 <a href="https://forotesis.com/breaking-down-the-latest-developments-in-global-news-and-ana/">breaking down the latest developments in global news and ana</a> 
@@ -781,24 +802,3 @@
 <a href="https://getolive.org/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://getolive.org/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a-3/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
 <a href="https://getolive.org/navigating-the-cryptocurrency-revolution-bitcoin-blockchain/">navigating the cryptocurrency revolution bitcoin blockchain</a> 
-<a href="https://getolive.org/navigating-the-digital-age-how-to-choose-the-right-apps-for/">navigating the digital age how to choose the right apps for</a> 
-<a href="https://getolive.org/navigating-the-digital-landscape-essential-tools-online-reso-97-6/">navigating the digital landscape essential tools online reso</a> 
-<a href="https://getolive.org/navigating-the-digital-landscape-web-tech-content-insights-f-97-7/">navigating the digital landscape web tech content insights f</a> 
-<a href="https://getolive.org/navigating-the-digital-news-landscape-ai-trends-and-insights-97-6/">navigating the digital news landscape ai trends and insights</a> 
-<a href="https://getolive.org/navigating-the-digital-world-a-comprehensive-guide-to-web-te-97-7/">navigating the digital world a comprehensive guide to web te</a> 
-<a href="https://getolive.org/navigating-the-digital-world-essential-tools-and-strategies-97-6/">navigating the digital world essential tools and strategies </a> 
-<a href="https://getolive.org/navigating-the-digital-world-how-ai-powered-apps-are-transfo-97-9/">navigating the digital world how ai powered apps are transfo</a> 
-<a href="https://getolive.org/navigating-the-digital-world-tools-and-tips-for-smart-online-97-6/">navigating the digital world tools and tips for smart online</a> 
-<a href="https://getolive.org/navigating-the-future-bitcoin-blockchain-and-the-latest-cryp/">navigating the future bitcoin blockchain and the latest cryp</a> 
-<a href="https://getolive.org/navigating-the-future-how-ai-driven-apps-are-transforming-ou/">navigating the future how ai driven apps are transforming ou</a> 
-<a href="https://getolive.org/navigating-the-future-how-bitcoin-and-blockchain-are-transfo/">navigating the future how bitcoin and blockchain are transfo</a> 
-<a href="https://getolive.org/navigating-the-future-of-ai-current-developments-and-their-i/">navigating the future of ai current developments and their i</a> 
-<a href="https://getolive.org/navigating-the-future-of-digital-currencies-key-trends-and-d/">navigating the future of digital currencies key trends and d</a> 
-<a href="https://getolive.org/navigating-the-future-of-finance-understanding-crypto-bitcoi/">navigating the future of finance understanding crypto bitcoi</a> 
-<a href="https://getolive.org/navigating-the-future-of-media-trends-ai-impact-and-expert-a-97-7/">navigating the future of media trends ai impact and expert a</a> 
-<a href="https://getolive.org/navigating-the-future-of-virginia-childhood-education-2026-i-97-7/">navigating the future of virginia childhood education 2026 i</a> 
-<a href="https://getolive.org/navigating-the-intersection-of-marketing-seo-growth-for-busi-97-9/">navigating the intersection of marketing seo growth for busi</a> 
-<a href="https://getolive.org/navigating-the-intersection-of-marketing-seo-growth-in-2023-97-9/">navigating the intersection of marketing seo growth in 2023 </a> 
-<a href="https://getolive.org/navigating-the-latest-news-trends-a-comprehensive-guide-to-s/">navigating the latest news trends a comprehensive guide to s</a> 
-<a href="https://getolive.org/navigating-the-modern-news-landscape-ai-trends-and-reliable-97-7/">navigating the modern news landscape ai trends and reliable </a> 
-<a href="https://getolive.org/navigating-the-modern-news-landscape-insights-on-business-fi-97-10/">navigating the modern news landscape insights on business fi</a> 

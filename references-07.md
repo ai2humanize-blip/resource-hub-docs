@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://app.zentrack.net/how-crypto-cards-work-and-how-to-compare-them/">how crypto cards work and how to compare them</a> 
+<a href="https://app.zentrack.net/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://app.zentrack.net/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://app.zentrack.net/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://app.zentrack.net/how-dailywatchreports-transforms-news-consumption-in-india/">how dailywatchreports transforms news consumption in india</a> 
+<a href="https://app.zentrack.net/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://app.zentrack.net/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
+<a href="https://app.zentrack.net/how-html5-revolutionized-casual-browser-gaming-for-business-25-2/">how html5 revolutionized casual browser gaming for business </a> 
+<a href="https://app.zentrack.net/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
 <a href="https://app.zentrack.net/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://app.zentrack.net/how-online-urdu-english-dictionaries-and-translation-tools-w-2/">how online urdu english dictionaries and translation tools w</a> 
 <a href="https://app.zentrack.net/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
@@ -793,12 +802,3 @@
 <a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-living-79-9-5/">essential digital tools online resources for modern living 7</a> 
 <a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-living-79-9-6/">essential digital tools online resources for modern living 7</a> 
 <a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-living-79-9-7/">essential digital tools online resources for modern living 7</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-living-79-9/">essential digital tools online resources for modern living 7</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-needs-79-9-2/">essential digital tools online resources for modern needs 79</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-needs-79-9-3/">essential digital tools online resources for modern needs 79</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-needs-79-9-4/">essential digital tools online resources for modern needs 79</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-needs-79-9/">essential digital tools online resources for modern needs 79</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-readers-79-9/">essential digital tools online resources for modern readers </a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-users-79-9-2/">essential digital tools online resources for modern users 79</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-users-79-9-3/">essential digital tools online resources for modern users 79</a> 
-<a href="https://arcadefloristbedford.com/essential-digital-tools-online-resources-for-modern-users-79-9/">essential digital tools online resources for modern users 79</a> 
