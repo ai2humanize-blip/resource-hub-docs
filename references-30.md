@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-31.md) · [‹ prev](references-29.md)
 
+<a href="https://feetfinder.uk.net/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
+<a href="https://feetfinder.uk.net/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://feetfinder.uk.net/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
+<a href="https://feetfinder.uk.net/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
+<a href="https://feetfinder.uk.net/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://feetfinder.uk.net/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://feetfinder.uk.net/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
+<a href="https://feetfinder.uk.net/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://feetfinder.uk.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://feetfinder.uk.net/google-stacking-2/">google stacking 2</a> 
+<a href="https://feetfinder.uk.net/google-stacking/">google stacking</a> 
+<a href="https://feetfinder.uk.net/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
+<a href="https://feetfinder.uk.net/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://feetfinder.uk.net/how-popular-baby-names-change-over-the-decades-and-why-it-ma/">how popular baby names change over the decades and why it ma</a> 
+<a href="https://feetfinder.uk.net/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype-2/">how to avoid misinformation and hype 2</a> 
 <a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://feetfinder.uk.net/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
 <a href="https://feetfinder.uk.net/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
@@ -781,24 +802,3 @@
 <a href="https://fideleturfturf.it.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
 <a href="https://fideleturfturf.it.com/navigating-the-curated-web-a-deep-dive-into-web-tech-content-28-6/">navigating the curated web a deep dive into web tech content</a> 
 <a href="https://fideleturfturf.it.com/navigating-the-digital-age-how-to-leverage-apps-for-a-smarte/">navigating the digital age how to leverage apps for a smarte</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-landscape-essential-tools-resources-f-28-5/">navigating the digital landscape essential tools resources f</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-news-age-tools-trends-and-ai-insights-28-5/">navigating the digital news age tools trends and ai insights</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-news-landscape-ai-trends-and-insights-28-5/">navigating the digital news landscape ai trends and insights</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-world-a-comprehensive-guide-to-essent-28-5/">navigating the digital world a comprehensive guide to essent</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-world-a-comprehensive-guide-to-web-te-28-6/">navigating the digital world a comprehensive guide to web te</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-world-essential-tools-resources-for-s-28-5-2/">navigating the digital world essential tools resources for s</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-world-essential-tools-resources-for-s-28-5/">navigating the digital world essential tools resources for s</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-world-transforming-daily-life-with-ai-28-5/">navigating the digital world transforming daily life with ai</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-world-web-tech-content-essentials-28-6/">navigating the digital world web tech content essentials 28 </a> 
-<a href="https://fideleturfturf.it.com/navigating-the-digital-world-web-tech-content-mastery-28-6/">navigating the digital world web tech content mastery 28 6</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-future-ai-s-impact-on-news-media-and-journali/">navigating the future ai s impact on news media and journali</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-future-of-ai-in-journalism-opportunities-and/">navigating the future of ai in journalism opportunities and</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-future-of-news-digital-tools-online-resources-28-5/">navigating the future of news digital tools online resources</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-intersection-of-web-tech-and-content-a-compre-28-6/">navigating the intersection of web tech and content a compre</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-latest-news-and-ai-trends-in-depth-analysis-a-28-5/">navigating the latest news and ai trends in depth analysis a</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-latest-news-landscape-in-depth-analysis-and-e/">navigating the latest news landscape in depth analysis and e</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-modern-news-landscape-tools-trends-and-ai-ins-28-5/">navigating the modern news landscape tools trends and ai ins</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-comprehensive-guide-to-reliable-tech-co-28-6/">navigating the web a comprehensive guide to reliable tech co</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-comprehensive-guide-to-tech-content-and-28-6/">navigating the web a comprehensive guide to tech content and</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-comprehensive-guide-to-trustworthy-cont-28-6/">navigating the web a comprehensive guide to trustworthy cont</a> 

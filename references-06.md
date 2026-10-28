@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/how-to-choose-the-perfect-restaurant-for-your-next-outing-a-77-7/">how to choose the perfect restaurant for your next outing a </a> 
+<a href="https://algiamedical.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://algiamedical.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://algiamedical.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://algiamedical.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://algiamedical.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
+<a href="https://algiamedical.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://algiamedical.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://algiamedical.com/how-to-find-and-plan-the-perfect-event-venue-a-comprehensive-77-7/">how to find and plan the perfect event venue a comprehensive</a> 
 <a href="https://algiamedical.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
 <a href="https://algiamedical.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
 <a href="https://algiamedical.com/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
@@ -793,12 +802,3 @@
 <a href="https://app.zentrack.net/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
 <a href="https://app.zentrack.net/how-html5-revolutionized-casual-browser-gaming-for-business-25-2/">how html5 revolutionized casual browser gaming for business </a> 
 <a href="https://app.zentrack.net/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
-<a href="https://app.zentrack.net/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
-<a href="https://app.zentrack.net/how-online-urdu-english-dictionaries-and-translation-tools-w-2/">how online urdu english dictionaries and translation tools w</a> 
-<a href="https://app.zentrack.net/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
-<a href="https://app.zentrack.net/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
-<a href="https://app.zentrack.net/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
-<a href="https://app.zentrack.net/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
-<a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 
-<a href="https://app.zentrack.net/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
