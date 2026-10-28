@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://188jili1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://188jili1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://188jili1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://188jili1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://188jili1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -799,6 +802,3 @@
 <a href="https://agenciainmobiliaria.xyz/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
 <a href="https://agenciainmobiliaria.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://agenciainmobiliaria.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://agenciainmobiliaria.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://agenciainmobiliaria.xyz/finding-the-right-outlet-for-your-announcement/">finding the right outlet for your announcement</a> 
-<a href="https://agenciainmobiliaria.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
