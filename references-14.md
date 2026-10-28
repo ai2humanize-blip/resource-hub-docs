@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://captainjackinterview.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://captainjackinterview.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-82-2-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -781,24 +802,3 @@
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-roun-83-4-2/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-roun-83-4/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-deep-dive-into-ind-83-4/">mastering business finance productivity a deep dive into ind</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-essential-online-str-83-4/">mastering business finance productivity essential online str</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-essential-web-skills-83-9/">mastering business finance productivity essential web skills</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-83-4-2/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-83-4-3/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-83-4-4/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-83-4/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-83-9/">mastering business finance productivity in the digital age 8</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-a-83-4-2/">mastering business finance productivity in the digital age a</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-a-83-4-3/">mastering business finance productivity in the digital age a</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-in-the-digital-age-a-83-4/">mastering business finance productivity in the digital age a</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-with-ai-art-prompt-g-83-4/">mastering business finance productivity with ai art prompt g</a> 
-<a href="https://cbd-stone.com/mastering-crypto-essential-terms-news-interpretation-and-wal-83-8/">mastering crypto essential terms news interpretation and wal</a> 
-<a href="https://cbd-stone.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-83-7/">mastering digital literacy guides reviews and how tos for th</a> 
-<a href="https://cbd-stone.com/mastering-digital-skills-top-online-resources-professional-c-83-5/">mastering digital skills top online resources professional c</a> 
-<a href="https://cbd-stone.com/mastering-digital-tools-online-resources-a-comprehensive-gui-83-5-2/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbd-stone.com/mastering-digital-tools-online-resources-a-comprehensive-gui-83-5/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbd-stone.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-83-2-2/">mastering guides reviews how tos a comprehensive roundup 83 </a> 
-<a href="https://cbd-stone.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-83-2/">mastering guides reviews how tos a comprehensive roundup 83 </a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-83-3-2/">mastering marketing seo and growth a comprehensive guide 83 </a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-83-3/">mastering marketing seo and growth a comprehensive guide 83 </a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-and-growth-a-comprehensive-guide-for-83-3/">mastering marketing seo and growth a comprehensive guide for</a> 

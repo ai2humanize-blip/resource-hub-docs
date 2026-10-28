@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
+<a href="https://algiamedical.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://algiamedical.com/how-to-stay-ahead-of-fashion-style-and-lifestyle-trends-in-2/">how to stay ahead of fashion style and lifestyle trends in 2</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-explained-simp-2/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-explained-simply/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
 <a href="https://algiamedical.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
 <a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
 <a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
@@ -793,12 +802,3 @@
 <a href="https://app.zentrack.net/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
 <a href="https://app.zentrack.net/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters/">how to find balanced coverage of a topic and why it matters</a> 
 <a href="https://app.zentrack.net/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
-<a href="https://app.zentrack.net/how-to-find-reliable-how-to-guides-a-practical-guide-2/">how to find reliable how to guides a practical guide 2</a> 
-<a href="https://app.zentrack.net/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://app.zentrack.net/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
-<a href="https://app.zentrack.net/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://app.zentrack.net/how-to-leverage-digital-tools-online-resources-for-personal-25-3/">how to leverage digital tools online resources for personal </a> 
-<a href="https://app.zentrack.net/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://app.zentrack.net/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
-<a href="https://app.zentrack.net/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://app.zentrack.net/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 

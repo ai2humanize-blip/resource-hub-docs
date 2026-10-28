@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-47.md) · [‹ prev](references-45.md)
 
+<a href="https://livejournal.micro.blog/2026/10/07/092059.html">092059</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/092117.html">092117</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/092129.html">092129</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/092136.html">092136</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/092235.html">092235</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/093452.html">093452</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/093510.html">093510</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/093522.html">093522</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/093545.html">093545</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/093559.html">093559</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/094945.html">094945</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/094950.html">094950</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/094958.html">094958</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/095015.html">095015</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/100346.html">100346</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/100428.html">100428</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/100435.html">100435</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/101702.html">101702</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/101722.html">101722</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/101727.html">101727</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/101812.html">101812</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/103035.html">103035</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/103051.html">103051</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/103115.html">103115</a> 
@@ -781,24 +802,3 @@
 <a href="https://llmseoservices.org/how-ai-and-machine-learning-are-revolutionizing-mobile-app-d/">how ai and machine learning are revolutionizing mobile app d</a> 
 <a href="https://llmseoservices.org/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://llmseoservices.org/how-ai-and-machine-learning-are-transforming-everyday-mobile/">how ai and machine learning are transforming everyday mobile</a> 
-<a href="https://llmseoservices.org/how-ai-is-revolutionizing-news-reporting-current-trends-and/">how ai is revolutionizing news reporting current trends and</a> 
-<a href="https://llmseoservices.org/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
-<a href="https://llmseoservices.org/how-ai-powered-apps-are-transforming-our-daily-lives/">how ai powered apps are transforming our daily lives</a> 
-<a href="https://llmseoservices.org/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
-<a href="https://llmseoservices.org/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://llmseoservices.org/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://llmseoservices.org/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://llmseoservices.org/how-dailywatchreports-is-transforming-news-consumption-in-in/">how dailywatchreports is transforming news consumption in in</a> 
-<a href="https://llmseoservices.org/how-elearning-is-transforming-professional-development-and-c/">how elearning is transforming professional development and c</a> 
-<a href="https://llmseoservices.org/how-optimistindia-revolutionizes-digital-marketing-strategie/">how optimistindia revolutionizes digital marketing strategie</a> 
-<a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
-<a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
-<a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://llmseoservices.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
-<a href="https://llmseoservices.org/how-to-bookmark-and-revisit-useful-resources-2/">how to bookmark and revisit useful resources 2</a> 
-<a href="https://llmseoservices.org/how-to-bookmark-and-revisit-useful-resources-the-basics-2/">how to bookmark and revisit useful resources the basics 2</a> 
-<a href="https://llmseoservices.org/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://llmseoservices.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://llmseoservices.org/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://llmseoservices.org/how-to-choose-a-trustworthy-online-casino-a-comprehensive-gu-32-9/">how to choose a trustworthy online casino a comprehensive gu</a> 
