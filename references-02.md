@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://123angelnumber.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://123angelnumber.com/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
 <a href="https://123angelnumber.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://123angelnumber.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
 <a href="https://123angelnumber.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
@@ -799,6 +802,3 @@
 <a href="https://aaenergys.com/gindex.html">gindex</a> 
 <a href="https://aaenergys.com/picks.html">picks</a> 
 <a href="https://admirable-frangipane-a37729.netlify.app/building-a-healthy-daily-reading-habit-a-quick-guide.html">building a healthy daily reading habit a quick guide</a> 
-<a href="https://adorable-belekoy-a229d8.netlify.app/cara-aktivasi-akun-coretax.html">cara aktivasi akun coretax</a> 
-<a href="https://adorable-chaja-6eb224.netlify.app/verify-crypto-claim.html">verify crypto claim</a> 
-<a href="https://adorable-kleicha-49868f.netlify.app/islamic-calendar.html">islamic calendar</a> 
