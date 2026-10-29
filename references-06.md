@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-77-3/">guides reviews how tos 50 resources worth bookmarking 77 3</a> 
+<a href="https://algiamedical.com/guides-reviews-how-tos-navigating-online-casinos-and-crypto-77-8/">guides reviews how tos navigating online casinos and crypto </a> 
+<a href="https://algiamedical.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://algiamedical.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://algiamedical.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://algiamedical.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://algiamedical.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://algiamedical.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
 <a href="https://algiamedical.com/how-gambling-regulation-and-minimum-age-limits-work/">how gambling regulation and minimum age limits work</a> 
 <a href="https://algiamedical.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
 <a href="https://algiamedical.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
@@ -320,6 +328,7 @@
 <a href="https://algiamedical.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
 <a href="https://algiamedical.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
 <a href="https://algiamedical.com/top-digital-tools-online-resources-for-boosting-productivity-77-6/">top digital tools online resources for boosting productivity</a> 
+<a href="https://algiamedical.com/top-digital-tools-online-resources-for-job-seekers-and-stude-77-6/">top digital tools online resources for job seekers and stude</a> 
 <a href="https://algiamedical.com/top-digital-tools-online-resources-for-mastering-personal-fi-77-6/">top digital tools online resources for mastering personal fi</a> 
 <a href="https://algiamedical.com/transform-your-life-with-expert-insights-on-business-ai-and-77-10/">transform your life with expert insights on business ai and </a> 
 <a href="https://algiamedical.com/transform-your-life-with-insights-into-web-tech-and-content-77-7/">transform your life with insights into web tech and content </a> 
@@ -793,12 +802,3 @@
 <a href="https://app.zentrack.net/find-female-influencers/">find female influencers</a> 
 <a href="https://app.zentrack.net/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://app.zentrack.net/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://app.zentrack.net/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
-<a href="https://app.zentrack.net/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://app.zentrack.net/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://app.zentrack.net/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
-<a href="https://app.zentrack.net/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://app.zentrack.net/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://app.zentrack.net/getting-why-context-matters-when-reading-online-right-2/">getting why context matters when reading online right 2</a> 
-<a href="https://app.zentrack.net/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://app.zentrack.net/getting-why-niche-blogs-still-matter-right-2/">getting why niche blogs still matter right 2</a> 
