@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
+<a href="https://123angelnumber.com/web-tech-content-your-ultimate-guide-to-digital-productivity-76-8/">web tech content your ultimate guide to digital productivity</a> 
+<a href="https://123angelnumber.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
 <a href="https://123angelnumber.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://123angelnumber.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
 <a href="https://123angelnumber.com/what-makes-an-explainer-article-genuinely-useful-the-basics-2/">what makes an explainer article genuinely useful the basics </a> 
@@ -799,6 +802,3 @@
 <a href="https://999jl.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://999jl.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://999jl.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://999jl.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://999jl.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://999jl.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 

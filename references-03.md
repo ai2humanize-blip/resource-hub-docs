@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://999jl.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://999jl.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://999jl.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://aaenergys.com/gindex.html">gindex</a> 
 <a href="https://aaenergys.com/picks.html">picks</a> 
 <a href="https://admirable-frangipane-a37729.netlify.app/building-a-healthy-daily-reading-habit-a-quick-guide.html">building a healthy daily reading habit a quick guide</a> 
@@ -342,6 +345,8 @@
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-44/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-45/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-46/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-47/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-48/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-5/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-6/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-75-4-7/">exploring the intersection of web tech and content a compreh</a> 
@@ -364,6 +369,7 @@
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-75-4-2/">exploring the intersection of web tech and content in the cr</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-75-4-3/">exploring the intersection of web tech and content in the cr</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-75-4-4/">exploring the intersection of web tech and content in the cr</a> 
+<a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-75-4-5/">exploring the intersection of web tech and content in the cr</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-75-4/">exploring the intersection of web tech and content in the cr</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-in-the-di-75-4-2/">exploring the intersection of web tech and content in the di</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-intersection-of-web-tech-and-content-in-the-di-75-4-3/">exploring the intersection of web tech and content in the di</a> 
@@ -796,9 +802,3 @@
 <a href="https://agriculture-lawyer.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://agriculture-lawyer.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://agriculture-lawyer.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://agriculture-lawyer.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://agriculture-lawyer.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://agriculture-lawyer.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-19/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://agriculture-lawyer.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://agriculture-lawyer.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-20/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://agriculture-lawyer.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-21/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
