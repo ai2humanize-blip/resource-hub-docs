@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cup88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cup88.xyz/hello-world/">hello world</a> 
+<a href="https://cup88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cup88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://cup88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://cup88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://cup88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://cup88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://cup88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
+<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
+<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
+<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-write-for-fashion-blogs-guest-posting-guide.html">how to write for fashion blogs guest posting guide</a> 
+<a href="https://curated-resource-hub-na0i.bolt.host/">curated-resource-hub-na0i.bolt.host</a> 
+<a href="https://curated-resource-hub.webflow.io/posts/curated-independent-resources">curated independent resources</a> 
+<a href="https://curated-resource-hub.webflow.io/posts/resource-asianpinay-3">resource asianpinay 3</a> 
+<a href="https://curated-resource-hub.webflow.io/posts/resource-baginda168-13">resource baginda168 13</a> 
+<a href="https://curated-resource-hub.webflow.io/posts/resource-beauty-tips-well-health-organic-8">resource beauty tips well health organic 8</a> 
+<a href="https://curated-resource-hub.webflow.io/posts/resource-chandlerweekly-com-4">resource chandlerweekly com 4</a> 
+<a href="https://curated-resource-hub.webflow.io/posts/resource-dailywatchreports-com-5">resource dailywatchreports com 5</a> 
+<a href="https://curated-resource-hub.webflow.io/posts/resource-getjobsnews-com-11">resource getjobsnews com 11</a> 
 <a href="https://curated-resource-hub.webflow.io/posts/resource-illicitlabel-com-underground-music-authority-14">resource illicitlabel com underground music authority 14</a> 
 <a href="https://curated-resource-hub.webflow.io/posts/resource-litigationlawyer-12">resource litigationlawyer 12</a> 
 <a href="https://curated-resource-hub.webflow.io/posts/resource-peopleonthenews-com-6">resource peopleonthenews com 6</a> 
@@ -781,24 +802,3 @@
 <a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
 <a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
 <a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
-<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
-<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
-<a href="https://cyberkannadig.it.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
-<a href="https://cyberkannadig.it.com/how-washington-s-policies-not-charts-are-shaping-the-crypto-26-3/">how washington s policies not charts are shaping the crypto </a> 
-<a href="https://cyberkannadig.it.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://cyberkannadig.it.com/le-turf-pour-d-butants-lire-et-suivre-les-courses-hippiques/">le turf pour d butants lire et suivre les courses hippiques</a> 
-<a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply-2/">making sense of complex topics online explained simply 2</a> 
-<a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://cyberkannadig.it.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-26-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/making-sense-of-web-tech-content-a-practical-guide-to-online-26-3/">making sense of web tech content a practical guide to online</a> 
-<a href="https://cyberkannadig.it.com/master-cheap-flight-booking-guides-reviews-how-tos-for-real-26-4/">master cheap flight booking guides reviews how tos for real </a> 
-<a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4-2/">master guides reviews how tos your ultimate resource roundup</a> 
-<a href="https://cyberkannadig.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-26-4/">master guides reviews how tos your ultimate resource roundup</a> 
-<a href="https://cyberkannadig.it.com/master-news-consumption-guides-reviews-how-tos-for-savvy-rea-26-4/">master news consumption guides reviews how tos for savvy rea</a> 
-<a href="https://cyberkannadig.it.com/master-online-guides-reviews-how-tos-a-comprehensive-roundup-26-4/">master online guides reviews how tos a comprehensive roundup</a> 
-<a href="https://cyberkannadig.it.com/master-online-learning-guides-reviews-and-how-tos-for-succes-26-4/">master online learning guides reviews and how tos for succes</a> 
-<a href="https://cyberkannadig.it.com/master-online-research-guides-reviews-how-tos-for-smart-sear-26-4/">master online research guides reviews how tos for smart sear</a> 
-<a href="https://cyberkannadig.it.com/master-personal-professional-growth-with-online-guides-revie-26-4/">master personal professional growth with online guides revie</a> 
-<a href="https://cyberkannadig.it.com/master-reading-and-research-guides-reviews-how-tos-for-effec-26-4/">master reading and research guides reviews how tos for effec</a> 
-<a href="https://cyberkannadig.it.com/master-smart-reading-online-guides-reviews-how-tos-for-savvy-26-4/">master smart reading online guides reviews how tos for savvy</a> 

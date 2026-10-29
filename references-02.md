@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill-2/">what to know about how to use the web to learn a new skill 2</a> 
+<a href="https://123angelnumber.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://123angelnumber.com/what-to-know-about-the-difference-between-skimming-and-deep-reading-online/">what to know about the difference between skimming and deep </a> 
 <a href="https://123angelnumber.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://123angelnumber.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://123angelnumber.com/what-to-look-for-in-a-good-news-website-a-practical-guide-2/">what to look for in a good news website a practical guide 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://aesthetic-sorbet-b7fe49.netlify.app/teckjb.html">teckjb</a> 
 <a href="https://agenciainmobiliaria.xyz/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-bookmark-and-revisit-useful-resources/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 

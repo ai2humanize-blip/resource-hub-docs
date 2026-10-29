@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
+<a href="https://algiamedical.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://algiamedical.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
+<a href="https://algiamedical.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://algiamedical.com/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://algiamedical.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://algiamedical.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://algiamedical.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://algiamedical.com/getting-rid-of-cockroaches-what-works-and-what-doesn-t/">getting rid of cockroaches what works and what doesn t</a> 
 <a href="https://algiamedical.com/getting-the-basics-of-staying-safe-while-browsing-right-2/">getting the basics of staying safe while browsing right 2</a> 
 <a href="https://algiamedical.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
 <a href="https://algiamedical.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
@@ -793,12 +802,3 @@
 <a href="https://app.zentrack.net/exploring-the-best-business-finance-productivity-resources-25-2/">exploring the best business finance productivity resources 2</a> 
 <a href="https://app.zentrack.net/exploring-the-best-digital-tools-online-resources-for-every-25-3/">exploring the best digital tools online resources for every </a> 
 <a href="https://app.zentrack.net/exploring-the-best-digital-tools-online-resources-for-modern-25-3-2/">exploring the best digital tools online resources for modern</a> 
-<a href="https://app.zentrack.net/exploring-the-best-digital-tools-online-resources-for-modern-25-3/">exploring the best digital tools online resources for modern</a> 
-<a href="https://app.zentrack.net/exploring-the-best-independent-digital-tools-and-online-reso-25-3/">exploring the best independent digital tools and online reso</a> 
-<a href="https://app.zentrack.net/exploring-the-evolution-and-significance-of-baby-names-acros-25-2/">exploring the evolution and significance of baby names acros</a> 
-<a href="https://app.zentrack.net/exploring-the-future-of-mobile-apps-innovations-and-trends-s/">exploring the future of mobile apps innovations and trends s</a> 
-<a href="https://app.zentrack.net/exploring-the-intersection-of-business-finance-and-productiv-25-2-2/">exploring the intersection of business finance and productiv</a> 
-<a href="https://app.zentrack.net/exploring-the-intersection-of-business-finance-and-productiv-25-2-3/">exploring the intersection of business finance and productiv</a> 
-<a href="https://app.zentrack.net/exploring-the-intersection-of-business-finance-and-productiv-25-2-4/">exploring the intersection of business finance and productiv</a> 
-<a href="https://app.zentrack.net/exploring-the-intersection-of-business-finance-and-productiv-25-2-5/">exploring the intersection of business finance and productiv</a> 
-<a href="https://app.zentrack.net/exploring-the-intersection-of-business-finance-and-productiv-25-2-6/">exploring the intersection of business finance and productiv</a> 

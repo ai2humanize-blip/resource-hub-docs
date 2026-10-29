@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://cplemaire.us.org/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
+<a href="https://cplemaire.us.org/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
+<a href="https://cplemaire.us.org/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
+<a href="https://cplemaire.us.org/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
+<a href="https://cplemaire.us.org/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
+<a href="https://cplemaire.us.org/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide-2/">recognizing credible experts online a quick guide 2</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
+<a href="https://cplemaire.us.org/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
+<a href="https://cplemaire.us.org/sattaresultnow-com/">sattaresultnow com</a> 
+<a href="https://cplemaire.us.org/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
+<a href="https://cplemaire.us.org/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
+<a href="https://cplemaire.us.org/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
+<a href="https://cplemaire.us.org/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
+<a href="https://cplemaire.us.org/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
+<a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
 <a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
 <a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
 <a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
@@ -781,24 +802,3 @@
 <a href="https://cup88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://cup88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://cup88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://cup88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://cup88.xyz/hello-world/">hello world</a> 
-<a href="https://cup88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cup88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://cup88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://cup88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://cup88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cup88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://cup88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-write-for-fashion-blogs-guest-posting-guide.html">how to write for fashion blogs guest posting guide</a> 
-<a href="https://curated-resource-hub-na0i.bolt.host/">curated-resource-hub-na0i.bolt.host</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/curated-independent-resources">curated independent resources</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-asianpinay-3">resource asianpinay 3</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-baginda168-13">resource baginda168 13</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-beauty-tips-well-health-organic-8">resource beauty tips well health organic 8</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-chandlerweekly-com-4">resource chandlerweekly com 4</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-dailywatchreports-com-5">resource dailywatchreports com 5</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-getjobsnews-com-11">resource getjobsnews com 11</a> 
