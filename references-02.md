@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-opin/">unpacking today s top news in depth analysis and expert opin</a> 
+<a href="https://123angelnumber.com/using-a-crypto-card-for-travel-fees-fx-and-what-to-check/">using a crypto card for travel fees fx and what to check</a> 
+<a href="https://123angelnumber.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://123angelnumber.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
 <a href="https://123angelnumber.com/web-tech-content-your-ultimate-guide-to-digital-productivity-76-8/">web tech content your ultimate guide to digital productivity</a> 
 <a href="https://123angelnumber.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
@@ -799,6 +802,3 @@
 <a href="https://999jl.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://999jl.xyz/hello-world/">hello world</a> 
 <a href="https://999jl.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://999jl.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://999jl.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://999jl.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 

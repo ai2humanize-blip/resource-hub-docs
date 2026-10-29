@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cplemaire.us.org/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://cplemaire.us.org/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cplemaire.us.org/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://cplemaire.us.org/a-short-introduction-to-urdu-poetry-and-its-major-poets-2/">a short introduction to urdu poetry and its major poets 2</a> 
+<a href="https://cplemaire.us.org/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cplemaire.us.org/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://cplemaire.us.org/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cplemaire.us.org/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cplemaire.us.org/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
+<a href="https://cplemaire.us.org/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cplemaire.us.org/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
+<a href="https://cplemaire.us.org/arcenturf-co-resource-2-3/">arcenturf co resource 2 3</a> 
+<a href="https://cplemaire.us.org/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://cplemaire.us.org/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://cplemaire.us.org/blueflamepublishingblog-xyz-resource-2-2/">blueflamepublishingblog xyz resource 2 2</a> 
+<a href="https://cplemaire.us.org/blueflamepublishingblog-xyz-resource-2/">blueflamepublishingblog xyz resource 2</a> 
+<a href="https://cplemaire.us.org/book-publishing-and-the-business-of-being-an-author-what-to/">book publishing and the business of being an author what to</a> 
+<a href="https://cplemaire.us.org/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
+<a href="https://cplemaire.us.org/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
 <a href="https://cplemaire.us.org/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
 <a href="https://cplemaire.us.org/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
 <a href="https://cplemaire.us.org/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
@@ -781,24 +802,3 @@
 <a href="https://croginalcats.xyz/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
 <a href="https://croginalcats.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
 <a href="https://croginalcats.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
-<a href="https://croginalcats.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://croginalcats.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
-<a href="https://croginalcats.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://croginalcats.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://croginalcats.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://croginalcats.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://croginalcats.xyz/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
-<a href="https://croginalcats.xyz/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://croginalcats.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://croginalcats.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://croginalcats.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://croginalcats.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://croginalcats.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://croginalcats.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://croginalcats.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://croginalcats.xyz/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
-<a href="https://croginalcats.xyz/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://croginalcats.xyz/how-to-pick-a-middle-name-that-fits-a-practical-guide/">how to pick a middle name that fits a practical guide</a> 
-<a href="https://croginalcats.xyz/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
