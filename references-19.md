@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://croyale88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://croyale88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://croyale88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://croyale88.xyz/hello-world/">hello world</a> 
+<a href="https://croyale88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://croyale88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://croyale88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://croyale88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://croyale88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://croyale88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://croyale88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cup88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cup88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cup88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cup88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cup88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cup88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cup88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://cup88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://cup88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://cup88.xyz/hello-world/">hello world</a> 
 <a href="https://cup88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -781,24 +802,3 @@
 <a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
 <a href="https://cyberkannadig.it.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
 <a href="https://cyberkannadig.it.com/how-to-identify-and-avoid-common-online-scams-a-comprehensiv/">how to identify and avoid common online scams a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita/">how to leverage the latest apps for a more productive digita</a> 
-<a href="https://cyberkannadig.it.com/how-to-navigate-casinos-without-gamstop-a-practical-guide/">how to navigate casinos without gamstop a practical guide</a> 
-<a href="https://cyberkannadig.it.com/how-to-navigate-the-latest-news-trends-a-comprehensive-guide/">how to navigate the latest news trends a comprehensive guide</a> 
-<a href="https://cyberkannadig.it.com/how-to-organize-the-information-you-find-online-a-practical-2/">how to organize the information you find online a practical </a> 
-<a href="https://cyberkannadig.it.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://cyberkannadig.it.com/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
-<a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://cyberkannadig.it.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://cyberkannadig.it.com/how-to-safely-clean-your-phone-speaker/">how to safely clean your phone speaker</a> 
-<a href="https://cyberkannadig.it.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
-<a href="https://cyberkannadig.it.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://cyberkannadig.it.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://cyberkannadig.it.com/how-to-stay-informed-in-the-digital-age-a-practical-guide-26-4/">how to stay informed in the digital age a practical guide 26</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion-2/">how to tell explainer journalism from opinion 2</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion-explained-simp-2/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
-<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
