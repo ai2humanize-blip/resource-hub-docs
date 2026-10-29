@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-60.md) · [‹ prev](references-58.md)
 
+<a href="https://pharmacoplus.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://pharmacoplus.com/business-finance-productivity-key-strategies-for-success-in-117-10/">business finance productivity key strategies for success in </a> 
+<a href="https://pharmacoplus.com/career-advice/">career advice</a> 
+<a href="https://pharmacoplus.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
+<a href="https://pharmacoplus.com/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
+<a href="https://pharmacoplus.com/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
+<a href="https://pharmacoplus.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-117-3/">comprehensive guides in depth reviews and practical how tos </a> 
+<a href="https://pharmacoplus.com/comprehensive-roundup-guides-reviews-how-tos-for-every-inter-117-8/">comprehensive roundup guides reviews how tos for every inter</a> 
+<a href="https://pharmacoplus.com/cplemaire-quoi-sert-un-annuaire-du-turf/">cplemaire quoi sert un annuaire du turf</a> 
+<a href="https://pharmacoplus.com/decoding-today-s-news-in-depth-analysis-and-expert-insights/">decoding today s news in depth analysis and expert insights</a> 
+<a href="https://pharmacoplus.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://pharmacoplus.com/discover-the-best-digital-tools-online-resources-for-success-117-1/">discover the best digital tools online resources for success</a> 
+<a href="https://pharmacoplus.com/embrace-organic-living-your-guide-to-holistic-health-and-wel/">embrace organic living your guide to holistic health and wel</a> 
+<a href="https://pharmacoplus.com/essential-digital-tools-online-resources-for-modern-needs-117-1/">essential digital tools online resources for modern needs 11</a> 
+<a href="https://pharmacoplus.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://pharmacoplus.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://pharmacoplus.com/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
+<a href="https://pharmacoplus.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://pharmacoplus.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://pharmacoplus.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://pharmacoplus.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
 <a href="https://pharmacoplus.com/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
 <a href="https://pharmacoplus.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
 <a href="https://pharmacoplus.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
@@ -781,24 +802,3 @@
 <a href="https://playboicartinetworth.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
 <a href="https://playboicartinetworth.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://playboicartinetworth.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://playboicartinetworth.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
-<a href="https://playboicartinetworth.com/how-to-choose-a-travel-esim-for-your-destination/">how to choose a travel esim for your destination</a> 
-<a href="https://playboicartinetworth.com/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
-<a href="https://playboicartinetworth.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://playboicartinetworth.com/how-to-compare-sources-on-the-same-story-explained-simply/">how to compare sources on the same story explained simply</a> 
-<a href="https://playboicartinetworth.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
-<a href="https://playboicartinetworth.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations-explained-2/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://playboicartinetworth.com/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://playboicartinetworth.com/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://playboicartinetworth.com/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://playboicartinetworth.com/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://playboicartinetworth.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
-<a href="https://playboicartinetworth.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://playboicartinetworth.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 

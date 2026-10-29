@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cplemaire.us.org/the-font-world/">the font world</a> 
+<a href="https://cplemaire.us.org/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
+<a href="https://cplemaire.us.org/the-origins-and-meanings-of-common-idioms-what-to-know/">the origins and meanings of common idioms what to know</a> 
+<a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
+<a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://cplemaire.us.org/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://cplemaire.us.org/tlt-ng-resource-2/">tlt ng resource 2</a> 
+<a href="https://cplemaire.us.org/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
+<a href="https://cplemaire.us.org/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://cplemaire.us.org/understanding-baby-name-origins-across-cultures-and-language-2/">understanding baby name origins across cultures and language</a> 
+<a href="https://cplemaire.us.org/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
+<a href="https://cplemaire.us.org/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://cplemaire.us.org/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
+<a href="https://cplemaire.us.org/understanding-cryptocurrency-a-plain-language-introduction-f/">understanding cryptocurrency a plain language introduction f</a> 
+<a href="https://cplemaire.us.org/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://cplemaire.us.org/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://cplemaire.us.org/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
 <a href="https://cplemaire.us.org/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
 <a href="https://cplemaire.us.org/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
 <a href="https://cplemaire.us.org/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
@@ -781,24 +802,3 @@
 <a href="https://curated-resource-hub.webflow.io/posts/resource-chandlerweekly-com-4">resource chandlerweekly com 4</a> 
 <a href="https://curated-resource-hub.webflow.io/posts/resource-dailywatchreports-com-5">resource dailywatchreports com 5</a> 
 <a href="https://curated-resource-hub.webflow.io/posts/resource-getjobsnews-com-11">resource getjobsnews com 11</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-illicitlabel-com-underground-music-authority-14">resource illicitlabel com underground music authority 14</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-litigationlawyer-12">resource litigationlawyer 12</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-peopleonthenews-com-6">resource peopleonthenews com 6</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-reportspedia-com-7">resource reportspedia com 7</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-serp-insight-link-insertion-2">resource serp insight link insertion 2</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-stealthgram-10">resource stealthgram 10</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-thedigitalweekly-1">resource thedigitalweekly 1</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-vaeyc-org-9">resource vaeyc org 9</a> 
-<a href="https://curated-web-director-q7x2.bolt.host/">curated-web-director-q7x2.bolt.host</a> 
-<a href="https://curated-web-resource-hub.surge.sh/">curated-web-resource-hub.surge.sh</a> 
-<a href="https://curated-web-resource-hub.tiiny.site/">curated-web-resource-hub.tiiny.site</a> 
-<a href="https://curatedreads.lovestoblog.com/">curatedreads.lovestoblog.com</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/2forks-events.html">2forks events</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/2forkseventscom-your-ultimate-online.html">2forkseventscom your ultimate online</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/360sportnewscom-comprehensive-sports.html">360sportnewscom comprehensive sports</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/abcyapi.html">abcyapi</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/advantagebizmarketingcom-your-trusted.html">advantagebizmarketingcom your trusted</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/ai-art-prompt-generator.html">ai art prompt generator</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/anchor-text-ratio-for-seo.html">anchor text ratio for seo</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/arcenturf-quoi-sert-un-site.html">arcenturf quoi sert un site</a> 
-<a href="https://curatedresourcedirectoryhub.blogspot.com/2026/08/are-home-remedies-evidence-based.html">are home remedies evidence based</a> 

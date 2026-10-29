@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cbdstent.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://cbdstent.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://cbdstent.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://cbdstent.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
+<a href="https://cbdstent.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://cbdstent.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cbdstent.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://cbdstent.com/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
+<a href="https://cbdstent.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cbdstent.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://cbdstent.com/why-context-matters-when-reading-online-the-basics-2/">why context matters when reading online the basics 2</a> 
+<a href="https://cbdstent.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-85-9/">why niche blogs still matter a deep dive into web tech conte</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://cbdstent.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://cbdstent.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://cbdstent.com/why-you-have-gnats-indoors-and-how-to-identify-the-source/">why you have gnats indoors and how to identify the source</a> 
+<a href="https://cdn.jsdelivr.net/npm/curated-web-directory-hub/index.html">index</a> 
+<a href="https://cdn.jsdelivr.net/npm/curated-web-directory-hub@1.0.0/index.html">index</a> 
 <a href="https://celadon-marzipan-45718d.netlify.app/discover-the-future-of-digital-communication-secure-messagin.html">discover the future of digital communication secure messagin</a> 
 <a href="https://celadon-zuccutto-155242.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://celebrated-capybara-d2b549.netlify.app/hbar-price-consolidates-below-155-as-momentum-remains.html">hbar price consolidates below 155 as momentum remains</a> 
@@ -781,24 +802,3 @@
 <a href="https://cplemaire.us.org/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
 <a href="https://cplemaire.us.org/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
 <a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
-<a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://cplemaire.us.org/the-font-world/">the font world</a> 
-<a href="https://cplemaire.us.org/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
-<a href="https://cplemaire.us.org/the-origins-and-meanings-of-common-idioms-what-to-know/">the origins and meanings of common idioms what to know</a> 
-<a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
-<a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
-<a href="https://cplemaire.us.org/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
-<a href="https://cplemaire.us.org/tlt-ng-resource-2/">tlt ng resource 2</a> 
-<a href="https://cplemaire.us.org/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
-<a href="https://cplemaire.us.org/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
-<a href="https://cplemaire.us.org/understanding-baby-name-origins-across-cultures-and-language-2/">understanding baby name origins across cultures and language</a> 
-<a href="https://cplemaire.us.org/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
-<a href="https://cplemaire.us.org/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://cplemaire.us.org/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
-<a href="https://cplemaire.us.org/understanding-cryptocurrency-a-plain-language-introduction-f/">understanding cryptocurrency a plain language introduction f</a> 
-<a href="https://cplemaire.us.org/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://cplemaire.us.org/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://cplemaire.us.org/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 

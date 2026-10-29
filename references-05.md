@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/the-difference-between-skimming-and-deep-reading-online.html">the difference between skimming and deep reading online</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/the-evolution-of-sports-news-how-analytics-and-digital-media.html">the evolution of sports news how analytics and digital media</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/the-future-of-apps-how-ai-and-machine-learning-are-transform.html">the future of apps how ai and machine learning are transform</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/the-future-of-sports-news-how-ai-data-analytics-and-fan-enga-42-4.html">the future of sports news how ai data analytics and fan enga</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/the-lora-and-lato-pairing.html">the lora and lato pairing</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/the-playfair-display-and-source-sans-pairing.html">the playfair display and source sans pairing</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/the-rise-of-ai-in-journalism-transforming-news-delivery-and-.html">the rise of ai in journalism transforming news delivery and</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/the-rise-of-ai-in-news-media-current-trends-and-future-impli.html">the rise of ai in news media current trends and future impli</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/the-rise-of-ai-in-news-reporting-current-trends-and-future-i.html">the rise of ai in news reporting current trends and future i</a> 
@@ -716,6 +722,7 @@
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-24/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-25/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-26/">exploring essential digital tools online resources for moder</a> 
+<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-27/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-3/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-4/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-5/">exploring essential digital tools online resources for moder</a> 
@@ -733,6 +740,7 @@
 <a href="https://algiamedical.com/exploring-the-best-digital-tools-online-resources-for-crypto-77-6/">exploring the best digital tools online resources for crypto</a> 
 <a href="https://algiamedical.com/exploring-the-best-digital-tools-online-resources-for-modern-77-1/">exploring the best digital tools online resources for modern</a> 
 <a href="https://algiamedical.com/exploring-the-best-digital-tools-online-resources-for-modern-77-6-2/">exploring the best digital tools online resources for modern</a> 
+<a href="https://algiamedical.com/exploring-the-best-digital-tools-online-resources-for-modern-77-6-3/">exploring the best digital tools online resources for modern</a> 
 <a href="https://algiamedical.com/exploring-the-best-digital-tools-online-resources-for-modern-77-6/">exploring the best digital tools online resources for modern</a> 
 <a href="https://algiamedical.com/exploring-the-best-digital-tools-online-resources-for-sports-77-6/">exploring the best digital tools online resources for sports</a> 
 <a href="https://algiamedical.com/exploring-the-best-independent-web-tech-content-resources-77-2/">exploring the best independent web tech content resources 77</a> 
@@ -794,11 +802,3 @@
 <a href="https://algiamedical.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
 <a href="https://algiamedical.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://algiamedical.com/getting-rid-of-cockroaches-what-works-and-what-doesn-t/">getting rid of cockroaches what works and what doesn t</a> 
-<a href="https://algiamedical.com/getting-the-basics-of-staying-safe-while-browsing-right-2/">getting the basics of staying safe while browsing right 2</a> 
-<a href="https://algiamedical.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://algiamedical.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://algiamedical.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://algiamedical.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://algiamedical.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://algiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-77-3-2/">guides reviews how tos 50 resources worth bookmarking 77 3 2</a> 
-<a href="https://algiamedical.com/guides-reviews-how-tos-50-resources-worth-bookmarking-77-3-3/">guides reviews how tos 50 resources worth bookmarking 77 3 3</a> 
