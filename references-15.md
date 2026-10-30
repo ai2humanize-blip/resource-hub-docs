@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://casinoisloty.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
+<a href="https://casinoisloty.xyz/decentralized-autonomous-organizations-daos-explained-simply/">decentralized autonomous organizations daos explained simply</a> 
+<a href="https://casinoisloty.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://casinoisloty.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://casinoisloty.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://casinoisloty.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://casinoisloty.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://casinoisloty.xyz/garbage-disposal-troubleshooting-the-basics-every-homeowner/">garbage disposal troubleshooting the basics every homeowner</a> 
+<a href="https://casinoisloty.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://casinoisloty.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://casinoisloty.xyz/getting-how-to-avoid-misinformation-and-hype-right-2/">getting how to avoid misinformation and hype right 2</a> 
+<a href="https://casinoisloty.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://casinoisloty.xyz/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://casinoisloty.xyz/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://casinoisloty.xyz/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
+<a href="https://casinoisloty.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://casinoisloty.xyz/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://casinoisloty.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
+<a href="https://casinoisloty.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://casinoisloty.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
+<a href="https://casinoisloty.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
 <a href="https://casinoisloty.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
 <a href="https://casinoisloty.xyz/how-small-publishers-keep-advertising-transparent/">how small publishers keep advertising transparent</a> 
 <a href="https://casinoisloty.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -781,24 +802,3 @@
 <a href="https://cbdpuffbars.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
 <a href="https://cbdpuffbars.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
 <a href="https://cbdpuffbars.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://cbdpuffbars.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://cbdpuffbars.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://cbdpuffbars.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://cbdpuffbars.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://cbdpuffbars.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://cbdpuffbars.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
-<a href="https://cbdpuffbars.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
-<a href="https://cbdpuffbars.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://cbdpuffbars.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://cbdpuffbars.com/air-quality-in-kolkata-winter-pollution-and-health-context/">air quality in kolkata winter pollution and health context</a> 
-<a href="https://cbdpuffbars.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://cbdpuffbars.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://cbdpuffbars.com/avoid-online-loan-and-text-scams/">avoid online loan and text scams</a> 
-<a href="https://cbdpuffbars.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://cbdpuffbars.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://cbdpuffbars.com/boosting-your-business-and-personal-finances-a-marketing-per/">boosting your business and personal finances a marketing per</a> 
-<a href="https://cbdpuffbars.com/breaking-down-today-s-top-news-expert-analysis-and-key-insig/">breaking down today s top news expert analysis and key insig</a> 
-<a href="https://cbdpuffbars.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://cbdpuffbars.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
-<a href="https://cbdpuffbars.com/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 

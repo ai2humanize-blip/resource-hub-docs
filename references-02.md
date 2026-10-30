@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
+<a href="https://123angelnumber.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://123angelnumber.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://123angelnumber.com/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://123angelnumber.com/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
 <a href="https://123angelnumber.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://88taya.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://88taya.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://88taya.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://88taya.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://88taya.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://88taya.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 

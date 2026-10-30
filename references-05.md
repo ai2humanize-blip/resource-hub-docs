@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/non-partants-ce-qui-se-passe.html">non partants ce qui se passe</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/on-device-vs-cloud-ai.html">on device vs cloud ai</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/ondo-crypto-eyes-breakout-as-falling-wedge-pattern.html">ondo crypto eyes breakout as falling wedge pattern</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/other-ways-to-say-keep-up-the-good.html">other ways to say keep up the good</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/ownership-and-funding.html">ownership and funding</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/peopleonthenews-com.html">peopleonthenews com</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/phone-speaker-cleaner.html">phone speaker cleaner</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/pi-network-value-current-price-market-insights-future.html">pi network value current price market insights future</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/playfair-display-latin-700-normal-cudigg7c-woff2.html">playfair display latin 700 normal cudigg7c woff2</a> 
@@ -796,9 +802,3 @@
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-4/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-5/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-6/">exploring essential digital tools online resources for crypt</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-7/">exploring essential digital tools online resources for crypt</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-8/">exploring essential digital tools online resources for crypt</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6-9/">exploring essential digital tools online resources for crypt</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6/">exploring essential digital tools online resources for crypt</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-1-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-1/">exploring essential digital tools online resources for moder</a> 
