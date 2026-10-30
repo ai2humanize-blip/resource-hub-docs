@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://88taya.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://88taya.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://88taya.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://88taya.xyz/hello-world/">hello world</a> 
 <a href="https://88taya.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://88taya.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
@@ -683,10 +686,13 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4-2/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4-3/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4/">mastering web tech content a comprehensive guide to digital </a> 
+<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4-2/">mastering web tech content a comprehensive guide to online l</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4/">mastering web tech content a comprehensive guide to online l</a> 
+<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4-2/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-75-4/">mastering web tech content a comprehensive guide to reliable</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-75-4-2/">mastering web tech content a comprehensive guide to smart on</a> 
+<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-75-4-3/">mastering web tech content a comprehensive guide to smart on</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-75-4/">mastering web tech content a comprehensive guide to smart on</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smarter-75-9/">mastering web tech content a comprehensive guide to smarter </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-roundup-75-4/">mastering web tech content a comprehensive roundup 75 4</a> 
@@ -796,9 +802,3 @@
 <a href="https://agriculture-lawyer.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
 <a href="https://agriculture-lawyer.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://agriculture-lawyer.com/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
-<a href="https://agriculture-lawyer.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://agriculture-lawyer.com/social-impact-india/">social impact india</a> 
-<a href="https://agriculture-lawyer.com/stay-informed-and-engaged-guides-reviews-how-tos-for-fashion-75-5/">stay informed and engaged guides reviews how tos for fashion</a> 
-<a href="https://agriculture-lawyer.com/staying-informed-a-comprehensive-guide-to-daily-web-tech-con-75-4/">staying informed a comprehensive guide to daily web tech con</a> 
-<a href="https://agriculture-lawyer.com/staying-informed-the-best-strategies-for-consuming-current-n/">staying informed the best strategies for consuming current n</a> 
-<a href="https://agriculture-lawyer.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 

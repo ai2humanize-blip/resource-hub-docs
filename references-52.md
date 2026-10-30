@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-53.md) · [‹ prev](references-51.md)
 
+<a href="https://madeleine-dore.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh-3/">understanding cryptocurrency bitcoin and blockchain a fresh </a> 
+<a href="https://madeleine-dore.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://madeleine-dore.com/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
+<a href="https://madeleine-dore.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://madeleine-dore.com/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://madeleine-dore.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
 <a href="https://madeleine-dore.com/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
@@ -781,24 +802,3 @@
 <a href="https://metromsk.se.net/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
 <a href="https://metromsk.se.net/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
 <a href="https://metromsk.se.net/a-closer-look-at-how-to-pick-a-middle-name-that-fits/">a closer look at how to pick a middle name that fits</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-understanding-digital-literacy-2/">a closer look at understanding digital literacy 2</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u-2/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://metromsk.se.net/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://metromsk.se.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://metromsk.se.net/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://metromsk.se.net/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://metromsk.se.net/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://metromsk.se.net/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://metromsk.se.net/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://metromsk.se.net/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://metromsk.se.net/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://metromsk.se.net/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://metromsk.se.net/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://metromsk.se.net/air-quality-in-pune-what-affects-the-air-you-breathe/">air quality in pune what affects the air you breathe</a> 
-<a href="https://metromsk.se.net/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 

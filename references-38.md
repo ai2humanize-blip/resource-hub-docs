@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-organize-the-information-you-find-2/">what to know about how to organize the information you find </a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-organize-the-information-you-find-3/">what to know about how to organize the information you find </a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-read-the-news-without-getting-overwhelmed/">what to know about how to read the news without getting over</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-tell-explainer-journalism-from-opinion/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://hedaroibergroup.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
+<a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://hedaroibergroup.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://hedaroibergroup.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://hedaroibergroup.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://illicitlabel.com/understanding-blueflamepublishingblog-a-practical-guide/">understanding blueflamepublishingblog a practical guide</a> 
 <a href="https://illicitlabel.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
 <a href="https://illicitlabel.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
-<a href="https://illicitlabel.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://illicitlabel.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-how-search-engines-rank-pages-2/">understanding how search engines rank pages 2</a> 
-<a href="https://illicitlabel.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://illicitlabel.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://illicitlabel.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-oxpoll-a-practical-guide/">understanding oxpoll a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-techvantor-a-practical-guide/">understanding techvantor a practical guide</a> 
-<a href="https://illicitlabel.com/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 

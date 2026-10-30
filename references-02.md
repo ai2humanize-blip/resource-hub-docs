@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://123angelnumber.com/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
+<a href="https://123angelnumber.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
 <a href="https://123angelnumber.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
 <a href="https://123angelnumber.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
 <a href="https://123angelnumber.com/understanding-legal-information-and-news-a-comprehensive-gui/">understanding legal information and news a comprehensive gui</a> 
@@ -799,6 +802,3 @@
 <a href="https://88taya.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://88taya.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://88taya.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://88taya.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://88taya.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://88taya.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 

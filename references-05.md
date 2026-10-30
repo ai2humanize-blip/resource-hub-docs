@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/phone-speaker-cleaner.html">phone speaker cleaner</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/pi-network-value-current-price-market-insights-future.html">pi network value current price market insights future</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/playfair-display-latin-700-normal-cudigg7c-woff2.html">playfair display latin 700 normal cudigg7c woff2</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/politica-de-privacidad.html">politica de privacidad</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/polling-surveys.html">polling surveys</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/position-sizing-for-volatile-assets-without-leverage.html">position sizing for volatile assets without leverage</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste.html">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/pricing.html">pricing</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/proof-of-insurance-to-be-added.html">proof of insurance to be added</a> 
@@ -796,9 +802,3 @@
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-crypt-77-6/">exploring essential digital tools online resources for crypt</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-1-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-1/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-10/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-11/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-12/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-13/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-14/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-15/">exploring essential digital tools online resources for moder</a> 

@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right-2/">getting how to tell if a website is trustworthy right 2</a> 
+<a href="https://bitslots.de.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://bitslots.de.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://bitslots.de.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://bitslots.de.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://bitslots.de.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://bitslots.de.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://bitslots.de.com/how-baby-name-popularity-shifts-over-time-2/">how baby name popularity shifts over time 2</a> 
+<a href="https://bitslots.de.com/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://bitslots.de.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://bitslots.de.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
+<a href="https://bitslots.de.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://bitslots.de.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://bitslots.de.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://bitslots.de.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://bitslots.de.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://bitslots.de.com/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
@@ -784,21 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/teckjb-eef14b54/">teckjb eef14b54</a> 
 <a href="https://boostelearning.mataroa.blog/blog/teckjb/">teckjb</a> 
 <a href="https://boostelearning.mataroa.blog/blog/the-archivo-and-libre-franklin-pairing/">the archivo and libre franklin pairing</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-e88ec798/">the basics of staying safe while browsing e88ec798</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-explained-simply-d70dea36/">the basics of staying safe while browsing explained simply d</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-curated-resource-directory-independent-publications/">the curated resource directory independent publications</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-difference-between-skimming-and-deep-reading-online-explained-simply/">the difference between skimming and deep reading online expl</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-evolution-of-news-consumption-how-blocklists-are-changing-the-media-landscape/">the evolution of news consumption how blocklists are changin</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-future-of-ai-in-news-media-trends-challenges-and-opportunities/">the future of ai in news media trends challenges and opportu</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-future-of-sports-news-how-ai-and-analytics-are-transforming-analysis/">the future of sports news how ai and analytics are transform</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-impact-of-ai-on-modern-news-reporting-opportunities-and-challenges/">the impact of ai on modern news reporting opportunities and </a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-latest-news-trends-what-you-need-to-know-about-current-events-and-analysis/">the latest news trends what you need to know about current e</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-open-network/">the open network</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-ultimate-guide-to-boosting-your-websites-seo-with-internal-linking/">the ultimate guide to boosting your websites seo with intern</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-ultimate-guide-to-choosing-the-best-coffee-beans-for-your-brew/">the ultimate guide to choosing the best coffee beans for you</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-ultimate-guide-to-choosing-the-perfect-watch-for-any-occasion/">the ultimate guide to choosing the perfect watch for any occ</a> 
-<a href="https://boostelearning.mataroa.blog/blog/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
