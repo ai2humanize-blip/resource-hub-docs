@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://competitorscreenshots.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://competitorscreenshots.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://competitorscreenshots.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
+<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://competitorscreenshots.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
+<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://competitorscreenshots.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://competitorscreenshots.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
+<a href="https://competitorscreenshots.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://contact--53b86390917111f180301607ee4eb77e.web.val.run">contact--53b86390917111f180301607ee4eb77e.web.val.run</a> 
+<a href="https://contact--aaf73658923011f1877b1607ee4eb77e.web.val.run">contact--aaf73658923011f1877b1607ee4eb77e.web.val.run</a> 
+<a href="https://contact--cd64b29e93c311f18c2e1607ee4eb77e.web.val.run">contact--cd64b29e93c311f18c2e1607ee4eb77e.web.val.run</a> 
+<a href="https://contact--da593ad2922511f1a26f1607ee4eb77e.web.val.run">contact--da593ad2922511f1a26f1607ee4eb77e.web.val.run</a> 
 <a href="https://convergence-london.com/gindex.html">gindex</a> 
 <a href="https://convergence-london.com/picks.html">picks</a> 
 <a href="https://cool-bunny-8cff3e.netlify.app/mastering-personal-finance-a-guide-to-budgeting-investing-an.html">mastering personal finance a guide to budgeting investing an</a> 
@@ -781,24 +802,3 @@
 <a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
 <a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://crediblenews24.com/why-you-have-gnats-indoors-and-how-to-identify-the-source/">why you have gnats indoors and how to identify the source</a> 
-<a href="https://croginalcats.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://croginalcats.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://croginalcats.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://croginalcats.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://croginalcats.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://croginalcats.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
-<a href="https://croginalcats.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://croginalcats.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://croginalcats.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://croginalcats.xyz/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://croginalcats.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://croginalcats.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://croginalcats.xyz/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
-<a href="https://croginalcats.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
-<a href="https://croginalcats.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://croginalcats.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
-<a href="https://croginalcats.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://croginalcats.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://croginalcats.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://croginalcats.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
