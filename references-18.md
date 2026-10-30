@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://convergence-london.com/gindex.html">gindex</a> 
+<a href="https://convergence-london.com/picks.html">picks</a> 
+<a href="https://cool-bunny-8cff3e.netlify.app/mastering-personal-finance-a-guide-to-budgeting-investing-an.html">mastering personal finance a guide to budgeting investing an</a> 
+<a href="https://cool-cactus-4ab040.netlify.app/how-to-spot-low-quality-content-online-and-why-it-matters.html">how to spot low quality content online and why it matters</a> 
+<a href="https://cool-faloodeh-b62f18.netlify.app/footyntel.html">footyntel</a> 
+<a href="https://cool-horse-acb1ca.netlify.app/turf-pour-d-butants-par-o-commencer.html">turf pour d butants par o commencer</a> 
+<a href="https://cool-meringue-1c5481.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://cool-piroshki-a82906.netlify.app/mastering-business-finance-a-marketing-perspective-for-growt.html">mastering business finance a marketing perspective for growt</a> 
+<a href="https://coruscating-puppy-ec37f6.netlify.app/revolutionizing-daily-life-the-impact-of-ai-driven-apps-on-t.html">revolutionizing daily life the impact of ai driven apps on t</a> 
+<a href="https://courageous-chimera-a7f939.netlify.app/teckjb.html">teckjb</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill-2/">a closer look at how to use the web to learn a new skill 2</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online-2/">a closer look at recognizing credible experts online 2</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
 <a href="https://cplemaire.us.org/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://cplemaire.us.org/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://cplemaire.us.org/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
@@ -781,24 +802,3 @@
 <a href="https://croginalcats.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
 <a href="https://croginalcats.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://croginalcats.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://croginalcats.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://croginalcats.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://croginalcats.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://croginalcats.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://croginalcats.xyz/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
-<a href="https://croginalcats.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
-<a href="https://croginalcats.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
-<a href="https://croginalcats.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
-<a href="https://croginalcats.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://croginalcats.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://croginalcats.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://croginalcats.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://croginalcats.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://croginalcats.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://croginalcats.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://croginalcats.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://croginalcats.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://croginalcats.xyz/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://croginalcats.xyz/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
-<a href="https://croginalcats.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://croginalcats.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 

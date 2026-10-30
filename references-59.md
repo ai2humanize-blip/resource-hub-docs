@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-60.md) · [‹ prev](references-58.md)
 
+<a href="https://ph888com.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://ph888com.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://ph888com.xyz/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
+<a href="https://ph888com.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://ph888com.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://ph888com.xyz/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
+<a href="https://ph888com.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
+<a href="https://ph888com.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://ph888com.xyz/applying-for-a-driving-licence/">applying for a driving licence</a> 
+<a href="https://ph888com.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
+<a href="https://ph888com.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
+<a href="https://ph888com.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://ph888com.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://ph888com.xyz/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
+<a href="https://ph888com.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://ph888com.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://ph888com.xyz/classic-versus-modern-baby-names-a-quick-guide/">classic versus modern baby names a quick guide</a> 
+<a href="https://ph888com.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://ph888com.xyz/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
+<a href="https://ph888com.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
+<a href="https://ph888com.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
 <a href="https://ph888com.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
 <a href="https://ph888com.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://ph888com.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
@@ -781,24 +802,3 @@
 <a href="https://pixect.xyz/simple-habits-of-a-smart-internet-reader/">simple habits of a smart internet reader</a> 
 <a href="https://pixect.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://pixect.xyz/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://pixect.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://pixect.xyz/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
-<a href="https://pixect.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 
-<a href="https://pixect.xyz/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
-<a href="https://pixect.xyz/travel-authorisations-compared-etias-esta-and-the-uk-eta/">travel authorisations compared etias esta and the uk eta</a> 
-<a href="https://pixect.xyz/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
-<a href="https://pixect.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://pixect.xyz/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
-<a href="https://pixect.xyz/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
-<a href="https://pixect.xyz/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
-<a href="https://pixect.xyz/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
-<a href="https://pixect.xyz/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
-<a href="https://pixect.xyz/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://pixect.xyz/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
-<a href="https://pixect.xyz/understanding-cryptocurrency-a-plain-language-introduction-f/">understanding cryptocurrency a plain language introduction f</a> 
-<a href="https://pixect.xyz/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://pixect.xyz/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://pixect.xyz/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
-<a href="https://pixect.xyz/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
-<a href="https://pixect.xyz/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
-<a href="https://pixect.xyz/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 

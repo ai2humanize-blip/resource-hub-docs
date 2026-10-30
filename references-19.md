@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://croginalcats.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://croginalcats.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://croginalcats.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://croginalcats.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://croginalcats.xyz/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
+<a href="https://croginalcats.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
+<a href="https://croginalcats.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
+<a href="https://croginalcats.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
+<a href="https://croginalcats.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
+<a href="https://croginalcats.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://croginalcats.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://croginalcats.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://croginalcats.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://croginalcats.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://croginalcats.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://croginalcats.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://croginalcats.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://croginalcats.xyz/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://croginalcats.xyz/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://croginalcats.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://croginalcats.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
 <a href="https://croginalcats.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
 <a href="https://croginalcats.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
 <a href="https://croginalcats.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
@@ -781,24 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-3/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-4/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-5/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-6/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-7/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-8/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-9/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-curated-reso-26-3-2/">exploring the synergy of web tech and content a curated reso</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-curated-reso-26-3/">exploring the synergy of web tech and content a curated reso</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-for-digital-su-26-3/">exploring the synergy of web tech and content for digital su</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-for-modern-suc-26-3/">exploring the synergy of web tech and content for modern suc</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-modern-busi-26-3-2/">exploring the synergy of web tech and content in modern busi</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-modern-busi-26-3/">exploring the synergy of web tech and content in modern busi</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-modern-indu-26-3/">exploring the synergy of web tech and content in modern indu</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-2/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-3/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-4/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-modern-26-3/">exploring the synergy of web tech and content in the modern </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-today-s-dig-26-3/">exploring the synergy of web tech and content in today s dig</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-10/">exploring the synergy of web tech content a comprehensive ro</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-2/">exploring the synergy of web tech content a comprehensive ro</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-3/">exploring the synergy of web tech content a comprehensive ro</a> 
