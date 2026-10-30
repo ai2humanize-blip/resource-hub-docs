@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://999jl.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://999jl.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://999jl.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://999jl.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://999jl.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://999jl.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
@@ -400,6 +403,7 @@
 <a href="https://agriculture-lawyer.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-75-4-3/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-75-4-4/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-75-4-5/">exploring the synergy of web tech and content a comprehensiv</a> 
+<a href="https://agriculture-lawyer.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-75-4-6/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-75-4/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-synergy-of-web-tech-and-content-for-digital-su-75-4/">exploring the synergy of web tech and content for digital su</a> 
 <a href="https://agriculture-lawyer.com/exploring-the-synergy-of-web-tech-and-content-for-modern-suc-75-4/">exploring the synergy of web tech and content for modern suc</a> 
@@ -663,10 +667,12 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-2023-75-4/">mastering web tech content a comprehensive guide for 2023 75</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-crypto-75-4/">mastering web tech content a comprehensive guide for crypto </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-75-4/">mastering web tech content a comprehensive guide for modern </a> 
+<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-75-4/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-crypto-a-75-4/">mastering web tech content a comprehensive guide to crypto a</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4-2/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4/">mastering web tech content a comprehensive guide to online l</a> 
+<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-75-4/">mastering web tech content a comprehensive guide to smart on</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smarter-75-9/">mastering web tech content a comprehensive guide to smarter </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-roundup-75-4/">mastering web tech content a comprehensive roundup 75 4</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-for-personal-finance-success-75-4/">mastering web tech content for personal finance success 75 4</a> 
@@ -796,9 +802,3 @@
 <a href="https://agriculture-lawyer.com/the-future-of-digital-interaction-how-ai-driven-apps-are-tra/">the future of digital interaction how ai driven apps are tra</a> 
 <a href="https://agriculture-lawyer.com/the-future-of-news-consumption-how-ai-and-algorithms-are-tra/">the future of news consumption how ai and algorithms are tra</a> 
 <a href="https://agriculture-lawyer.com/the-hindu-lunar-calendar-months-paksha-and-major-festivals/">the hindu lunar calendar months paksha and major festivals</a> 
-<a href="https://agriculture-lawyer.com/the-rise-of-crypto-cards-a-comprehensive-guide-to-web-tech-c-75-4/">the rise of crypto cards a comprehensive guide to web tech c</a> 
-<a href="https://agriculture-lawyer.com/the-rise-of-data-driven-sports-analysis-how-numbers-are-chan/">the rise of data driven sports analysis how numbers are chan</a> 
-<a href="https://agriculture-lawyer.com/the-ultimate-guide-to-starting-a-home-based-online-business-75-5/">the ultimate guide to starting a home based online business </a> 
-<a href="https://agriculture-lawyer.com/the-value-of-slow-careful-reading-the-basics/">the value of slow careful reading the basics</a> 
-<a href="https://agriculture-lawyer.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://agriculture-lawyer.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
