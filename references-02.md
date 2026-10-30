@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
+<a href="https://123angelnumber.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
+<a href="https://123angelnumber.com/understanding-legal-information-and-news-a-comprehensive-gui/">understanding legal information and news a comprehensive gui</a> 
 <a href="https://123angelnumber.com/understanding-marketing-seo-and-growth-a-comprehensive-guide-76-5/">understanding marketing seo and growth a comprehensive guide</a> 
 <a href="https://123angelnumber.com/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
 <a href="https://123angelnumber.com/understanding-the-impact-of-spot-etf-flows-on-bitcoin-supply-76-5/">understanding the impact of spot etf flows on bitcoin supply</a> 
@@ -799,6 +802,3 @@
 <a href="https://88taya.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://88taya.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://88taya.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://88taya.xyz/hello-world/">hello world</a> 
-<a href="https://88taya.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://88taya.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 

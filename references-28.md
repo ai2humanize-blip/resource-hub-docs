@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://ezoterizm.com/exploring-the-world-of-online-casinos-web-tech-and-content-i-93-6/">exploring the world of online casinos web tech and content i</a> 
+<a href="https://ezoterizm.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ezoterizm.com/fruit-flies-in-the-kitchen-where-they-breed-and-how-to-clear/">fruit flies in the kitchen where they breed and how to clear</a> 
+<a href="https://ezoterizm.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://ezoterizm.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://ezoterizm.com/getting-how-to-avoid-misinformation-and-hype-right-2/">getting how to avoid misinformation and hype right 2</a> 
+<a href="https://ezoterizm.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://ezoterizm.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://ezoterizm.com/getting-how-to-get-the-most-out-of-online-guides-right-2/">getting how to get the most out of online guides right 2</a> 
+<a href="https://ezoterizm.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://ezoterizm.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig-2/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://ezoterizm.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://ezoterizm.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://ezoterizm.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://ezoterizm.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://ezoterizm.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://ezoterizm.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
+<a href="https://ezoterizm.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
+<a href="https://ezoterizm.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://ezoterizm.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://ezoterizm.com/how-ai-driven-apps-are-transforming-our-daily-digital-experi/">how ai driven apps are transforming our daily digital experi</a> 
 <a href="https://ezoterizm.com/how-ai-powered-apps-are-revolutionizing-daily-life-and-work/">how ai powered apps are revolutionizing daily life and work</a> 
 <a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-privacy/">how ai powered apps are transforming daily life and privacy</a> 
 <a href="https://ezoterizm.com/how-ai-powered-apps-are-transforming-daily-life-and-work-2/">how ai powered apps are transforming daily life and work 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-94-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://fabbusinesssolutions.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://fabbusinesssolutions.com/understanding-daily-result-charts-and-staying-up-to-date/">understanding daily result charts and staying up to date</a> 
-<a href="https://fabbusinesssolutions.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
-<a href="https://fabbusinesssolutions.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://fabbusinesssolutions.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://fabbusinesssolutions.com/understanding-europe-s-etias-travel-authorisation-a-general/">understanding europe s etias travel authorisation a general</a> 
-<a href="https://fabbusinesssolutions.com/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-explained-simply-2/">understanding how search engines rank pages explained simply</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://fabbusinesssolutions.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://fabbusinesssolutions.com/understanding-legal-information-and-news-a-comprehensive-gui/">understanding legal information and news a comprehensive gui</a> 

@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/pourquoi-un-annuaire-valu-est-plus-utile-qu-une-simple-liste.html">pourquoi un annuaire valu est plus utile qu une simple liste</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/pricing.html">pricing</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/proof-of-insurance-to-be-added.html">proof of insurance to be added</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/pt-br.html">pt br</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/que-os-dados-on-chain-nao-conseguem-dizer.html">que os dados on chain nao conseguem dizer</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/quikconsolecom.html">quikconsolecom</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/rahu-kaal.html">rahu kaal</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/reading-tokenomics-without-getting-fooled.html">reading tokenomics without getting fooled</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/recognizing-credible-experts-online-a-quick-guide.html">recognizing credible experts online a quick guide</a> 
@@ -756,6 +762,7 @@
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-perfecting-your-77-6/">essential digital tools online resources for perfecting your</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-productivity-an-77-6/">essential digital tools online resources for productivity an</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-savvy-readers-a-77-6/">essential digital tools online resources for savvy readers a</a> 
+<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-smarter-interne-77-6/">essential digital tools online resources for smarter interne</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-smarter-researc-77-6/">essential digital tools online resources for smarter researc</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-staying-informe-77-6-2/">essential digital tools online resources for staying informe</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-staying-informe-77-6/">essential digital tools online resources for staying informe</a> 
@@ -795,10 +802,3 @@
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-13/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-14/">exploring essential digital tools online resources for moder</a> 
 <a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-15/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-16/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-17/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-18/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-19/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-20/">exploring essential digital tools online resources for moder</a> 
-<a href="https://algiamedical.com/exploring-essential-digital-tools-online-resources-for-moder-77-6-21/">exploring essential digital tools online resources for moder</a> 
