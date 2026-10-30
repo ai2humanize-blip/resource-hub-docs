@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://earnmoneyplayinggames.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-following-new-movie-and-series-releases/">a practical guide to following new movie and series releases</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-reading-cryptocurrency-price-informatio/">a practical guide to reading cryptocurrency price informatio</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-reading-football-league-tables-and-stan/">a practical guide to reading football league tables and stan</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-practical-introduction-to-travel-insurance-for-internation/">a practical introduction to travel insurance for internation</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://earnmoneyplayinggames.xyz/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
+<a href="https://earnmoneyplayinggames.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
+<a href="https://earnmoneyplayinggames.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://earnmoneyplayinggames.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://earnmoneyplayinggames.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://earnmoneyplayinggames.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://earnmoneyplayinggames.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://earnmoneyplayinggames.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
+<a href="https://earnmoneyplayinggames.xyz/crypto-credit-cards-explained-how-they-differ-from-debit-car/">crypto credit cards explained how they differ from debit car</a> 
+<a href="https://earnmoneyplayinggames.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://earnmoneyplayinggames.xyz/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
 <a href="https://earnmoneyplayinggames.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://earnmoneyplayinggames.xyz/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
 <a href="https://earnmoneyplayinggames.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
@@ -781,24 +802,3 @@
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-life-92-1/">essential digital tools online resources for modern life 92 </a> 
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-living-92-1-2/">essential digital tools online resources for modern living 9</a> 
 <a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-living-92-1/">essential digital tools online resources for modern living 9</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-needs-92-1-2/">essential digital tools online resources for modern needs 92</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-needs-92-1-3/">essential digital tools online resources for modern needs 92</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-needs-92-1-4/">essential digital tools online resources for modern needs 92</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-needs-92-1/">essential digital tools online resources for modern needs 92</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-readers-92-1-2/">essential digital tools online resources for modern readers </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-readers-92-1/">essential digital tools online resources for modern readers </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-modern-seo-succ-92-1/">essential digital tools online resources for modern seo succ</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-navigating-the-92-1-2/">essential digital tools online resources for navigating the </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-navigating-the-92-1/">essential digital tools online resources for navigating the </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-savvy-internet-92-1/">essential digital tools online resources for savvy internet </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-savvy-readers-a-92-6/">essential digital tools online resources for savvy readers a</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-smart-internet-92-1/">essential digital tools online resources for smart internet </a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-smart-reading-a-92-1/">essential digital tools online resources for smart reading a</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-smarter-browsin-92-1/">essential digital tools online resources for smarter browsin</a> 
-<a href="https://emiamedical.com/essential-digital-tools-online-resources-for-smarter-interne-92-1/">essential digital tools online resources for smarter interne</a> 
-<a href="https://emiamedical.com/essential-guides-reviews-and-how-tos-for-independent-news-fi-92-3/">essential guides reviews and how tos for independent news fi</a> 
-<a href="https://emiamedical.com/essential-guides-reviews-and-how-tos-navigating-cryptocurren-92-3/">essential guides reviews and how tos navigating cryptocurren</a> 
-<a href="https://emiamedical.com/essential-guides-reviews-how-tos-for-a-smarter-safer-digital-92-3/">essential guides reviews how tos for a smarter safer digital</a> 
-<a href="https://emiamedical.com/essential-independent-web-tech-and-crypto-resources-for-2023-92-7/">essential independent web tech and crypto resources for 2023</a> 
-<a href="https://emiamedical.com/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
-<a href="https://emiamedical.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 

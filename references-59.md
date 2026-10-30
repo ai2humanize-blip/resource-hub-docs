@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-60.md) · [‹ prev](references-58.md)
 
+<a href="https://ph11com.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://ph11com.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://ph11com.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://ph11com.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://ph2bet.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://ph2bet.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://ph2bet.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://ph2bet.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://ph2bet.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://ph2bet.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://ph2bet.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://ph2bet.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://ph2bet.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://ph2bet.xyz/hello-world/">hello world</a> 
+<a href="https://ph2bet.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://ph2bet.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://ph2bet.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://ph2bet.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://ph2bet.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://ph2bet.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://ph2bet.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://ph444casino.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://ph444casino.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://ph444casino.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
@@ -781,24 +802,3 @@
 <a href="https://pixect.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://pixect.xyz/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://pixect.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://pixect.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
-<a href="https://pixect.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://pixect.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://pixect.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
-<a href="https://pixect.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
-<a href="https://pixect.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
-<a href="https://pixect.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://pixect.xyz/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://pixect.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://pixect.xyz/check-matric-results-by-sms-2/">check matric results by sms 2</a> 
-<a href="https://pixect.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
-<a href="https://pixect.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://pixect.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
-<a href="https://pixect.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://pixect.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://pixect.xyz/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://pixect.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-r/">getting how to evaluate online reviews and recommendations r</a> 
-<a href="https://pixect.xyz/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://pixect.xyz/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://pixect.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
-<a href="https://pixect.xyz/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
