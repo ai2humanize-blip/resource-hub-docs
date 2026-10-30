@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-56.md) · [‹ prev](references-54.md)
 
+<a href="https://montanagreenpower.org/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://montanagreenpower.org/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
+<a href="https://montanagreenpower.org/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
+<a href="https://montanagreenpower.org/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://monumental-eclair-8008ee.netlify.app/safar.html">safar</a> 
+<a href="https://monumental-lolly-e0baf5.netlify.app/urducentral.html">urducentral</a> 
+<a href="https://monumental-pixie-04fdae.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://moonlit-biscotti-34a8ea.netlify.app/why-we-label-reviews-research-based.html">why we label reviews research based</a> 
+<a href="https://moonlit-heliotrope-80227d.netlify.app/xrp-live-price-real-time-ripple-value-market.html">xrp live price real time ripple value market</a> 
+<a href="https://moonlit-pithivier-b9014a.netlify.app/how-to-get-water-out-of-phone-speaker.html">how to get water out of phone speaker</a> 
+<a href="https://msmbet.gb.net/gindex.html">gindex</a> 
+<a href="https://msmbet.gb.net/picks.html">picks</a> 
+<a href="https://multihubvercel.vercel.app/">multihubvercel.vercel.app</a> 
+<a href="https://musical-biscochitos-9e80a2.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
+<a href="https://mwbet8888.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://mwbet8888.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://mwbet8888.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://mwbet8888.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://mwbet8888.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://mwbet8888.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://mwbet8888.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://mwbet8888.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://mwbet8888.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://mwbet8888.xyz/hello-world/">hello world</a> 
@@ -781,24 +802,3 @@
 <a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
 <a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-34-10-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-34-10-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-34-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://myclassnews.it.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://myclassnews.it.com/understanding-dailywatchreports-a-comprehensive-guide-for-in/">understanding dailywatchreports a comprehensive guide for in</a> 
-<a href="https://myclassnews.it.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
-<a href="https://myclassnews.it.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://myclassnews.it.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
