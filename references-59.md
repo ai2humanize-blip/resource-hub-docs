@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-60.md) · [‹ prev](references-58.md)
 
+<a href="https://palacsintarecept.hu.net/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
+<a href="https://palacsintarecept.hu.net/turos-palacsinta-recept/">turos palacsinta recept</a> 
+<a href="https://palacsintarecept.hu.net/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://palacsintarecept.hu.net/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
+<a href="https://palacsintarecept.hu.net/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://palacsintarecept.hu.net/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
+<a href="https://palacsintarecept.hu.net/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://palacsintarecept.hu.net/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
+<a href="https://palacsintarecept.hu.net/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
+<a href="https://palacsintarecept.hu.net/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
+<a href="https://palacsintarecept.hu.net/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
+<a href="https://palacsintarecept.hu.net/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
+<a href="https://palacsintarecept.hu.net/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
+<a href="https://palacsintarecept.hu.net/what-a-seed-phrase-is-and-why-it-matters-for-self-custody/">what a seed phrase is and why it matters for self custody</a> 
+<a href="https://palacsintarecept.hu.net/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
+<a href="https://palacsintarecept.hu.net/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://palacsintarecept.hu.net/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://palacsintarecept.hu.net/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://palacsintarecept.hu.net/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
+<a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill-2/">what to know about how to use the web to learn a new skill 2</a> 
 <a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill-3/">what to know about how to use the web to learn a new skill 3</a> 
 <a href="https://palacsintarecept.hu.net/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
@@ -781,24 +802,3 @@
 <a href="https://phlwin1.xyz/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
 <a href="https://phlwin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://phlwin1.xyz/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://phlwin1.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://phlwin1.xyz/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://phlwin1.xyz/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
-<a href="https://phspin1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://phspin1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://phspin1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://phspin1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://phspin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://phspin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://phspin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://phspin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://phspin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://phspin1.xyz/hello-world/">hello world</a> 
-<a href="https://phspin1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://phspin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://phspin1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://phspin1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://phspin1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://phspin1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://phspin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://phwin99login.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 

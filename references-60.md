@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-61.md) · [‹ prev](references-59.md)
 
+<a href="https://phlwin1.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://phlwin1.xyz/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://phlwin1.xyz/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
+<a href="https://phspin1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://phspin1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://phspin1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://phspin1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://phspin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://phspin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://phspin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://phspin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://phspin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://phspin1.xyz/hello-world/">hello world</a> 
+<a href="https://phspin1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://phspin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://phspin1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://phspin1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://phspin1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://phspin1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://phspin1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://phwin99login.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://phwin99login.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://phwin99login.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://phwin99login.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -781,24 +802,3 @@
 <a href="https://polovnakola.com/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
 <a href="https://polovnakola.com/phone-storage-full-when-it-isn-t/">phone storage full when it isn t</a> 
 <a href="https://polovnakola.com/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://polovnakola.com/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://polovnakola.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
-<a href="https://polovnakola.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
-<a href="https://polovnakola.com/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://polovnakola.com/recognizing-credible-experts-online-2/">recognizing credible experts online 2</a> 
-<a href="https://polovnakola.com/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://polovnakola.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://polovnakola.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://polovnakola.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
-<a href="https://polovnakola.com/reduce-mobile-data-use/">reduce mobile data use</a> 
-<a href="https://polovnakola.com/revolutionizing-creativity-how-ai-powered-apps-are-transform/">revolutionizing creativity how ai powered apps are transform</a> 
-<a href="https://polovnakola.com/revolutionizing-daily-life-the-impact-of-ai-powered-apps-on/">revolutionizing daily life the impact of ai powered apps on</a> 
-<a href="https://polovnakola.com/revolutionizing-everyday-life-how-apps-are-transforming-the/">revolutionizing everyday life how apps are transforming the</a> 
-<a href="https://polovnakola.com/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
-<a href="https://polovnakola.com/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
-<a href="https://polovnakola.com/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://polovnakola.com/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
-<a href="https://polovnakola.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://polovnakola.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
-<a href="https://polovnakola.com/staying-informed-top-news-sources-and-analysis-for-2023/">staying informed top news sources and analysis for 2023</a> 
-<a href="https://polovnakola.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
