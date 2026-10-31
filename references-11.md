@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bandemusic.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://bandemusic.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
+<a href="https://bandemusic.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://bandemusic.com/how-to-boost-your-productivity-with-the-best-apps-for-a-digi/">how to boost your productivity with the best apps for a digi</a> 
+<a href="https://bandemusic.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://bandemusic.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://bandemusic.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://bandemusic.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://bandemusic.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://bandemusic.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://bandemusic.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
 <a href="https://bandemusic.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://bandemusic.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
 <a href="https://bandemusic.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
@@ -131,6 +146,7 @@
 <a href="https://bandemusic.com/master-online-reading-guides-reviews-how-tos-for-smarter-res-81-9/">master online reading guides reviews how tos for smarter res</a> 
 <a href="https://bandemusic.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-81-3/">master the art of budget travel find cheap flights and save </a> 
 <a href="https://bandemusic.com/master-the-art-of-guides-reviews-how-tos-ultimate-roundup-81-9/">master the art of guides reviews how tos ultimate roundup 81</a> 
+<a href="https://bandemusic.com/master-the-art-of-online-research-guides-reviews-how-tos-81-9-2/">master the art of online research guides reviews how tos 81 </a> 
 <a href="https://bandemusic.com/master-the-art-of-online-research-guides-reviews-how-tos-81-9/">master the art of online research guides reviews how tos 81 </a> 
 <a href="https://bandemusic.com/master-the-art-of-reading-and-research-guides-reviews-how-to-81-9/">master the art of reading and research guides reviews how to</a> 
 <a href="https://bandemusic.com/master-the-web-essential-digital-tools-online-resources-for-81-2/">master the web essential digital tools online resources for </a> 
@@ -312,6 +328,7 @@
 <a href="https://bandemusic.com/mastering-movie-franchises-release-windows-streaming-and-vie-81-10/">mastering movie franchises release windows streaming and vie</a> 
 <a href="https://bandemusic.com/mastering-online-content-guides-reviews-and-how-tos-for-savv-81-9/">mastering online content guides reviews and how tos for savv</a> 
 <a href="https://bandemusic.com/mastering-online-guides-reviews-and-how-tos-a-comprehensive-81-9/">mastering online guides reviews and how tos a comprehensive </a> 
+<a href="https://bandemusic.com/mastering-online-information-guides-reviews-and-how-tos-for-81-9-2/">mastering online information guides reviews and how tos for </a> 
 <a href="https://bandemusic.com/mastering-online-information-guides-reviews-and-how-tos-for-81-9/">mastering online information guides reviews and how tos for </a> 
 <a href="https://bandemusic.com/mastering-online-information-guides-reviews-how-tos-for-the-81-9/">mastering online information guides reviews how tos for the </a> 
 <a href="https://bandemusic.com/mastering-online-learning-reading-and-fact-checking-a-compre-81-9/">mastering online learning reading and fact checking a compre</a> 
@@ -323,6 +340,7 @@
 <a href="https://bandemusic.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-81-9/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://bandemusic.com/mastering-online-reading-guides-reviews-how-tos-for-smarter-81-9/">mastering online reading guides reviews how tos for smarter </a> 
 <a href="https://bandemusic.com/mastering-online-research-guides-reviews-and-how-tos-for-sma-81-9/">mastering online research guides reviews and how tos for sma</a> 
+<a href="https://bandemusic.com/mastering-online-research-guides-reviews-how-tos-for-effecti-81-9/">mastering online research guides reviews how tos for effecti</a> 
 <a href="https://bandemusic.com/mastering-online-research-guides-reviews-how-tos-for-reliabl-81-9/">mastering online research guides reviews how tos for reliabl</a> 
 <a href="https://bandemusic.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-81-9/">mastering online research guides reviews how tos for smart i</a> 
 <a href="https://bandemusic.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
@@ -784,21 +802,3 @@
 <a href="https://bit.ly/m/curatedreads1m">curatedreads1m</a> 
 <a href="https://bit.ly/m/webfinds1m">webfinds1m</a> 
 <a href="https://bitslots.de.com/a-beginner-s-guide-to-understanding-ai-image-generation/">a beginner s guide to understanding ai image generation</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-a-simple-framework-for-researching-any-topi-2/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-a-simple-framework-for-researching-any-topi-3/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy-2/">a closer look at how to tell if a website is trustworthy 2</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-understanding-how-search-engines-rank-pages-2/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://bitslots.de.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://bitslots.de.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
-<a href="https://bitslots.de.com/a-practical-guide-to-choosing-everyday-ai-tools/">a practical guide to choosing everyday ai tools</a> 
