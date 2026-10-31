@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
+<a href="https://123angelnumber.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
+<a href="https://123angelnumber.com/understanding-digital-literacy-and-why-it-matters-3/">understanding digital literacy and why it matters 3</a> 
 <a href="https://123angelnumber.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://123angelnumber.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://123angelnumber.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
@@ -799,6 +802,3 @@
 <a href="https://88jl1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://88jl1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://88jl1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://88taya.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://88taya.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://88taya.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 

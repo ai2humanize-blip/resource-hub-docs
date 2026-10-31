@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://88taya.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://88taya.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://88taya.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://88taya.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://88taya.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://88taya.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
@@ -685,11 +688,13 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-75-4/">mastering web tech content a comprehensive guide for modern </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-75-4/">mastering web tech content a comprehensive guide for savvy r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-75-4-2/">mastering web tech content a comprehensive guide for smart r</a> 
+<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-75-4-3/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-75-4/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-crypto-a-75-4/">mastering web tech content a comprehensive guide to crypto a</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4-2/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4-3/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4/">mastering web tech content a comprehensive guide to digital </a> 
+<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-e-75-4/">mastering web tech content a comprehensive guide to online e</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4-2/">mastering web tech content a comprehensive guide to online l</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4/">mastering web tech content a comprehensive guide to online l</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4-2/">mastering web tech content a comprehensive guide to online r</a> 
@@ -777,6 +782,7 @@
 <a href="https://agriculture-lawyer.com/navigating-web-tech-content-a-comprehensive-guide-75-4/">navigating web tech content a comprehensive guide 75 4</a> 
 <a href="https://agriculture-lawyer.com/navigating-web-tech-content-a-comprehensive-guide-for-2023-75-4/">navigating web tech content a comprehensive guide for 2023 7</a> 
 <a href="https://agriculture-lawyer.com/navigating-web-tech-content-a-comprehensive-guide-for-beginn-75-4/">navigating web tech content a comprehensive guide for beginn</a> 
+<a href="https://agriculture-lawyer.com/navigating-web-tech-content-a-comprehensive-guide-for-the-di-75-4/">navigating web tech content a comprehensive guide for the di</a> 
 <a href="https://agriculture-lawyer.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-75-4/">navigating web tech content a comprehensive guide for the mo</a> 
 <a href="https://agriculture-lawyer.com/navigating-web-tech-content-a-comprehensive-guide-to-avoidin-75-4/">navigating web tech content a comprehensive guide to avoidin</a> 
 <a href="https://agriculture-lawyer.com/navigating-web-tech-content-a-comprehensive-guide-to-coretax-75-4/">navigating web tech content a comprehensive guide to coretax</a> 
@@ -796,9 +802,3 @@
 <a href="https://agriculture-lawyer.com/oxpoll-cc-resource-3/">oxpoll cc resource 3</a> 
 <a href="https://agriculture-lawyer.com/phonespeakerclean-com-resource-3/">phonespeakerclean com resource 3</a> 
 <a href="https://agriculture-lawyer.com/practical-tech-tips-worth-knowing/">practical tech tips worth knowing</a> 
-<a href="https://agriculture-lawyer.com/quikconsolecom-net-resource-3/">quikconsolecom net resource 3</a> 
-<a href="https://agriculture-lawyer.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://agriculture-lawyer.com/report-a-lost-or-stolen-id/">report a lost or stolen id</a> 
-<a href="https://agriculture-lawyer.com/responsible-gambling-tools-limits-and-where-to-get-help/">responsible gambling tools limits and where to get help</a> 
-<a href="https://agriculture-lawyer.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform-75-9/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://agriculture-lawyer.com/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 

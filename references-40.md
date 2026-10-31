@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmarD8U4j4wfEP8GhosHaeab95UJxEVVykdfWF5RaH4Ju4">QmarD8U4j4wfEP8GhosHaeab95UJxEVVykdfWF5RaH4Ju4</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaskL7AMS7UKx66SJbfenKT9jcZMFegNJUTAUB2MiZ3EG">QmaskL7AMS7UKx66SJbfenKT9jcZMFegNJUTAUB2MiZ3EG</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmau7KrSAmso4LznwTDo1jpSxZ9PZe1huAbruSUz9Pohzd">Qmau7KrSAmso4LznwTDo1jpSxZ9PZe1huAbruSUz9Pohzd</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmb8osKgCEQqKm78W3s3CHv8SKXLURdkoXinuM73VjZJmt">Qmb8osKgCEQqKm78W3s3CHv8SKXLURdkoXinuM73VjZJmt</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbDLkW5w4wGW7aqVhiPscHAa7ME4JxXZkHE78wFrYktSn">QmbDLkW5w4wGW7aqVhiPscHAa7ME4JxXZkHE78wFrYktSn</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbK11yFxC9oH4QiY5nFG4EhhKobMgyW9tyt4dMFdRRuiW">QmbK11yFxC9oH4QiY5nFG4EhhKobMgyW9tyt4dMFdRRuiW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbPDWu9oUKGrdqZSyogH7GXsg4J8kRQ8u1T8PaBjDNw3n">QmbPDWu9oUKGrdqZSyogH7GXsg4J8kRQ8u1T8PaBjDNw3n</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbXZ5JUJBZnNHaioh6axCfhaKLWcqDhfhhXDLmUYraYt2">QmbXZ5JUJBZnNHaioh6axCfhaKLWcqDhfhhXDLmUYraYt2</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbXoMvni9RjQXJ2DARU2TDw5cHtWD5VpaAEMiFR4YTYKi">QmbXoMvni9RjQXJ2DARU2TDw5cHtWD5VpaAEMiFR4YTYKi</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbiB4mrCbSCL4RCfgQbrCctBJi93GP4hpNKVCxwB5GA8X">QmbiB4mrCbSCL4RCfgQbrCctBJi93GP4hpNKVCxwB5GA8X</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf">QmbnU2e8F5BBLoycg7LdDJK1Z4VzXaPvJsrRrNiRWFvUFf</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6">QmbuzjXUJsQiBvacz5XgTebZc9aJCj5GyoLWUCXmFgauy6</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496">Qmbz9TJ8UfvCNBtVVz1dKQ7Gdz5UvtDGofP3LCZDz1f496</a> 
+<a href="https://ipfs.filebase.io/ipfs/Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW">Qmc7Tj7NpXDohUWAKMaR36TYSQrvzmkzR6GTL7CDEDxFYW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcBf4ZBsovyRtUMq153bJT97aPmc1dN1cBPZeyGExJ3Bk">QmcBf4ZBsovyRtUMq153bJT97aPmc1dN1cBPZeyGExJ3Bk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk">QmcHc38af2rD4RhpGejYKMBrrL3bmUrQs4GELHK2UAzzsk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT">QmcHvB1iqYxsc3qaSCxMgYrmgHgMxwn9V9hrkujtXszsCT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki">QmcNFdauygJV4uv18EaJ724vZi9z92B7tpwLEigqffNyki</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F">QmcPPciwp8rJ1tQTR6PV2q4sYDhM2cD52VNpiF26HN638F</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H">QmcPRCm9tkR4qVb5wDqSbB66E3eRtGnjJ6TFtMLznZ9m4H</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE">QmcUC7SKY3gKUUxk92PmKqcVC59bWHUtG1zvHuqY1K4nLE</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ">QmcYqytFjspNP6Hq7WZZ8mSKZUsrgXJZWpDLYbmJWgqZVZ</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc">QmcfVW9yqCVNbQinQJaqQv32iejd23zfv95K5B8VRw1YZc</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY">Qmcr5kKrJU1BnKCAJwYNyKbp1FCLW2CsNkJeCwMPayn3GY</a> 
@@ -781,24 +802,3 @@
 <a href="https://jollibeecasino.xyz/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
 <a href="https://jolly-beignet-ec513c.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://jolly-kitsune-450926.netlify.app/protecting-your-nid-and-birth-information.html">protecting your nid and birth information</a> 
-<a href="https://jovial-kelpie-ff68f5.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-a-co.html">understanding the impact of ai on modern news reporting a co</a> 
-<a href="https://joyful-gaufre-18b78e.netlify.app/top-things-to-know-about-thread-count.html">top things to know about thread count</a> 
-<a href="https://kaleidoscopic-chaja-ebdb29.netlify.app/criptano.html">criptano</a> 
-<a href="https://kaleidoscopic-hotteok-de9543.netlify.app/staying-informed-navigating-today-s-news-landscape-with-reli.html">staying informed navigating today s news landscape with reli</a> 
-<a href="https://keen-pegasus-2681ec.netlify.app/tokenspin.html">tokenspin</a> 
-<a href="https://keen-torte-88724d.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://kkkjili16.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://kkkjili16.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://kkkjili16.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://kkkjili16.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://kkkjili16.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://kkkjili16.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://kkkjili16.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://kkkjili16.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://kkkjili16.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://kkkjili16.xyz/hello-world/">hello world</a> 
-<a href="https://kkkjili16.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://kkkjili16.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://kkkjili16.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://kkkjili16.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://kkkjili16.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
