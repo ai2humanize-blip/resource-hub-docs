@@ -98,8 +98,11 @@
 <a href="https://captainjackinterview.com/enhancing-your-digital-life-top-apps-for-privacy-and-product/">enhancing your digital life top apps for privacy and product</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-enthusia-82-1-2/">essential digital tools online resources for crypto enthusia</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-enthusia-82-1/">essential digital tools online resources for crypto enthusia</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-traders-82-1/">essential digital tools online resources for crypto traders </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-cryptocurrency-82-1/">essential digital tools online resources for cryptocurrency </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-everyday-use-82-1/">essential digital tools online resources for everyday use 82</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-investor-82-1-2/">essential digital tools online resources for modern investor</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-investor-82-1/">essential digital tools online resources for modern investor</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-6/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-savvy-readers-a-82-6/">essential digital tools online resources for savvy readers a</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
 <a href="https://casacours.uk.com/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
 <a href="https://casacours.uk.com/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://casacours.uk.com/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://casacours.uk.com/how-to-keep-clean-auditable-cryptocurrency-transaction-recor/">how to keep clean auditable cryptocurrency transaction recor</a> 
-<a href="https://casacours.uk.com/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
