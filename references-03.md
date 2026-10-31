@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://88jl1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://88jl1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://88jl1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://88jl1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://88jl1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
@@ -716,6 +718,7 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-e-75-4/">mastering web tech content a comprehensive guide to online e</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4-2/">mastering web tech content a comprehensive guide to online l</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4/">mastering web tech content a comprehensive guide to online l</a> 
+<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-m-75-4/">mastering web tech content a comprehensive guide to online m</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4-2/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-75-4/">mastering web tech content a comprehensive guide to reliable</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/navigating-the-world-of-web-tech-and-content-a-comprehensive-75-4/">navigating the world of web tech and content a comprehensive</a> 
 <a href="https://agriculture-lawyer.com/navigating-today-s-news-landscape-strategies-for-clarity-tru-75-9/">navigating today s news landscape strategies for clarity tru</a> 
 <a href="https://agriculture-lawyer.com/navigating-web-tech-and-content-a-comprehensive-roundup-75-4/">navigating web tech and content a comprehensive roundup 75 4</a> 
-<a href="https://agriculture-lawyer.com/navigating-web-tech-and-content-from-crypto-insights-to-inve-75-4/">navigating web tech and content from crypto insights to inve</a> 
-<a href="https://agriculture-lawyer.com/navigating-web-tech-content-a-comprehensive-guide-75-4/">navigating web tech content a comprehensive guide 75 4</a> 
-<a href="https://agriculture-lawyer.com/navigating-web-tech-content-a-comprehensive-guide-for-2023-75-4/">navigating web tech content a comprehensive guide for 2023 7</a> 

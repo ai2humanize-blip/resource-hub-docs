@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cbdstent.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://cbdstent.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://cbdstent.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://cbdstent.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://cbdstent.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://cbdstent.com/getting-how-to-organize-the-information-you-find-online-right/">getting how to organize the information you find online righ</a> 
+<a href="https://cbdstent.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://cbdstent.com/getting-practical-tips-for-naming-siblings-right/">getting practical tips for naming siblings right</a> 
+<a href="https://cbdstent.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
+<a href="https://cbdstent.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://cbdstent.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://cbdstent.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://cbdstent.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://cbdstent.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://cbdstent.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cbdstent.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
+<a href="https://cbdstent.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
+<a href="https://cbdstent.com/how-ai-is-transforming-the-news-industry-current-trends-and/">how ai is transforming the news industry current trends and</a> 
+<a href="https://cbdstent.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
+<a href="https://cbdstent.com/how-ai-powered-apps-are-transforming-everyday-life-in-the-di/">how ai powered apps are transforming everyday life in the di</a> 
+<a href="https://cbdstent.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://cbdstent.com/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
+<a href="https://cbdstent.com/how-classic-card-games-are-played/">how classic card games are played</a> 
 <a href="https://cbdstent.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
 <a href="https://cbdstent.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://cbdstent.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
@@ -779,26 +802,3 @@
 <a href="https://cochesdeocasion.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
 <a href="https://cochesdeocasion.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://cochesdeocasion.xyz/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
-<a href="https://cochesdeocasion.xyz/how-to-read-the-news-without-getting-overwhelmed-a-practical-guide/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://cochesdeocasion.xyz/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
-<a href="https://cochesdeocasion.xyz/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
-<a href="https://cochesdeocasion.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://cochesdeocasion.xyz/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
-<a href="https://cochesdeocasion.xyz/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://cochesdeocasion.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://cochesdeocasion.xyz/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://cochesdeocasion.xyz/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://cochesdeocasion.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://cochesdeocasion.xyz/media-partnerships-in-the-independent-web/">media partnerships in the independent web</a> 
-<a href="https://cochesdeocasion.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://cochesdeocasion.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
-<a href="https://cochesdeocasion.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
-<a href="https://cochesdeocasion.xyz/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
-<a href="https://cochesdeocasion.xyz/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
-<a href="https://cochesdeocasion.xyz/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://cochesdeocasion.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cochesdeocasion.xyz/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://cochesdeocasion.xyz/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
-<a href="https://cochesdeocasion.xyz/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
-<a href="https://cochesdeocasion.xyz/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
-<a href="https://cochesdeocasion.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 

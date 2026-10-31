@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://betjili1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://betjili1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://betjili1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://betjili1.xyz/hello-world/">hello world</a> 
+<a href="https://betjili1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://betjili1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://betjili1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://betjili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://betjili1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://betjili1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://betjili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://better1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://better1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://better1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://better1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://better1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://better1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://better1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://better1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://better1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
@@ -785,20 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-820b8037/">proof of work vs proof of stake 820b8037</a> 
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-9e306d7a/">proof of work vs proof of stake 9e306d7a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake-fc0f3275/">proof of work vs proof of stake fc0f3275</a> 
-<a href="https://boostelearning.mataroa.blog/blog/proof-of-work-vs-proof-of-stake/">proof of work vs proof of stake</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-08069893/">quikconsolecom 08069893</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-2ebf9264/">quikconsolecom 2ebf9264</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-3f34b222/">quikconsolecom 3f34b222</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-496f3c87/">quikconsolecom 496f3c87</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-6646bc0e/">quikconsolecom 6646bc0e</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-74b7b613/">quikconsolecom 74b7b613</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-98b5ebb8/">quikconsolecom 98b5ebb8</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-f306e8ce/">quikconsolecom f306e8ce</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom-fa2ca449/">quikconsolecom fa2ca449</a> 
-<a href="https://boostelearning.mataroa.blog/blog/quikconsolecom/">quikconsolecom</a> 
-<a href="https://boostelearning.mataroa.blog/blog/rare-boy-names-34ff785b/">rare boy names 34ff785b</a> 
-<a href="https://boostelearning.mataroa.blog/blog/rare-boy-names-3e5588f8/">rare boy names 3e5588f8</a> 
-<a href="https://boostelearning.mataroa.blog/blog/rare-boy-names-e4ce31c7/">rare boy names e4ce31c7</a> 
-<a href="https://boostelearning.mataroa.blog/blog/rare-boy-names-fe0197c5/">rare boy names fe0197c5</a> 
-<a href="https://boostelearning.mataroa.blog/blog/rare-boy-names/">rare boy names</a> 
-<a href="https://boostelearning.mataroa.blog/blog/recognizing-credible-experts-online-a-quick-guide-b61fe71a/">recognizing credible experts online a quick guide b61fe71a</a> 
