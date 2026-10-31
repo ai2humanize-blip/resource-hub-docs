@@ -96,6 +96,8 @@
 <a href="https://captainjackinterview.com/enhancing-business-finance-and-productivity-a-comprehensive-82-10/">enhancing business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/enhancing-business-finance-and-productivity-through-islamic-82-10/">enhancing business finance and productivity through islamic </a> 
 <a href="https://captainjackinterview.com/enhancing-your-digital-life-top-apps-for-privacy-and-product/">enhancing your digital life top apps for privacy and product</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-enthusia-82-1-2/">essential digital tools online resources for crypto enthusia</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-enthusia-82-1/">essential digital tools online resources for crypto enthusia</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-cryptocurrency-82-1/">essential digital tools online resources for cryptocurrency </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-everyday-use-82-1/">essential digital tools online resources for everyday use 82</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1/">essential digital tools online resources for modern living 8</a> 
@@ -119,6 +121,7 @@
 <a href="https://captainjackinterview.com/exploring-crypto-guides-reviews-how-tos-from-blockchain-to-s-82-3/">exploring crypto guides reviews how tos from blockchain to s</a> 
 <a href="https://captainjackinterview.com/exploring-cryptocurrency-blockchain-and-online-gambling-guid-82-3/">exploring cryptocurrency blockchain and online gambling guid</a> 
 <a href="https://captainjackinterview.com/exploring-cyberkannadig-comprehensive-guides-reviews-and-how-82-3/">exploring cyberkannadig comprehensive guides reviews and how</a> 
+<a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-6/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-independent-news-finance-and-crypto-resources-for-82-4/">exploring independent news finance and crypto resources for </a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
 <a href="https://casacours.uk.com/how-to-keep-clean-auditable-cryptocurrency-transaction-recor/">how to keep clean auditable cryptocurrency transaction recor</a> 
 <a href="https://casacours.uk.com/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
-<a href="https://casacours.uk.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://casacours.uk.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://casacours.uk.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
