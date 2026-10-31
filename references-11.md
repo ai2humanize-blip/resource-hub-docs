@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://bandemusic.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://bandemusic.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
+<a href="https://bandemusic.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://bandemusic.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://bandemusic.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://bandemusic.com/getting-rid-of-cockroaches-what-works-and-what-doesn-t/">getting rid of cockroaches what works and what doesn t</a> 
+<a href="https://bandemusic.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://bandemusic.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://bandemusic.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://bandemusic.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig-2/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://bandemusic.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://bandemusic.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://bandemusic.com/guides-reviews-how-tos-mastering-crypto-and-blockchain-topic-81-9/">guides reviews how tos mastering crypto and blockchain topic</a> 
+<a href="https://bandemusic.com/harnessing-ai-for-creative-inspiration-a-new-era-for-digital/">harnessing ai for creative inspiration a new era for digital</a> 
 <a href="https://bandemusic.com/how-ai-driven-apps-are-revolutionizing-everyday-life/">how ai driven apps are revolutionizing everyday life</a> 
 <a href="https://bandemusic.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://bandemusic.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
@@ -294,6 +309,7 @@
 <a href="https://bandemusic.com/mastering-football-statistics-guides-reviews-how-tos-for-fan-81-9/">mastering football statistics guides reviews how tos for fan</a> 
 <a href="https://bandemusic.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-81-9-2/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://bandemusic.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-81-9-3/">mastering guides reviews and how tos a comprehensive roundup</a> 
+<a href="https://bandemusic.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-81-9-4/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://bandemusic.com/mastering-guides-reviews-and-how-tos-a-comprehensive-roundup-81-9/">mastering guides reviews and how tos a comprehensive roundup</a> 
 <a href="https://bandemusic.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-81-9-2/">mastering guides reviews how tos a comprehensive roundup 81 </a> 
 <a href="https://bandemusic.com/mastering-guides-reviews-how-tos-a-comprehensive-roundup-81-9/">mastering guides reviews how tos a comprehensive roundup 81 </a> 
@@ -344,6 +360,7 @@
 <a href="https://bandemusic.com/mastering-online-content-guides-reviews-and-how-tos-for-savv-81-9/">mastering online content guides reviews and how tos for savv</a> 
 <a href="https://bandemusic.com/mastering-online-guides-reviews-and-how-tos-a-comprehensive-81-9/">mastering online guides reviews and how tos a comprehensive </a> 
 <a href="https://bandemusic.com/mastering-online-information-guides-reviews-and-how-tos-for-81-9-2/">mastering online information guides reviews and how tos for </a> 
+<a href="https://bandemusic.com/mastering-online-information-guides-reviews-and-how-tos-for-81-9-3/">mastering online information guides reviews and how tos for </a> 
 <a href="https://bandemusic.com/mastering-online-information-guides-reviews-and-how-tos-for-81-9/">mastering online information guides reviews and how tos for </a> 
 <a href="https://bandemusic.com/mastering-online-information-guides-reviews-how-tos-for-the-81-9/">mastering online information guides reviews how tos for the </a> 
 <a href="https://bandemusic.com/mastering-online-learning-reading-and-fact-checking-a-compre-81-9/">mastering online learning reading and fact checking a compre</a> 
@@ -359,6 +376,7 @@
 <a href="https://bandemusic.com/mastering-online-research-guides-reviews-how-tos-for-reliabl-81-9/">mastering online research guides reviews how tos for reliabl</a> 
 <a href="https://bandemusic.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-81-9/">mastering online research guides reviews how tos for savvy r</a> 
 <a href="https://bandemusic.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-81-9/">mastering online research guides reviews how tos for smart i</a> 
+<a href="https://bandemusic.com/mastering-online-research-guides-reviews-how-tos-for-smarter-81-9-2/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://bandemusic.com/mastering-online-research-guides-reviews-how-tos-for-smarter-81-9/">mastering online research guides reviews how tos for smarter</a> 
 <a href="https://bandemusic.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
 <a href="https://bandemusic.com/mastering-personal-finance-business-and-marketing-a-comprehe-81-1/">mastering personal finance business and marketing a comprehe</a> 
@@ -784,21 +802,3 @@
 <a href="https://better1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://better1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://better1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://better1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://better1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://better1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://better1.xyz/hello-world/">hello world</a> 
-<a href="https://better1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://better1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://better1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://better1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://better1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://better1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://better1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://bigwin691.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://bigwin691.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://bigwin691.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://bigwin691.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://bigwin691.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://bigwin691.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://bigwin691.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 

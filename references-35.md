@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-36.md) · [‹ prev](references-34.md)
 
+<a href="https://globespro.it.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://globespro.it.com/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
+<a href="https://globespro.it.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://globespro.it.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://globespro.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://globespro.it.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://globespro.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://globespro.it.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
+<a href="https://globespro.it.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://globespro.it.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://globespro.it.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
+<a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin-2/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://globespro.it.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://globespro.it.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
+<a href="https://globespro.it.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
+<a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
+<a href="https://globespro.it.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://globespro.it.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://globespro.it.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://globespro.it.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://globespro.it.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://globespro.it.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
@@ -781,24 +802,3 @@
 <a href="https://gptseoservices.gb.net/navigating-the-intersection-of-business-finance-and-producti-30-7-5/">navigating the intersection of business finance and producti</a> 
 <a href="https://gptseoservices.gb.net/navigating-the-intersection-of-business-finance-and-producti-30-7-6/">navigating the intersection of business finance and producti</a> 
 <a href="https://gptseoservices.gb.net/navigating-the-intersection-of-business-finance-and-producti-30-7-7/">navigating the intersection of business finance and producti</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-intersection-of-business-finance-and-producti-30-7-8/">navigating the intersection of business finance and producti</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-intersection-of-business-finance-and-producti-30-7-9/">navigating the intersection of business finance and producti</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-intersection-of-business-finance-and-producti-30-7/">navigating the intersection of business finance and producti</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-intersection-of-business-finance-productivity-30-7-2/">navigating the intersection of business finance productivity</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-intersection-of-business-finance-productivity-30-7-3/">navigating the intersection of business finance productivity</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-intersection-of-business-finance-productivity-30-7/">navigating the intersection of business finance productivity</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-intersection-of-fashion-style-and-modern-life-30-7/">navigating the intersection of fashion style and modern life</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-latest-news-in-depth-analysis-and-expert-comm/">navigating the latest news in depth analysis and expert comm</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-latest-news-in-depth-analysis-and-expert-insi/">navigating the latest news in depth analysis and expert insi</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-latest-trends-in-crypto-news-today-business-f-30-7/">navigating the latest trends in crypto news today business f</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-modern-news-landscape-business-finance-and-pr-30-7/">navigating the modern news landscape business finance and pr</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-modern-news-landscape-business-finance-produc-30-7/">navigating the modern news landscape business finance produc</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-modern-news-landscape-insights-on-business-fi-30-7/">navigating the modern news landscape insights on business fi</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-modern-workplace-strategies-for-career-growth/">navigating the modern workplace strategies for career growth</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-new-media-landscape-current-news-explainers-a/">navigating the new media landscape current news explainers a</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-shifting-landscape-of-modern-journalism-a-dee/">navigating the shifting landscape of modern journalism a dee</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-web-a-comprehensive-guide-to-digital-tools-on-30-8-2/">navigating the web a comprehensive guide to digital tools on</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-web-a-comprehensive-guide-to-digital-tools-on-30-8/">navigating the web a comprehensive guide to digital tools on</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-web-for-business-finance-productivity-a-compr-30-7/">navigating the web for business finance productivity a compr</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-world-of-business-finance-and-productivity-in-30-7/">navigating the world of business finance and productivity in</a> 
-<a href="https://gptseoservices.gb.net/navigating-the-world-of-business-finance-productivity-a-comp-30-7/">navigating the world of business finance productivity a comp</a> 

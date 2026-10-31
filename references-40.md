@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmSjym8XXSF86tjbrwvp9uUrunF8TVHTWz27LMEt3dAnDe">QmSjym8XXSF86tjbrwvp9uUrunF8TVHTWz27LMEt3dAnDe</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmSneWUTVKic4fVUKRXWg91ouMdLcUC8R6annP79rcF8KW">QmSneWUTVKic4fVUKRXWg91ouMdLcUC8R6annP79rcF8KW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmSzpqxUoy8sgo1iUGFQnqx7rT82jkPLmAeMafNUfVYFPV">QmSzpqxUoy8sgo1iUGFQnqx7rT82jkPLmAeMafNUfVYFPV</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmT6CsqTSfDk4pxx31k17DizFw5vGdGmCUF6sKpzCKwFBP">QmT6CsqTSfDk4pxx31k17DizFw5vGdGmCUF6sKpzCKwFBP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTLpaibgmffGnQsNrAPKNqtazW7LP7DAMzoHEQKS8cggu">QmTLpaibgmffGnQsNrAPKNqtazW7LP7DAMzoHEQKS8cggu</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTUowsjBnjsLtv1ZprJcfDUrGhSz5LUoNGZwnDruyAwyZ">QmTUowsjBnjsLtv1ZprJcfDUrGhSz5LUoNGZwnDruyAwyZ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTeHmrk93ouUNZjVirbQwZpKy43TFd6e3AH5HupWKYQyY">QmTeHmrk93ouUNZjVirbQwZpKy43TFd6e3AH5HupWKYQyY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTfvcmZ5JPKzJDCJw3o1JXY83CuRVco6tysnR1rhhBgHb">QmTfvcmZ5JPKzJDCJw3o1JXY83CuRVco6tysnR1rhhBgHb</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTonP5SxYfgjvDRjWKFkedV1fznSiKhnWt1Kukm3ZPECA">QmTonP5SxYfgjvDRjWKFkedV1fznSiKhnWt1Kukm3ZPECA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmTwiCKxTpc8x5nrGJuyHvJgk2kXZQHuyfYyMDm3Tx5szz">QmTwiCKxTpc8x5nrGJuyHvJgk2kXZQHuyfYyMDm3Tx5szz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmU495xP9gpn4LWN2DXCLnpC7712EmNs4s18WVUEocdQWg">QmU495xP9gpn4LWN2DXCLnpC7712EmNs4s18WVUEocdQWg</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmU68ZCpnMkPdV2s17VwPt7RprHdSfsQgoF7YyK3GGpS2i">QmU68ZCpnMkPdV2s17VwPt7RprHdSfsQgoF7YyK3GGpS2i</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmU6b4medQ8Bi3UebuQF9aTN4rMnwa2xq77zJnLdugLHeY">QmU6b4medQ8Bi3UebuQF9aTN4rMnwa2xq77zJnLdugLHeY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUBa1QvLYbyt2jDnnft9g4kYe4pBtbW3vfx6jHJeVcD9a">QmUBa1QvLYbyt2jDnnft9g4kYe4pBtbW3vfx6jHJeVcD9a</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmURMoEP6t9aBU5jTRscmfPTFpkQKZ4BDLu2dqfZPRh2t7">QmURMoEP6t9aBU5jTRscmfPTFpkQKZ4BDLu2dqfZPRh2t7</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUUAikDy5nSyQ3zAXHe9c8XEe5exPKVe2WprzzFsxGe24">QmUUAikDy5nSyQ3zAXHe9c8XEe5exPKVe2WprzzFsxGe24</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUUTQFzewUJ1vhDg5YTkrWGbbDomwexrafA9ShxMXZ47t">QmUUTQFzewUJ1vhDg5YTkrWGbbDomwexrafA9ShxMXZ47t</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUVgi5XJqVeZSP8qwf41CEb9RTDrSkprfGML7uSJBwNbP">QmUVgi5XJqVeZSP8qwf41CEb9RTDrSkprfGML7uSJBwNbP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUdJy8VqR2V8NMQwh37o71eRxEwkQRCKnbyk9KyZRyuon">QmUdJy8VqR2V8NMQwh37o71eRxEwkQRCKnbyk9KyZRyuon</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUhz92UWmLdGFTCksA9MLwsYUuU3o2PJ3xQ55ygBh6ZQ3">QmUhz92UWmLdGFTCksA9MLwsYUuU3o2PJ3xQ55ygBh6ZQ3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmUip9CTX2qYUS36YwgFuk9tUGrFwnmnCWCpBR9fwcxGc2">QmUip9CTX2qYUS36YwgFuk9tUGrFwnmnCWCpBR9fwcxGc2</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUjedtvmnrkNNn5vn8rzJNCNHgdnVJq1cBam4nRkfHPvd">QmUjedtvmnrkNNn5vn8rzJNCNHgdnVJq1cBam4nRkfHPvd</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUqJYan3S3xDw9AH2y4cwABnMaiQuZNhEmiKWJF3a9fHA">QmUqJYan3S3xDw9AH2y4cwABnMaiQuZNhEmiKWJF3a9fHA</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmUx98d7SdfJnXkWJKXcGviwGMQUccUMsGWBpUxgr81q9u">QmUx98d7SdfJnXkWJKXcGviwGMQUccUMsGWBpUxgr81q9u</a> 
@@ -781,24 +802,3 @@
 <a href="https://jollibeecasino.xyz/common-questions-answered-16/">common questions answered 16</a> 
 <a href="https://jollibeecasino.xyz/common-questions-answered-17/">common questions answered 17</a> 
 <a href="https://jollibeecasino.xyz/common-questions-answered-18/">common questions answered 18</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-19/">common questions answered 19</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-2/">common questions answered 2</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-20/">common questions answered 20</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-21/">common questions answered 21</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-22/">common questions answered 22</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-3/">common questions answered 3</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-4/">common questions answered 4</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-5/">common questions answered 5</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-6/">common questions answered 6</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-7/">common questions answered 7</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-8/">common questions answered 8</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered-9/">common questions answered 9</a> 
-<a href="https://jollibeecasino.xyz/common-questions-answered/">common questions answered</a> 
-<a href="https://jollibeecasino.xyz/crypto-credit-cards-explained-how-they-differ-from-debit-car/">crypto credit cards explained how they differ from debit car</a> 
-<a href="https://jollibeecasino.xyz/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
-<a href="https://jollibeecasino.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://jollibeecasino.xyz/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
-<a href="https://jollibeecasino.xyz/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
-<a href="https://jollibeecasino.xyz/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
-<a href="https://jollibeecasino.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://jollibeecasino.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
