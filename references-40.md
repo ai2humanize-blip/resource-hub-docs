@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-41.md) · [‹ prev](references-39.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3">QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX">QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj">QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o">QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA">QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZT8JqUbm2dnt5wBncfHGzU8okXs888d74h6V2H1dQN77">QmZT8JqUbm2dnt5wBncfHGzU8okXs888d74h6V2H1dQN77</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZWiUSfTj9MmpMGbTqmFoH8q3o1RfW2v7LDzGMRioXFvh">QmZWiUSfTj9MmpMGbTqmFoH8q3o1RfW2v7LDzGMRioXFvh</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZdXLbYtPwBoFNE5yCdg6s8TcM4ee1GRtWUbXWfNRJHsT">QmZdXLbYtPwBoFNE5yCdg6s8TcM4ee1GRtWUbXWfNRJHsT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZhPTvryYjnRZn94WeKMmQxa2rFQ3aL67WFfkMwKrR8zh">QmZhPTvryYjnRZn94WeKMmQxa2rFQ3aL67WFfkMwKrR8zh</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZiazvJJjwz7myo9TPajTf4qenWfXKGCEi1mrm5SU18rq">QmZiazvJJjwz7myo9TPajTf4qenWfXKGCEi1mrm5SU18rq</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZmfkNhLrdavikDberQgx6ytgGPKWftNzDUdzNGqV7PAD">QmZmfkNhLrdavikDberQgx6ytgGPKWftNzDUdzNGqV7PAD</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZogmTA25DsThhGj5dFc8kdH3M58iLefbB9b66JRxFVcS">QmZogmTA25DsThhGj5dFc8kdH3M58iLefbB9b66JRxFVcS</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZvhuFxXdoaRzJn5y3Q723Xa9Zk7QKHZRwhwgMfSLr5sq">QmZvhuFxXdoaRzJn5y3Q723Xa9Zk7QKHZRwhwgMfSLr5sq</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZwLgdmcN3G4HfZEraMYUnPAFrMn2rdKS3Af6KRo1YH8c">QmZwLgdmcN3G4HfZEraMYUnPAFrMn2rdKS3Af6KRo1YH8c</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaG75KtPcMEpRButxKD9yUfdq7hnLXR1mu8PdG7fwhxeQ">QmaG75KtPcMEpRButxKD9yUfdq7hnLXR1mu8PdG7fwhxeQ</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaMiM2TiHpr9qDSUbo14Em9XizoQYwFXPfHjk3uCpMGay">QmaMiM2TiHpr9qDSUbo14Em9XizoQYwFXPfHjk3uCpMGay</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaSN2JxDLct4BmMMGEYNoqBpCvY1RusKjZgxTewuC3rmW">QmaSN2JxDLct4BmMMGEYNoqBpCvY1RusKjZgxTewuC3rmW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaSxWw3G2H4TrUdbTyeV37efFLwHSkkvuKhbd6Hd6h4Q2">QmaSxWw3G2H4TrUdbTyeV37efFLwHSkkvuKhbd6Hd6h4Q2</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmaVAJK3QpTKKpNZ2T47deFY2wKVsskwneQTezAK5bN5d7">QmaVAJK3QpTKKpNZ2T47deFY2wKVsskwneQTezAK5bN5d7</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmapR825Ec8xQRLmSWaBMQ66XihWvQnqvPrzvp98GEhqw7">QmapR825Ec8xQRLmSWaBMQ66XihWvQnqvPrzvp98GEhqw7</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmapfFbkLpES7ha8HjqvpAon6k9MfnjMR9qUje7mRadFgb">QmapfFbkLpES7ha8HjqvpAon6k9MfnjMR9qUje7mRadFgb</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmarD8U4j4wfEP8GhosHaeab95UJxEVVykdfWF5RaH4Ju4">QmarD8U4j4wfEP8GhosHaeab95UJxEVVykdfWF5RaH4Ju4</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmaskL7AMS7UKx66SJbfenKT9jcZMFegNJUTAUB2MiZ3EG">QmaskL7AMS7UKx66SJbfenKT9jcZMFegNJUTAUB2MiZ3EG</a> 
 <a href="https://ipfs.filebase.io/ipfs/Qmau7KrSAmso4LznwTDo1jpSxZ9PZe1huAbruSUz9Pohzd">Qmau7KrSAmso4LznwTDo1jpSxZ9PZe1huAbruSUz9Pohzd</a> 
@@ -781,24 +802,3 @@
 <a href="https://jollibeecasino.xyz/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
 <a href="https://jollibeecasino.xyz/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
 <a href="https://jollibeecasino.xyz/the-hindu-lunar-calendar-months-paksha-and-major-festivals/">the hindu lunar calendar months paksha and major festivals</a> 
-<a href="https://jollibeecasino.xyz/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
-<a href="https://jollibeecasino.xyz/tlt-ng-resource-3/">tlt ng resource 3</a> 
-<a href="https://jollibeecasino.xyz/todaykeralalotteryresult-net-resource-3/">todaykeralalotteryresult net resource 3</a> 
-<a href="https://jollibeecasino.xyz/ttweakflight-cc-resource-3/">ttweakflight cc resource 3</a> 
-<a href="https://jollibeecasino.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://jollibeecasino.xyz/understanding-daily-result-charts-and-staying-up-to-date/">understanding daily result charts and staying up to date</a> 
-<a href="https://jollibeecasino.xyz/understanding-europe-s-etias-travel-authorisation-a-general/">understanding europe s etias travel authorisation a general</a> 
-<a href="https://jollibeecasino.xyz/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
-<a href="https://jollibeecasino.xyz/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://jollibeecasino.xyz/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
-<a href="https://jollibeecasino.xyz/understanding-the-origins-of-baby-names/">understanding the origins of baby names</a> 
-<a href="https://jollibeecasino.xyz/what-makes-an-explainer-article-genuinely-useful-explained-simply/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://jollibeecasino.xyz/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
-<a href="https://jollibeecasino.xyz/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://jollibeecasino.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://jollibeecasino.xyz/why-a-toilet-keeps-running-and-the-simple-parts-behind-it/">why a toilet keeps running and the simple parts behind it</a> 
-<a href="https://jollibeecasino.xyz/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://jollibeecasino.xyz/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
-<a href="https://jollibeecasino.xyz/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
-<a href="https://jolly-beignet-ec513c.netlify.app/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre.html">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://jolly-kitsune-450926.netlify.app/protecting-your-nid-and-birth-information.html">protecting your nid and birth information</a> 

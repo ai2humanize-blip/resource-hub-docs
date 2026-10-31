@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-53.md) · [‹ prev](references-51.md)
 
+<a href="https://madeleine-dore.com/print-your-nysc-certificate/">print your nysc certificate</a> 
+<a href="https://madeleine-dore.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
+<a href="https://madeleine-dore.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
+<a href="https://madeleine-dore.com/quikconsolecom-net-resource-3/">quikconsolecom net resource 3</a> 
+<a href="https://madeleine-dore.com/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
+<a href="https://madeleine-dore.com/revolutionizing-creativity-how-ai-powered-apps-are-transform/">revolutionizing creativity how ai powered apps are transform</a> 
+<a href="https://madeleine-dore.com/revolutionizing-creativity-how-ai-powered-tools-transform-di-107-8/">revolutionizing creativity how ai powered tools transform di</a> 
+<a href="https://madeleine-dore.com/revolutionizing-daily-life-ai-powered-apps-digital-wellness-107-8/">revolutionizing daily life ai powered apps digital wellness </a> 
+<a href="https://madeleine-dore.com/robthecoins-xyz-resource-3/">robthecoins xyz resource 3</a> 
+<a href="https://madeleine-dore.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
+<a href="https://madeleine-dore.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://madeleine-dore.com/staying-informed-business-technology-and-world-affairs-in-on/">staying informed business technology and world affairs in on</a> 
+<a href="https://madeleine-dore.com/staying-informed-how-to-navigate-today-s-news-landscape-for/">staying informed how to navigate today s news landscape for</a> 
+<a href="https://madeleine-dore.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga-107-7/">staying safe and informed the latest in online casino and ga</a> 
+<a href="https://madeleine-dore.com/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
+<a href="https://madeleine-dore.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
+<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-in-online-casino-and/">staying safe and responsible the latest in online casino and</a> 
+<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
+<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-trends-in-online-cas-2/">staying safe and responsible the latest trends in online cas</a> 
+<a href="https://madeleine-dore.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
 <a href="https://madeleine-dore.com/staying-safe-informed-and-updated-the-latest-in-web-tech-and-107-7/">staying safe informed and updated the latest in web tech and</a> 
 <a href="https://madeleine-dore.com/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
 <a href="https://madeleine-dore.com/stubble-burning-and-winter-smog-in-north-india-why-air-quali/">stubble burning and winter smog in north india why air quali</a> 
@@ -781,24 +802,3 @@
 <a href="https://marlonwayansnetworth.com/understanding-today-s-media-landscape-news-analysis-and-what/">understanding today s media landscape news analysis and what</a> 
 <a href="https://marlonwayansnetworth.com/understanding-today-s-news-landscape-in-depth-analysis-and-e/">understanding today s news landscape in depth analysis and e</a> 
 <a href="https://marlonwayansnetworth.com/unlocking-creativity-how-ai-powered-apps-are-transforming-di/">unlocking creativity how ai powered apps are transforming di</a> 
-<a href="https://marlonwayansnetworth.com/unlocking-the-future-how-ai-powered-apps-are-transforming-ou/">unlocking the future how ai powered apps are transforming ou</a> 
-<a href="https://marlonwayansnetworth.com/unlocking-the-power-of-search-engine-optimization-a-beginner/">unlocking the power of search engine optimization a beginner</a> 
-<a href="https://marlonwayansnetworth.com/unlocking-the-secrets-of-effective-home-composting-a-beginne/">unlocking the secrets of effective home composting a beginne</a> 
-<a href="https://marlonwayansnetworth.com/unlocking-the-secrets-of-successful-home-composting-a-beginn/">unlocking the secrets of successful home composting a beginn</a> 
-<a href="https://marlonwayansnetworth.com/unpacking-the-latest-news-expert-analysis-and-insights-for-i/">unpacking the latest news expert analysis and insights for i</a> 
-<a href="https://marlonwayansnetworth.com/unpacking-today-s-top-news-analysis-insights-and-what-it-mea/">unpacking today s top news analysis insights and what it mea</a> 
-<a href="https://marlonwayansnetworth.com/web-tech-content-50-resources-worth-bookmarking-109-5-2/">web tech content 50 resources worth bookmarking 109 5 2</a> 
-<a href="https://marlonwayansnetworth.com/web-tech-content-50-resources-worth-bookmarking-109-5/">web tech content 50 resources worth bookmarking 109 5</a> 
-<a href="https://marlonwayansnetworth.com/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
-<a href="https://marlonwayansnetworth.com/what-makes-an-explainer-article-genuinely-useful-explained-s-2/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://marlonwayansnetworth.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://marlonwayansnetworth.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://marlonwayansnetworth.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://marlonwayansnetworth.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://marlonwayansnetworth.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
-<a href="https://marlonwayansnetworth.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
-<a href="https://marlonwayansnetworth.com/what-to-know-about-how-to-get-the-most-out-of-online-guides-2/">what to know about how to get the most out of online guides </a> 
-<a href="https://marlonwayansnetworth.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
-<a href="https://marlonwayansnetworth.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
-<a href="https://marlonwayansnetworth.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://marlonwayansnetworth.com/what-to-know-about-making-sense-of-complex-topics-online-2/">what to know about making sense of complex topics online 2</a> 

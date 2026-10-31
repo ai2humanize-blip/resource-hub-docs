@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://123angelnumber.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
+<a href="https://123angelnumber.com/understanding-daily-result-charts-and-staying-up-to-date/">understanding daily result charts and staying up to date</a> 
 <a href="https://123angelnumber.com/understanding-digital-literacy-a-quick-guide/">understanding digital literacy a quick guide</a> 
 <a href="https://123angelnumber.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
 <a href="https://123angelnumber.com/understanding-digital-literacy-and-why-it-matters-3/">understanding digital literacy and why it matters 3</a> 
@@ -799,6 +802,3 @@
 <a href="https://88jl1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://88jl1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://88jl1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://88jl1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://88jl1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://88jl1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 

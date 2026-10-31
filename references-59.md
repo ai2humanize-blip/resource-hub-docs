@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-60.md) · [‹ prev](references-58.md)
 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-quick-guide-2/">why niche blogs still matter a quick guide 2</a> 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://palacsintarecept.hu.net/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://palacsintarecept.hu.net/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://palacsintarecept.hu.net/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://papaya-blini-d4f131.netlify.app/footyntel.html">footyntel</a> 
+<a href="https://paper.wf/1mother/a-reading-list-of-independent-news-and-finance-sites">a reading list of independent news and finance sites</a> 
+<a href="https://paper.wf/1mother/a-useful-resource-what-to-do-after-a-data-breach">a useful resource what to do after a data breach</a> 
+<a href="https://paper.wf/1mother/independent-crypto-and-finance-publications-to-bookmark">independent crypto and finance publications to bookmark</a> 
+<a href="https://paper.wf/1mother/independent-websites-worth-bookmarking">independent websites worth bookmarking</a> 
+<a href="https://paper.wf/1mother/more-independent-websites-worth-exploring">more independent websites worth exploring</a> 
+<a href="https://paper.wf/1mother/useful-independent-sites-tools-and-crypto-resources">useful independent sites tools and crypto resources</a> 
+<a href="https://pastebin.com/0FQdJ0Br">0FQdJ0Br</a> 
+<a href="https://pastebin.com/0PUSy2f3">0PUSy2f3</a> 
+<a href="https://pastebin.com/0QbqeZhW">0QbqeZhW</a> 
+<a href="https://pastebin.com/0QywkJGB">0QywkJGB</a> 
+<a href="https://pastebin.com/0cxSYR0C">0cxSYR0C</a> 
+<a href="https://pastebin.com/18GUjLX1">18GUjLX1</a> 
+<a href="https://pastebin.com/1CgcCPd7">1CgcCPd7</a> 
 <a href="https://pastebin.com/1QWGgGCb">1QWGgGCb</a> 
 <a href="https://pastebin.com/25RmgqAd">25RmgqAd</a> 
 <a href="https://pastebin.com/39cUEMGF">39cUEMGF</a> 
@@ -781,24 +802,3 @@
 <a href="https://pinasscatter.xyz/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://pinasscatter.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://pinasscatter.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://pinasscatter.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://pinasscatter.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://pinasscatter.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
-<a href="https://pinasscatter.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://pinasscatter.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://pinasscatter.xyz/a-simple-framework-for-researching-any-topic-online-and-why-it-matters/">a simple framework for researching any topic online and why </a> 
-<a href="https://pinasscatter.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://pinasscatter.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://pinasscatter.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://pinasscatter.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
-<a href="https://pinasscatter.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://pinasscatter.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://pinasscatter.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://pinasscatter.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://pinasscatter.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://pinasscatter.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://pinasscatter.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://pinasscatter.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
-<a href="https://pinasscatter.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
-<a href="https://pinasscatter.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
-<a href="https://pinasscatter.xyz/criptano/">criptano</a> 
