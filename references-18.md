@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cnlawblog.jpn.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://cnlawblog.jpn.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://cochesdeocasion.xyz/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://cochesdeocasion.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://cochesdeocasion.xyz/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://cochesdeocasion.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cochesdeocasion.xyz/a-guide-to-guest-contributing-and-press-outreach/">a guide to guest contributing and press outreach</a> 
+<a href="https://cochesdeocasion.xyz/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://cochesdeocasion.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cochesdeocasion.xyz/a-practical-guide-to-working-with-independent-publishers/">a practical guide to working with independent publishers</a> 
+<a href="https://cochesdeocasion.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cochesdeocasion.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cochesdeocasion.xyz/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
 <a href="https://cochesdeocasion.xyz/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://cochesdeocasion.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-16/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-17/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-18/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-19/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-20/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-21/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-22/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-23/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-24/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-25/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-26/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-27/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-28/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-productivity-a-comprehensive-guid-86-6-29/">mastering business finance productivity a comprehensive guid</a> 
