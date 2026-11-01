@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://casacours.uk.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://casacours.uk.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://casacours.uk.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
 <a href="https://casacours.uk.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
 <a href="https://casacours.uk.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://casacours.uk.com/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
@@ -528,6 +531,9 @@
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-2/">guides reviews how tos 50 resources worth bookmarking 83 2 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-3/">guides reviews how tos 50 resources worth bookmarking 83 2 3</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-4/">guides reviews how tos 50 resources worth bookmarking 83 2 4</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-5/">guides reviews how tos 50 resources worth bookmarking 83 2 5</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-6/">guides reviews how tos 50 resources worth bookmarking 83 2 6</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-7/">guides reviews how tos 50 resources worth bookmarking 83 2 7</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2/">guides reviews how tos 50 resources worth bookmarking 83 2</a> 
 <a href="https://cbd-stone.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
 <a href="https://cbd-stone.com/how-ai-driven-apps-are-transforming-our-daily-digital-lives/">how ai driven apps are transforming our daily digital lives</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/navigating-marketing-seo-growth-a-curated-guide-to-online-re-83-3-2/">navigating marketing seo growth a curated guide to online re</a> 
 <a href="https://cbd-stone.com/navigating-marketing-seo-growth-a-curated-guide-to-online-re-83-3/">navigating marketing seo growth a curated guide to online re</a> 
 <a href="https://cbd-stone.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://cbd-stone.com/navigating-online-casino-news-cryptocurrency-and-productivit-83-4/">navigating online casino news cryptocurrency and productivit</a> 
-<a href="https://cbd-stone.com/navigating-the-complex-world-of-current-news-insights-and-an/">navigating the complex world of current news insights and an</a> 
-<a href="https://cbd-stone.com/navigating-the-crypto-world-bitcoin-blockchain-and-the-lates/">navigating the crypto world bitcoin blockchain and the lates</a> 
-<a href="https://cbd-stone.com/navigating-the-crypto-world-understanding-bitcoin-blockchain/">navigating the crypto world understanding bitcoin blockchain</a> 
-<a href="https://cbd-stone.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a-2/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://cbd-stone.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a-3/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 

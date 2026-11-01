@@ -101,11 +101,14 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-enthusia-82-1/">essential digital tools online resources for crypto enthusia</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-traders-82-1/">essential digital tools online resources for crypto traders </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-cryptocurrency-82-1/">essential digital tools online resources for cryptocurrency </a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-e-commerce-succ-82-1/">essential digital tools online resources for e commerce succ</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-enhanced-produc-82-1/">essential digital tools online resources for enhanced produc</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-every-modern-en-82-1/">essential digital tools online resources for every modern en</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-everyday-use-82-1/">essential digital tools online resources for everyday use 82</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-business-82-1/">essential digital tools online resources for modern business</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-investor-82-1-2/">essential digital tools online resources for modern investor</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-investor-82-1/">essential digital tools online resources for modern investor</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-life-82-1/">essential digital tools online resources for modern life 82 </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-6/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-users-82-1-2/">essential digital tools online resources for modern users 82</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
-<a href="https://casacours.uk.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
-<a href="https://casacours.uk.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
-<a href="https://casacours.uk.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 

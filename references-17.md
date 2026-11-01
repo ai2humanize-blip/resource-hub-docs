@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cbdstent.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://cbdstent.com/building-your-personal-web-toolkit-guides-reviews-how-tos-85-5/">building your personal web toolkit guides reviews how tos 85</a> 
+<a href="https://cbdstent.com/business-finance-productivity-a-comprehensive-guide-to-under-85-7/">business finance productivity a comprehensive guide to under</a> 
+<a href="https://cbdstent.com/business-finance-productivity-essential-independent-websites-85-7/">business finance productivity essential independent websites</a> 
+<a href="https://cbdstent.com/business-finance-productivity-navigating-online-casinos-and-85-7/">business finance productivity navigating online casinos and </a> 
+<a href="https://cbdstent.com/business-finance-productivity-unlocking-success-in-the-moder-85-7/">business finance productivity unlocking success in the moder</a> 
+<a href="https://cbdstent.com/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
+<a href="https://cbdstent.com/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
+<a href="https://cbdstent.com/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
 <a href="https://cbdstent.com/comprehensive-guides-in-depth-reviews-and-expert-how-tos-you-85-5/">comprehensive guides in depth reviews and expert how tos you</a> 
 <a href="https://cbdstent.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-85-5/">comprehensive guides in depth reviews and practical how tos </a> 
 <a href="https://cbdstent.com/comprehensive-guides-reviews-and-how-tos-everything-you-need-85-5-2/">comprehensive guides reviews and how tos everything you need</a> 
@@ -513,6 +522,9 @@
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-2/">web tech content 50 resources worth bookmarking 85 4 2</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-3/">web tech content 50 resources worth bookmarking 85 4 3</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-4/">web tech content 50 resources worth bookmarking 85 4 4</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-5/">web tech content 50 resources worth bookmarking 85 4 5</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-6/">web tech content 50 resources worth bookmarking 85 4 6</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-7/">web tech content 50 resources worth bookmarking 85 4 7</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4/">web tech content 50 resources worth bookmarking 85 4</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-9-2/">web tech content 50 resources worth bookmarking 85 9 2</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-9/">web tech content 50 resources worth bookmarking 85 9</a> 
@@ -790,15 +802,3 @@
 <a href="https://cnlawblog.jpn.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://cnlawblog.jpn.com/nature-inspired-baby-names-and-their-meanings-a-quick-guide/">nature inspired baby names and their meanings a quick guide</a> 
 <a href="https://cnlawblog.jpn.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://cnlawblog.jpn.com/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
-<a href="https://cnlawblog.jpn.com/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
-<a href="https://cnlawblog.jpn.com/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
-<a href="https://cnlawblog.jpn.com/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
-<a href="https://cnlawblog.jpn.com/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/simple-habits-of-a-smart-internet-reader-the-basics-2/">simple habits of a smart internet reader the basics 2</a> 
-<a href="https://cnlawblog.jpn.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
-<a href="https://cnlawblog.jpn.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cnlawblog.jpn.com/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://cnlawblog.jpn.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
-<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-a-quick-guide/">the difference between skimming and deep reading online a qu</a> 
-<a href="https://cnlawblog.jpn.com/the-difference-between-skimming-and-deep-reading-online-the-basics/">the difference between skimming and deep reading online the </a> 
