@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cnlawblog.jpn.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://cnlawblog.jpn.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
+<a href="https://cnlawblog.jpn.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
+<a href="https://cnlawblog.jpn.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
+<a href="https://cnlawblog.jpn.com/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
+<a href="https://cnlawblog.jpn.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://cnlawblog.jpn.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
+<a href="https://cnlawblog.jpn.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
+<a href="https://cnlawblog.jpn.com/understanding-arcenturf-a-practical-guide/">understanding arcenturf a practical guide</a> 
+<a href="https://cnlawblog.jpn.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
+<a href="https://cnlawblog.jpn.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
+<a href="https://cnlawblog.jpn.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
 <a href="https://cnlawblog.jpn.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
 <a href="https://cnlawblog.jpn.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
 <a href="https://cnlawblog.jpn.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
 <a href="https://crediblenews24.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
 <a href="https://crediblenews24.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://crediblenews24.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
-<a href="https://crediblenews24.com/how-travel-cards-help-you-avoid-foreign-transaction-fees/">how travel cards help you avoid foreign transaction fees</a> 
-<a href="https://crediblenews24.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
-<a href="https://crediblenews24.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
-<a href="https://crediblenews24.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://crediblenews24.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://crediblenews24.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://crediblenews24.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
-<a href="https://crediblenews24.com/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
-<a href="https://crediblenews24.com/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
-<a href="https://crediblenews24.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
-<a href="https://crediblenews24.com/making-sense-of-complex-topics-online-the-basics-2/">making sense of complex topics online the basics 2</a> 
