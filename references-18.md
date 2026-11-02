@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cnlawblog.jpn.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://cnlawblog.jpn.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cnlawblog.jpn.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://cnlawblog.jpn.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cnlawblog.jpn.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cnlawblog.jpn.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cnlawblog.jpn.com/air-quality-in-hyderabad-understanding-the-daily-readings/">air quality in hyderabad understanding the daily readings</a> 
+<a href="https://cnlawblog.jpn.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://cnlawblog.jpn.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://cnlawblog.jpn.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://cnlawblog.jpn.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://cnlawblog.jpn.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/expert-guides-reviews-and-how-tos-transform-your-life-with-i-86-9/">expert guides reviews and how tos transform your life with i</a> 
 <a href="https://crediblenews24.com/exploring-ai-in-business-finance-and-productivity-a-comprehe-86-6/">exploring ai in business finance and productivity a comprehe</a> 
 <a href="https://crediblenews24.com/exploring-business-finance-productivity-and-entertainment-a-86-6/">exploring business finance productivity and entertainment a </a> 
-<a href="https://crediblenews24.com/exploring-business-finance-productivity-essential-tools-and-86-6/">exploring business finance productivity essential tools and </a> 
-<a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-2-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-7-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-7/">exploring essential digital tools online resources for moder</a> 
-<a href="https://crediblenews24.com/exploring-the-best-digital-tools-online-resources-for-modern-86-2-2/">exploring the best digital tools online resources for modern</a> 
-<a href="https://crediblenews24.com/exploring-the-best-digital-tools-online-resources-for-modern-86-2/">exploring the best digital tools online resources for modern</a> 
-<a href="https://crediblenews24.com/exploring-the-best-digital-tools-online-resources-for-modern-86-7/">exploring the best digital tools online resources for modern</a> 
-<a href="https://crediblenews24.com/exploring-the-best-guides-reviews-how-tos-across-top-resourc-86-4/">exploring the best guides reviews how tos across top resourc</a> 
-<a href="https://crediblenews24.com/exploring-the-best-in-web-tech-content-a-comprehensive-round-86-8/">exploring the best in web tech content a comprehensive round</a> 
-<a href="https://crediblenews24.com/exploring-the-best-in-web-tech-content-a-curated-guide-86-8/">exploring the best in web tech content a curated guide 86 8</a> 
-<a href="https://crediblenews24.com/exploring-the-best-independent-web-tech-crypto-resources-86-8/">exploring the best independent web tech crypto resources 86 </a> 

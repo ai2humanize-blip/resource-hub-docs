@@ -88,6 +88,7 @@
 <a href="https://captainjackinterview.com/discover-the-best-digital-tools-online-resources-for-every-n-82-1-2/">discover the best digital tools online resources for every n</a> 
 <a href="https://captainjackinterview.com/discover-the-best-digital-tools-online-resources-for-every-n-82-1-3/">discover the best digital tools online resources for every n</a> 
 <a href="https://captainjackinterview.com/discover-the-best-digital-tools-online-resources-for-every-n-82-1-4/">discover the best digital tools online resources for every n</a> 
+<a href="https://captainjackinterview.com/discover-the-best-digital-tools-online-resources-for-every-n-82-1-5/">discover the best digital tools online resources for every n</a> 
 <a href="https://captainjackinterview.com/discover-the-best-digital-tools-online-resources-for-every-n-82-1/">discover the best digital tools online resources for every n</a> 
 <a href="https://captainjackinterview.com/discover-the-best-digital-tools-online-resources-for-movie-t-82-1/">discover the best digital tools online resources for movie t</a> 
 <a href="https://captainjackinterview.com/discover-the-best-digital-tools-online-resources-for-success-82-6/">discover the best digital tools online resources for success</a> 
@@ -108,6 +109,7 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-every-aspect-of-82-1/">essential digital tools online resources for every aspect of</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-every-modern-en-82-1/">essential digital tools online resources for every modern en</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-everyday-use-82-1/">essential digital tools online resources for everyday use 82</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-football-enthus-82-1/">essential digital tools online resources for football enthus</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-gamers-creative-82-1/">essential digital tools online resources for gamers creative</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-business-82-1/">essential digital tools online resources for modern business</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-investor-82-1-2/">essential digital tools online resources for modern investor</a> 
@@ -115,6 +117,7 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-life-82-1/">essential digital tools online resources for modern life 82 </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-6/">essential digital tools online resources for modern living 8</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-producti-82-1/">essential digital tools online resources for modern producti</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-professi-82-1/">essential digital tools online resources for modern professi</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-users-82-1-2/">essential digital tools online resources for modern users 82</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-users-82-1-3/">essential digital tools online resources for modern users 82</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
 <a href="https://casacours.uk.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
 <a href="https://casacours.uk.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
-<a href="https://casacours.uk.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://casacours.uk.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://casacours.uk.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
