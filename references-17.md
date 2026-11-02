@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cbdstent.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cbdstent.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cbdstent.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cbdstent.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cbdstent.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cbdstent.com/aavot-app-the-honest-current-status/">aavot app the honest current status</a> 
 <a href="https://cbdstent.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
 <a href="https://cbdstent.com/air-quality-in-kolkata-winter-pollution-and-health-context/">air quality in kolkata winter pollution and health context</a> 
 <a href="https://cbdstent.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
@@ -529,6 +538,9 @@
 <a href="https://cbdstent.com/unpacking-the-latest-trends-in-news-consumption-and-analysis/">unpacking the latest trends in news consumption and analysis</a> 
 <a href="https://cbdstent.com/web-tech-and-organic-living-expert-insights-and-holistic-hea-85-9/">web tech and organic living expert insights and holistic hea</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-10/">web tech content 50 resources worth bookmarking 85 4 10</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-11/">web tech content 50 resources worth bookmarking 85 4 11</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-12/">web tech content 50 resources worth bookmarking 85 4 12</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-13/">web tech content 50 resources worth bookmarking 85 4 13</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-2/">web tech content 50 resources worth bookmarking 85 4 2</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-3/">web tech content 50 resources worth bookmarking 85 4 3</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-4/">web tech content 50 resources worth bookmarking 85 4 4</a> 
@@ -790,15 +802,3 @@
 <a href="https://cnlawblog.jpn.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
 <a href="https://cnlawblog.jpn.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-a-practical-guide/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://cnlawblog.jpn.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
-<a href="https://cnlawblog.jpn.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://cnlawblog.jpn.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://cnlawblog.jpn.com/how-to-organize-the-information-you-find-online-2/">how to organize the information you find online 2</a> 
-<a href="https://cnlawblog.jpn.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
-<a href="https://cnlawblog.jpn.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://cnlawblog.jpn.com/how-to-tell-explainer-journalism-from-opinion-explained-simp-2/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cnlawblog.jpn.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cnlawblog.jpn.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://cnlawblog.jpn.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 

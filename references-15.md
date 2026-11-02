@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
 <a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
@@ -532,6 +535,9 @@
 <a href="https://cbd-stone.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://cbd-stone.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-10/">guides reviews how tos 50 resources worth bookmarking 83 2 1</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-11/">guides reviews how tos 50 resources worth bookmarking 83 2 1</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-12/">guides reviews how tos 50 resources worth bookmarking 83 2 1</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-13/">guides reviews how tos 50 resources worth bookmarking 83 2 1</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-2/">guides reviews how tos 50 resources worth bookmarking 83 2 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-3/">guides reviews how tos 50 resources worth bookmarking 83 2 3</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-4/">guides reviews how tos 50 resources worth bookmarking 83 2 4</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/maximizing-business-finance-and-productivity-with-advanced-s-83-9/">maximizing business finance and productivity with advanced s</a> 
 <a href="https://cbd-stone.com/maximizing-business-potential-seo-finance-and-productivity-i-83-4/">maximizing business potential seo finance and productivity i</a> 
 <a href="https://cbd-stone.com/maximizing-digital-efficiency-how-ai-powered-apps-are-transf-83-7/">maximizing digital efficiency how ai powered apps are transf</a> 
-<a href="https://cbd-stone.com/maximizing-profits-how-personal-finance-skills-boost-busines/">maximizing profits how personal finance skills boost busines</a> 
-<a href="https://cbd-stone.com/maximizing-your-digital-life-tools-tips-and-resources-for-ev-83-5/">maximizing your digital life tools tips and resources for ev</a> 
-<a href="https://cbd-stone.com/maximizing-your-website-s-potential-a-comprehensive-guide-to-83-6/">maximizing your website s potential a comprehensive guide to</a> 
-<a href="https://cbd-stone.com/navigating-business-finance-and-productivity-a-comprehensive-83-9/">navigating business finance and productivity a comprehensive</a> 
-<a href="https://cbd-stone.com/navigating-business-finance-productivity-a-guide-to-effectiv-83-9/">navigating business finance productivity a guide to effectiv</a> 
-<a href="https://cbd-stone.com/navigating-business-finance-productivity-essential-tools-and-83-9/">navigating business finance productivity essential tools and</a> 
