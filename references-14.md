@@ -101,6 +101,7 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-enthusia-82-1-2/">essential digital tools online resources for crypto enthusia</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-enthusia-82-1/">essential digital tools online resources for crypto enthusia</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-crypto-traders-82-1/">essential digital tools online resources for crypto traders </a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-cryptocurrency-82-1-2/">essential digital tools online resources for cryptocurrency </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-cryptocurrency-82-1/">essential digital tools online resources for cryptocurrency </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-e-commerce-succ-82-1/">essential digital tools online resources for e commerce succ</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-enhanced-produc-82-1/">essential digital tools online resources for enhanced produc</a> 
@@ -147,6 +148,8 @@
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-12/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-13/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-14/">exploring essential digital tools online resources for moder</a> 
+<a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-15/">exploring essential digital tools online resources for moder</a> 
+<a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-16/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-3/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-4/">exploring essential digital tools online resources for moder</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
 <a href="https://casacours.uk.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://casacours.uk.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
-<a href="https://casacours.uk.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://casacours.uk.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
