@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
 <a href="https://casacours.uk.com/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
 <a href="https://casacours.uk.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
 <a href="https://casacours.uk.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
@@ -528,12 +531,15 @@
 <a href="https://cbd-stone.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://cbd-stone.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://cbd-stone.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-10/">guides reviews how tos 50 resources worth bookmarking 83 2 1</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-2/">guides reviews how tos 50 resources worth bookmarking 83 2 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-3/">guides reviews how tos 50 resources worth bookmarking 83 2 3</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-4/">guides reviews how tos 50 resources worth bookmarking 83 2 4</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-5/">guides reviews how tos 50 resources worth bookmarking 83 2 5</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-6/">guides reviews how tos 50 resources worth bookmarking 83 2 6</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-7/">guides reviews how tos 50 resources worth bookmarking 83 2 7</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-8/">guides reviews how tos 50 resources worth bookmarking 83 2 8</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-9/">guides reviews how tos 50 resources worth bookmarking 83 2 9</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2/">guides reviews how tos 50 resources worth bookmarking 83 2</a> 
 <a href="https://cbd-stone.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
 <a href="https://cbd-stone.com/how-ai-driven-apps-are-transforming-our-daily-digital-lives/">how ai driven apps are transforming our daily digital lives</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/navigating-business-finance-and-productivity-a-comprehensive-83-9/">navigating business finance and productivity a comprehensive</a> 
 <a href="https://cbd-stone.com/navigating-business-finance-productivity-a-guide-to-effectiv-83-9/">navigating business finance productivity a guide to effectiv</a> 
 <a href="https://cbd-stone.com/navigating-business-finance-productivity-essential-tools-and-83-9/">navigating business finance productivity essential tools and</a> 
-<a href="https://cbd-stone.com/navigating-business-finance-productivity-for-virginia-childh-83-4/">navigating business finance productivity for virginia childh</a> 
-<a href="https://cbd-stone.com/navigating-career-transitions-and-legal-news-strategies-for-83-6/">navigating career transitions and legal news strategies for </a> 
-<a href="https://cbd-stone.com/navigating-marketing-seo-growth-a-comprehensive-web-resource-83-3/">navigating marketing seo growth a comprehensive web resource</a> 
-<a href="https://cbd-stone.com/navigating-marketing-seo-growth-a-curated-guide-to-online-re-83-3-2/">navigating marketing seo growth a curated guide to online re</a> 
-<a href="https://cbd-stone.com/navigating-marketing-seo-growth-a-curated-guide-to-online-re-83-3/">navigating marketing seo growth a curated guide to online re</a> 
-<a href="https://cbd-stone.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 

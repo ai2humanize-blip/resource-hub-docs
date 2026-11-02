@@ -144,10 +144,13 @@
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-5/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-6/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-7/">exploring essential digital tools online resources for moder</a> 
+<a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-8/">exploring essential digital tools online resources for moder</a> 
+<a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-9/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-6/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-the-m-82-1/">exploring essential digital tools online resources for the m</a> 
 <a href="https://captainjackinterview.com/exploring-independent-news-finance-and-crypto-resources-for-82-4/">exploring independent news finance and crypto resources for </a> 
+<a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-ai-art-82-1/">exploring the best digital tools online resources for ai art</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-modern-82-1/">exploring the best digital tools online resources for modern</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-modern-82-6/">exploring the best digital tools online resources for modern</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-sports-82-1/">exploring the best digital tools online resources for sports</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
 <a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
 <a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters-2/">how to avoid misinformation and hype and why it matters 2</a> 
-<a href="https://casacours.uk.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
-<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://casacours.uk.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
