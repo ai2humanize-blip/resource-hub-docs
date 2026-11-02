@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://cbdstent.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://cbdstent.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cbdstent.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://cbdstent.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cbdstent.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cbdstent.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cbdstent.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://cbdstent.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cbdstent.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://cbdstent.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://cbdstent.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
@@ -541,6 +550,9 @@
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-11/">web tech content 50 resources worth bookmarking 85 4 11</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-12/">web tech content 50 resources worth bookmarking 85 4 12</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-13/">web tech content 50 resources worth bookmarking 85 4 13</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-14/">web tech content 50 resources worth bookmarking 85 4 14</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-15/">web tech content 50 resources worth bookmarking 85 4 15</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-16/">web tech content 50 resources worth bookmarking 85 4 16</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-2/">web tech content 50 resources worth bookmarking 85 4 2</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-3/">web tech content 50 resources worth bookmarking 85 4 3</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-4/">web tech content 50 resources worth bookmarking 85 4 4</a> 
@@ -790,15 +802,3 @@
 <a href="https://cnlawblog.jpn.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
 <a href="https://cnlawblog.jpn.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 
-<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
-<a href="https://cnlawblog.jpn.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
-<a href="https://cnlawblog.jpn.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
-<a href="https://cnlawblog.jpn.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
-<a href="https://cnlawblog.jpn.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
-<a href="https://cnlawblog.jpn.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
-<a href="https://cnlawblog.jpn.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
-<a href="https://cnlawblog.jpn.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
-<a href="https://cnlawblog.jpn.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
-<a href="https://cnlawblog.jpn.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-a-practical-guide/">how to fact check something in five minutes a practical guid</a> 

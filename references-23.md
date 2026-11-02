@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-24.md) · [‹ prev](references-22.md)
 
+<a href="https://debra--784b567a97d111f191cc1607ee4eb77e.web.val.run">debra--784b567a97d111f191cc1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--8b5b763c97b811f1abb41607ee4eb77e.web.val.run">debra--8b5b763c97b811f1abb41607ee4eb77e.web.val.run</a> 
+<a href="https://debra--9702130497d311f19aaf1607ee4eb77e.web.val.run">debra--9702130497d311f19aaf1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--cd8d19d697ca11f1ad111607ee4eb77e.web.val.run">debra--cd8d19d697ca11f1ad111607ee4eb77e.web.val.run</a> 
+<a href="https://debra--d386f77697c511f196bf1607ee4eb77e.web.val.run">debra--d386f77697c511f196bf1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run">debra--dfaa6b4897be11f19e0a1607ee4eb77e.web.val.run</a> 
+<a href="https://debra--ed851c8897d511f183d11607ee4eb77e.web.val.run">debra--ed851c8897d511f183d11607ee4eb77e.web.val.run</a> 
+<a href="https://decentralwatch.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://decentralwatch.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://decentralwatch.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://decentralwatch.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://decentralwatch.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://decentralwatch.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://decentralwatch.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://decentralwatch.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://decentralwatch.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://decentralwatch.xyz/hello-world/">hello world</a> 
+<a href="https://decentralwatch.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://decentralwatch.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://decentralwatch.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://decentralwatch.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://decentralwatch.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://decentralwatch.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://decentralwatch.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
@@ -60,6 +81,9 @@
 <a href="https://dellywoodfilms.com/business-finance-productivity-50-resources-worth-bookmarking-89-8-10/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://dellywoodfilms.com/business-finance-productivity-50-resources-worth-bookmarking-89-8-11/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://dellywoodfilms.com/business-finance-productivity-50-resources-worth-bookmarking-89-8-12/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://dellywoodfilms.com/business-finance-productivity-50-resources-worth-bookmarking-89-8-13/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://dellywoodfilms.com/business-finance-productivity-50-resources-worth-bookmarking-89-8-14/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://dellywoodfilms.com/business-finance-productivity-50-resources-worth-bookmarking-89-8-15/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://dellywoodfilms.com/business-finance-productivity-50-resources-worth-bookmarking-89-8-2/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://dellywoodfilms.com/business-finance-productivity-50-resources-worth-bookmarking-89-8-3/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://dellywoodfilms.com/business-finance-productivity-50-resources-worth-bookmarking-89-8-4/">business finance productivity 50 resources worth bookmarking</a> 
@@ -778,27 +802,3 @@
 <a href="https://dev.to/ai2humanizeblip/getting-the-value-of-slow-careful-reading-right-27ol">getting the value of slow careful reading right 27ol</a> 
 <a href="https://dev.to/ai2humanizeblip/getting-why-niche-blogs-still-matter-right-30fe">getting why niche blogs still matter right 30fe</a> 
 <a href="https://dev.to/ai2humanizeblip/getting-why-niche-blogs-still-matter-right-531b">getting why niche blogs still matter right 531b</a> 
-<a href="https://dev.to/ai2humanizeblip/guides-reviews-how-tos-50-resources-worth-bookmarking-3cb0">guides reviews how tos 50 resources worth bookmarking 3cb0</a> 
-<a href="https://dev.to/ai2humanizeblip/how-ai-driven-apps-are-revolutionizing-everyday-life-in-the-digital-world-4ag9">how ai driven apps are revolutionizing everyday life in the </a> 
-<a href="https://dev.to/ai2humanizeblip/how-ai-powered-apps-are-transforming-our-digital-experience-5a1l">how ai powered apps are transforming our digital experience </a> 
-<a href="https://dev.to/ai2humanizeblip/how-ai-powered-apps-are-transforming-our-digital-lives-hh7">how ai powered apps are transforming our digital lives hh7</a> 
-<a href="https://dev.to/ai2humanizeblip/how-optimist-india-transforms-lives-with-practical-optimism-293k">how optimist india transforms lives with practical optimism </a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-be-a-smarter-news-reader-in-2026-2715">how to be a smarter news reader in 2026 2715</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-bookmark-and-revisit-useful-resources-explained-simply-11kp">how to bookmark and revisit useful resources explained simpl</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-build-a-personal-reading-list-3n2p">how to build a personal reading list 3n2p</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-build-a-personal-reading-list-5fm3">how to build a personal reading list 5fm3</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-build-a-personal-reading-list-a-practical-guide-o5n">how to build a personal reading list a practical guide o5n</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-build-a-personal-reading-list-and-why-it-matters-4n90">how to build a personal reading list and why it matters 4n90</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-build-real-digital-skills-with-online-courses-p81">how to build real digital skills with online courses p81</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-choose-a-trustworthy-online-casino-a-comprehensive-guide-329n">how to choose a trustworthy online casino a comprehensive gu</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-choose-a-virtual-seo-expert-in-2026-a-comprehensive-guide-4j4p">how to choose a virtual seo expert in 2026 a comprehensive g</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-choose-the-best-advanced-seo-agency-in-india-for-your-business-4p5b">how to choose the best advanced seo agency in india for your</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-choose-the-perfect-restaurant-for-your-next-outing-a-comprehensive-guide-3e1b">how to choose the perfect restaurant for your next outing a </a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide-29fc">how to choose the perfect watch a comprehensive buying guide</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-a-practical-guide-3lcj">how to compare sources on the same story a practical guide 3</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-a-practical-guide-5486">how to compare sources on the same story a practical guide 5</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-compare-sources-on-the-same-story-the-basics-59k7">how to compare sources on the same story the basics 59k7</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-a-quick-guide-57o6">how to evaluate online reviews and recommendations a quick g</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-evaluate-online-reviews-and-recommendations-the-basics-269p">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-and-why-it-matters-1d1m">how to fact check something in five minutes and why it matte</a> 
-<a href="https://dev.to/ai2humanizeblip/how-to-fact-check-something-in-five-minutes-and-why-it-matters-m36">how to fact check something in five minutes and why it matte</a> 
