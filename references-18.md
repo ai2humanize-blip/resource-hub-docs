@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cnlawblog.jpn.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://cnlawblog.jpn.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://cnlawblog.jpn.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://cnlawblog.jpn.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://cnlawblog.jpn.com/how-laws-are-made-a-plain-language-guide/">how laws are made a plain language guide</a> 
+<a href="https://cnlawblog.jpn.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
+<a href="https://cnlawblog.jpn.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://cnlawblog.jpn.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
+<a href="https://cnlawblog.jpn.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
+<a href="https://cnlawblog.jpn.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
+<a href="https://cnlawblog.jpn.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 
 <a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://cnlawblog.jpn.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
 <a href="https://crediblenews24.com/getting-the-difference-between-skimming-and-deep-reading-online-right/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://crediblenews24.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://crediblenews24.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
-<a href="https://crediblenews24.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
-<a href="https://crediblenews24.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
-<a href="https://crediblenews24.com/how-ai-and-machine-learning-are-transforming-mobile-app-deve/">how ai and machine learning are transforming mobile app deve</a> 
-<a href="https://crediblenews24.com/how-ai-powered-apps-are-revolutionizing-daily-life/">how ai powered apps are revolutionizing daily life</a> 
-<a href="https://crediblenews24.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
-<a href="https://crediblenews24.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://crediblenews24.com/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://crediblenews24.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://crediblenews24.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
-<a href="https://crediblenews24.com/how-to-avoid-misinformation-and-hype-a-practical-guide-3/">how to avoid misinformation and hype a practical guide 3</a> 

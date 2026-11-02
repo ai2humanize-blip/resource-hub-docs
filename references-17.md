@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://cbdpuffbars.com/why-you-have-gnats-indoors-and-how-to-identify-the-source/">why you have gnats indoors and how to identify the source</a> 
+<a href="https://cbdstent.com/5-proven-strategies-to-skyrocket-your-website-s-organic-traf/">5 proven strategies to skyrocket your website s organic traf</a> 
+<a href="https://cbdstent.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-85-4/">a beginner s guide to understanding and starting with crypto</a> 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://cbdstent.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
 <a href="https://cbdstent.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
 <a href="https://cbdstent.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://cbdstent.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
@@ -553,6 +562,9 @@
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-14/">web tech content 50 resources worth bookmarking 85 4 14</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-15/">web tech content 50 resources worth bookmarking 85 4 15</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-16/">web tech content 50 resources worth bookmarking 85 4 16</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-17/">web tech content 50 resources worth bookmarking 85 4 17</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-18/">web tech content 50 resources worth bookmarking 85 4 18</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-19/">web tech content 50 resources worth bookmarking 85 4 19</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-2/">web tech content 50 resources worth bookmarking 85 4 2</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-3/">web tech content 50 resources worth bookmarking 85 4 3</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-4/">web tech content 50 resources worth bookmarking 85 4 4</a> 
@@ -790,15 +802,3 @@
 <a href="https://cnlawblog.jpn.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://cnlawblog.jpn.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
 <a href="https://cnlawblog.jpn.com/how-courts-and-the-justice-system-work/">how courts and the justice system work</a> 
-<a href="https://cnlawblog.jpn.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
-<a href="https://cnlawblog.jpn.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
-<a href="https://cnlawblog.jpn.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
-<a href="https://cnlawblog.jpn.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
-<a href="https://cnlawblog.jpn.com/how-laws-are-made-a-plain-language-guide/">how laws are made a plain language guide</a> 
-<a href="https://cnlawblog.jpn.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
-<a href="https://cnlawblog.jpn.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
-<a href="https://cnlawblog.jpn.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
-<a href="https://cnlawblog.jpn.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
-<a href="https://cnlawblog.jpn.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
-<a href="https://cnlawblog.jpn.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 

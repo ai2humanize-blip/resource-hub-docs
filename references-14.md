@@ -104,6 +104,7 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-cryptocurrency-82-1/">essential digital tools online resources for cryptocurrency </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-e-commerce-succ-82-1/">essential digital tools online resources for e commerce succ</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-enhanced-produc-82-1/">essential digital tools online resources for enhanced produc</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-every-aspect-of-82-1/">essential digital tools online resources for every aspect of</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-every-modern-en-82-1/">essential digital tools online resources for every modern en</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-everyday-use-82-1/">essential digital tools online resources for everyday use 82</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-business-82-1/">essential digital tools online resources for modern business</a> 
@@ -141,6 +142,8 @@
 <a href="https://captainjackinterview.com/exploring-digital-tools-online-resources-for-crypto-casino-e-82-1/">exploring digital tools online resources for crypto casino e</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-app-u-82-1/">exploring essential digital tools online resources for app u</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-10/">exploring essential digital tools online resources for moder</a> 
+<a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-11/">exploring essential digital tools online resources for moder</a> 
+<a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-12/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-3/">exploring essential digital tools online resources for moder</a> 
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-moder-82-1-4/">exploring essential digital tools online resources for moder</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
 <a href="https://casacours.uk.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
 <a href="https://casacours.uk.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://casacours.uk.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://casacours.uk.com/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://casacours.uk.com/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
