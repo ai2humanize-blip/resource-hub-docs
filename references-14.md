@@ -94,6 +94,7 @@
 <a href="https://captainjackinterview.com/discover-the-best-digital-tools-online-resources-for-success-82-6/">discover the best digital tools online resources for success</a> 
 <a href="https://captainjackinterview.com/discover-the-best-digital-tools-organic-living-resources-for-82-6/">discover the best digital tools organic living resources for</a> 
 <a href="https://captainjackinterview.com/discover-the-best-no-download-web-games-the-tech-behind-them-82-7/">discover the best no download web games the tech behind them</a> 
+<a href="https://captainjackinterview.com/discovering-timeless-baby-names-a-deep-dive-into-digital-too-82-1/">discovering timeless baby names a deep dive into digital too</a> 
 <a href="https://captainjackinterview.com/discovering-unique-and-meaningful-baby-names-a-comprehensive-82-10/">discovering unique and meaningful baby names a comprehensive</a> 
 <a href="https://captainjackinterview.com/embrace-organic-living-health-and-wellness-tips-for-a-balanc/">embrace organic living health and wellness tips for a balanc</a> 
 <a href="https://captainjackinterview.com/enhancing-business-finance-and-productivity-a-comprehensive-82-10/">enhancing business finance and productivity a comprehensive </a> 
@@ -118,7 +119,9 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-6/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-producti-82-1/">essential digital tools online resources for modern producti</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-professi-82-1-2/">essential digital tools online resources for modern professi</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-professi-82-1/">essential digital tools online resources for modern professi</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-traveler-82-1/">essential digital tools online resources for modern traveler</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-users-82-1-2/">essential digital tools online resources for modern users 82</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-users-82-1-3/">essential digital tools online resources for modern users 82</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-users-82-1/">essential digital tools online resources for modern users 82</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
 <a href="https://casacours.uk.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://casacours.uk.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
-<a href="https://casacours.uk.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://casacours.uk.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://casacours.uk.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
