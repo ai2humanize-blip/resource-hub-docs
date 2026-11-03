@@ -116,11 +116,13 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-investor-82-1-2/">essential digital tools online resources for modern investor</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-investor-82-1/">essential digital tools online resources for modern investor</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-life-82-1/">essential digital tools online resources for modern life 82 </a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1-2/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-1/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-living-82-6/">essential digital tools online resources for modern living 8</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-producti-82-1/">essential digital tools online resources for modern producti</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-professi-82-1-2/">essential digital tools online resources for modern professi</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-professi-82-1/">essential digital tools online resources for modern professi</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-traveler-82-1-2/">essential digital tools online resources for modern traveler</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-traveler-82-1/">essential digital tools online resources for modern traveler</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-users-82-1-2/">essential digital tools online resources for modern users 82</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-users-82-1-3/">essential digital tools online resources for modern users 82</a> 
@@ -169,6 +171,7 @@
 <a href="https://captainjackinterview.com/exploring-essential-digital-tools-online-resources-for-the-m-82-1/">exploring essential digital tools online resources for the m</a> 
 <a href="https://captainjackinterview.com/exploring-independent-news-finance-and-crypto-resources-for-82-4/">exploring independent news finance and crypto resources for </a> 
 <a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-ai-art-82-1/">exploring the best digital tools online resources for ai art</a> 
+<a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-crypto-82-1/">exploring the best digital tools online resources for crypto</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-modern-82-1-2/">exploring the best digital tools online resources for modern</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-modern-82-1/">exploring the best digital tools online resources for modern</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-modern-82-6/">exploring the best digital tools online resources for modern</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
 <a href="https://casacours.uk.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
 <a href="https://casacours.uk.com/get-a-digital-tin-id/">get a digital tin id</a> 
-<a href="https://casacours.uk.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://casacours.uk.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://casacours.uk.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
