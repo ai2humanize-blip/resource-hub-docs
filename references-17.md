@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cbdpuffbars.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://cbdpuffbars.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
+<a href="https://cbdpuffbars.com/understanding-digital-literacy/">understanding digital literacy</a> 
+<a href="https://cbdpuffbars.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
+<a href="https://cbdpuffbars.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
+<a href="https://cbdpuffbars.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
+<a href="https://cbdpuffbars.com/understanding-how-search-engines-rank-pages-and-why-it-matters/">understanding how search engines rank pages and why it matte</a> 
+<a href="https://cbdpuffbars.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
+<a href="https://cbdpuffbars.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
 <a href="https://cbdpuffbars.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
 <a href="https://cbdpuffbars.com/understanding-legal-information-and-news-a-comprehensive-gui/">understanding legal information and news a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/understanding-ott-platforms-where-new-shows-and-movies-premi/">understanding ott platforms where new shows and movies premi</a> 
@@ -639,7 +648,10 @@
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-35/">web tech content 50 resources worth bookmarking 85 4 35</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-36/">web tech content 50 resources worth bookmarking 85 4 36</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-37/">web tech content 50 resources worth bookmarking 85 4 37</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-38/">web tech content 50 resources worth bookmarking 85 4 38</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-39/">web tech content 50 resources worth bookmarking 85 4 39</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-4/">web tech content 50 resources worth bookmarking 85 4 4</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-40/">web tech content 50 resources worth bookmarking 85 4 40</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-5/">web tech content 50 resources worth bookmarking 85 4 5</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-6/">web tech content 50 resources worth bookmarking 85 4 6</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-7/">web tech content 50 resources worth bookmarking 85 4 7</a> 
@@ -790,15 +802,3 @@
 <a href="https://cmdslot.xyz/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
 <a href="https://cmdslot.xyz/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
 <a href="https://cmdslot.xyz/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://cmdslot.xyz/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://cmdslot.xyz/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
-<a href="https://cmdslot.xyz/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
-<a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
-<a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
-<a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
-<a href="https://cmdslot.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cmdslot.xyz/spot-sars-and-banking-phishing-scams-2/">spot sars and banking phishing scams 2</a> 
-<a href="https://cmdslot.xyz/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
-<a href="https://cmdslot.xyz/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
-<a href="https://cmdslot.xyz/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://cmdslot.xyz/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
