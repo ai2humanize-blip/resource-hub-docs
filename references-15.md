@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://casacours.uk.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://casacours.uk.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://casacours.uk.com/get-a-digital-tin-id/">get a digital tin id</a> 
 <a href="https://casacours.uk.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
 <a href="https://casacours.uk.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://casacours.uk.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
@@ -582,6 +585,9 @@
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-32/">guides reviews how tos 50 resources worth bookmarking 83 2 3</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-33/">guides reviews how tos 50 resources worth bookmarking 83 2 3</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-34/">guides reviews how tos 50 resources worth bookmarking 83 2 3</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-35/">guides reviews how tos 50 resources worth bookmarking 83 2 3</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-36/">guides reviews how tos 50 resources worth bookmarking 83 2 3</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-37/">guides reviews how tos 50 resources worth bookmarking 83 2 3</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-4/">guides reviews how tos 50 resources worth bookmarking 83 2 4</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-5/">guides reviews how tos 50 resources worth bookmarking 83 2 5</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-6/">guides reviews how tos 50 resources worth bookmarking 83 2 6</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-and-reso-83-3/">mastering marketing seo growth essential strategies and reso</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-and-reso-83-8/">mastering marketing seo growth essential strategies and reso</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-onli-83-3/">mastering marketing seo growth essential strategies for onli</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3-2/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3-3/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3-4/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-essential-strategies-for-succ-83-3/">mastering marketing seo growth essential strategies for succ</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-for-authors-and-book-publishe-83-3/">mastering marketing seo growth for authors and book publishe</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-navigating-the-best-online-re-83-3-2/">mastering marketing seo growth navigating the best online re</a> 
