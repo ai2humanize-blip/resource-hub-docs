@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://crackstube7.wordpress.com/2026/09/02/independent-news-and-explainer-sites-worth-following-in-2026/">independent news and explainer sites worth following in 2026</a> 
+<a href="https://crackstube7.wordpress.com/2026/09/02/practical-tech-guides-and-digital-resources-worth-bookmarking/">practical tech guides and digital resources worth bookmarkin</a> 
+<a href="https://creative-bienenstitch-143c3f.netlify.app/what-to-know-about-understanding-digital-literacy.html">what to know about understanding digital literacy</a> 
+<a href="https://creative-dieffenbachia-31cde3.netlify.app/a-closer-look-at-the-basics-of-staying-safe-while-browsing.html">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://creativecasinoties.com/gindex.html">gindex</a> 
+<a href="https://creativecasinoties.com/picks.html">picks</a> 
+<a href="https://crediblenews24.com/a-beginner-s-guide-to-understanding-and-starting-with-crypto-86-5/">a beginner s guide to understanding and starting with crypto</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://crediblenews24.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
 <a href="https://crediblenews24.com/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
@@ -256,6 +268,9 @@
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-50/">marketing seo growth 50 resources worth bookmarking 86 5 50</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-51/">marketing seo growth 50 resources worth bookmarking 86 5 51</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-52/">marketing seo growth 50 resources worth bookmarking 86 5 52</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-53/">marketing seo growth 50 resources worth bookmarking 86 5 53</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-54/">marketing seo growth 50 resources worth bookmarking 86 5 54</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-55/">marketing seo growth 50 resources worth bookmarking 86 5 55</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-6/">marketing seo growth 50 resources worth bookmarking 86 5 6</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-7/">marketing seo growth 50 resources worth bookmarking 86 5 7</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-8/">marketing seo growth 50 resources worth bookmarking 86 5 8</a> 
@@ -787,18 +802,3 @@
 <a href="https://cup88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://cup88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://cup88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://cup88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://curated-digests-hub.lovable.app/">curated-digests-hub.lovable.app</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/">curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-build-real-digital-skills-with-online-courses.html">how to build real digital skills with online courses</a> 
-<a href="https://curated-independent-web-caa9fyhufbgrdedp.canadacentral-01.azurewebsites.net/how-to-write-for-fashion-blogs-guest-posting-guide.html">how to write for fashion blogs guest posting guide</a> 
-<a href="https://curated-resource-hub-na0i.bolt.host/">curated-resource-hub-na0i.bolt.host</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/curated-independent-resources">curated independent resources</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-asianpinay-3">resource asianpinay 3</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-baginda168-13">resource baginda168 13</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-beauty-tips-well-health-organic-8">resource beauty tips well health organic 8</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-chandlerweekly-com-4">resource chandlerweekly com 4</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-dailywatchreports-com-5">resource dailywatchreports com 5</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-getjobsnews-com-11">resource getjobsnews com 11</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-illicitlabel-com-underground-music-authority-14">resource illicitlabel com underground music authority 14</a> 
-<a href="https://curated-resource-hub.webflow.io/posts/resource-litigationlawyer-12">resource litigationlawyer 12</a> 
