@@ -135,6 +135,7 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-navigating-cryp-82-1/">essential digital tools online resources for navigating cryp</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-savvy-readers-a-82-1/">essential digital tools online resources for savvy readers a</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-savvy-readers-a-82-6/">essential digital tools online resources for savvy readers a</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-smarter-interne-82-1/">essential digital tools online resources for smarter interne</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-smarter-researc-82-1/">essential digital tools online resources for smarter researc</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-staying-informe-82-1/">essential digital tools online resources for staying informe</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-the-modern-worl-82-1/">essential digital tools online resources for the modern worl</a> 
@@ -380,6 +381,8 @@
 <a href="https://captainjackinterview.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-82-3/">mastering digital literacy guides reviews and how tos for th</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-3/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-4/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-guides-reviews-and-how-tos-a-comprehensive-guide-t-82-3/">mastering guides reviews and how tos a comprehensive guide t</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
 <a href="https://casacours.uk.com/arcenturf-co-resource-2-3/">arcenturf co resource 2 3</a> 
 <a href="https://casacours.uk.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://casacours.uk.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://casacours.uk.com/book-publishing-and-the-business-of-being-an-author-what-to/">book publishing and the business of being an author what to</a> 
-<a href="https://casacours.uk.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
