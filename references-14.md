@@ -127,6 +127,7 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-producti-82-1/">essential digital tools online resources for modern producti</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-professi-82-1-2/">essential digital tools online resources for modern professi</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-professi-82-1/">essential digital tools online resources for modern professi</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-readers-82-1/">essential digital tools online resources for modern readers </a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-traveler-82-1-2/">essential digital tools online resources for modern traveler</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-traveler-82-1/">essential digital tools online resources for modern traveler</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-modern-users-82-1-2/">essential digital tools online resources for modern users 82</a> 
@@ -136,6 +137,7 @@
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-savvy-readers-a-82-1/">essential digital tools online resources for savvy readers a</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-savvy-readers-a-82-6/">essential digital tools online resources for savvy readers a</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-smarter-interne-82-1/">essential digital tools online resources for smarter interne</a> 
+<a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-smarter-learnin-82-1/">essential digital tools online resources for smarter learnin</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-smarter-researc-82-1/">essential digital tools online resources for smarter researc</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-staying-informe-82-1/">essential digital tools online resources for staying informe</a> 
 <a href="https://captainjackinterview.com/essential-digital-tools-online-resources-for-the-modern-worl-82-1/">essential digital tools online resources for the modern worl</a> 
@@ -386,6 +388,7 @@
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-7/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-8/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-for-smarter-reading-82-1/">mastering digital tools online resources for smarter reading</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-what-makes-a-baby-name-feel-timeless/">a closer look at what makes a baby name feel timeless</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://casacours.uk.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
-<a href="https://casacours.uk.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
