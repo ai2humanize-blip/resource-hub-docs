@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion-2/">how to tell explainer journalism from opinion 2</a> 
+<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion-explained-simp-2/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
+<a href="https://cyberkannadig.it.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
+<a href="https://cyberkannadig.it.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
+<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
+<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-and-why-it-matters/">how to use the web to learn a new skill and why it matters</a> 
+<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://cyberkannadig.it.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
+<a href="https://cyberkannadig.it.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
+<a href="https://cyberkannadig.it.com/how-washington-s-policies-not-charts-are-shaping-the-crypto-26-3/">how washington s policies not charts are shaping the crypto </a> 
+<a href="https://cyberkannadig.it.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://cyberkannadig.it.com/le-turf-pour-d-butants-lire-et-suivre-les-courses-hippiques/">le turf pour d butants lire et suivre les courses hippiques</a> 
+<a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply-2/">making sense of complex topics online explained simply 2</a> 
 <a href="https://cyberkannadig.it.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
 <a href="https://cyberkannadig.it.com/making-sense-of-today-s-fast-paced-news-cycle-a-comprehensiv-26-3/">making sense of today s fast paced news cycle a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/making-sense-of-web-tech-content-a-practical-guide-to-online-26-3/">making sense of web tech content a practical guide to online</a> 
@@ -681,6 +696,9 @@
 <a href="https://cybinxo.com/digital-tools-online-resources-50-resources-worth-bookmarkin-87-6-53/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://cybinxo.com/digital-tools-online-resources-50-resources-worth-bookmarkin-87-6-54/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://cybinxo.com/digital-tools-online-resources-50-resources-worth-bookmarkin-87-6-55/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://cybinxo.com/digital-tools-online-resources-50-resources-worth-bookmarkin-87-6-56/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://cybinxo.com/digital-tools-online-resources-50-resources-worth-bookmarkin-87-6-57/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://cybinxo.com/digital-tools-online-resources-50-resources-worth-bookmarkin-87-6-58/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://cybinxo.com/digital-tools-online-resources-50-resources-worth-bookmarkin-87-6-6/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://cybinxo.com/digital-tools-online-resources-50-resources-worth-bookmarkin-87-6-7/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://cybinxo.com/digital-tools-online-resources-50-resources-worth-bookmarkin-87-6-8/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -784,21 +802,3 @@
 <a href="https://cybinxo.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
 <a href="https://cybinxo.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
 <a href="https://cybinxo.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://cybinxo.com/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
-<a href="https://cybinxo.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://cybinxo.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
-<a href="https://cybinxo.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://cybinxo.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
-<a href="https://cybinxo.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://cybinxo.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
-<a href="https://cybinxo.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://cybinxo.com/guides-reviews-how-tos-50-resources-worth-bookmarking-87-3-2/">guides reviews how tos 50 resources worth bookmarking 87 3 2</a> 
-<a href="https://cybinxo.com/guides-reviews-how-tos-50-resources-worth-bookmarking-87-3-3/">guides reviews how tos 50 resources worth bookmarking 87 3 3</a> 
-<a href="https://cybinxo.com/guides-reviews-how-tos-50-resources-worth-bookmarking-87-3/">guides reviews how tos 50 resources worth bookmarking 87 3</a> 
-<a href="https://cybinxo.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
-<a href="https://cybinxo.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
-<a href="https://cybinxo.com/how-ai-powered-apps-are-transforming-everyday-life-2/">how ai powered apps are transforming everyday life 2</a> 
-<a href="https://cybinxo.com/how-ai-powered-apps-are-transforming-everyday-life/">how ai powered apps are transforming everyday life</a> 
-<a href="https://cybinxo.com/how-ai-powered-apps-are-transforming-our-daily-digital-exper/">how ai powered apps are transforming our daily digital exper</a> 
-<a href="https://cybinxo.com/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
-<a href="https://cybinxo.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 

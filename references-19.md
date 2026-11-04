@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cplemaire.us.org/why-context-matters-when-reading-online/">why context matters when reading online</a> 
+<a href="https://cplemaire.us.org/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
+<a href="https://cplemaire.us.org/why-niche-blogs-still-matter-2/">why niche blogs still matter 2</a> 
+<a href="https://cplemaire.us.org/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://cplemaire.us.org/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://cplemaire.us.org/why-phone-speakers-sound-muffled-and-how-to-fix-it/">why phone speakers sound muffled and how to fix it</a> 
+<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://cplemaire.us.org/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://cplemaire.us.org/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
+<a href="https://crackstube7.wordpress.com/2026/09/02/explainer-journalism-making-sense-of-how-the-world-works/">explainer journalism making sense of how the world works</a> 
+<a href="https://crackstube7.wordpress.com/2026/09/02/independent-crypto-and-finance-news-to-follow-in-2026/">independent crypto and finance news to follow in 2026</a> 
 <a href="https://crackstube7.wordpress.com/2026/09/02/independent-news-and-explainer-sites-worth-following-in-2026/">independent news and explainer sites worth following in 2026</a> 
 <a href="https://crackstube7.wordpress.com/2026/09/02/practical-tech-guides-and-digital-resources-worth-bookmarking/">practical tech guides and digital resources worth bookmarkin</a> 
 <a href="https://creative-bienenstitch-143c3f.netlify.app/what-to-know-about-understanding-digital-literacy.html">what to know about understanding digital literacy</a> 
@@ -271,6 +283,9 @@
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-53/">marketing seo growth 50 resources worth bookmarking 86 5 53</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-54/">marketing seo growth 50 resources worth bookmarking 86 5 54</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-55/">marketing seo growth 50 resources worth bookmarking 86 5 55</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-56/">marketing seo growth 50 resources worth bookmarking 86 5 56</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-57/">marketing seo growth 50 resources worth bookmarking 86 5 57</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-58/">marketing seo growth 50 resources worth bookmarking 86 5 58</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-6/">marketing seo growth 50 resources worth bookmarking 86 5 6</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-7/">marketing seo growth 50 resources worth bookmarking 86 5 7</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-8/">marketing seo growth 50 resources worth bookmarking 86 5 8</a> 
@@ -787,18 +802,3 @@
 <a href="https://croyale88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://croyale88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://cup88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://cup88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://cup88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://cup88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://cup88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://cup88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://cup88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://cup88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://cup88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://cup88.xyz/hello-world/">hello world</a> 
-<a href="https://cup88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://cup88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://cup88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://cup88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://cup88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://cup88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
