@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cplemaire.us.org/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
+<a href="https://cplemaire.us.org/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
+<a href="https://cplemaire.us.org/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
+<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://cplemaire.us.org/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
+<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
+<a href="https://cplemaire.us.org/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
+<a href="https://cplemaire.us.org/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://cplemaire.us.org/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
+<a href="https://cplemaire.us.org/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
+<a href="https://cplemaire.us.org/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
+<a href="https://cplemaire.us.org/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
 <a href="https://cplemaire.us.org/licensing-and-player-protections-in-regulated-gambling-marke/">licensing and player protections in regulated gambling marke</a> 
 <a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
 <a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
@@ -152,9 +166,12 @@
 <a href="https://crediblenews24.com/business-finance-productivity-50-resources-worth-bookmarking-86-6-2/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-50-resources-worth-bookmarking-86-6-3/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-50-resources-worth-bookmarking-86-6-4/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://crediblenews24.com/business-finance-productivity-50-resources-worth-bookmarking-86-6-5/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-50-resources-worth-bookmarking-86-6/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-a-comprehensive-guide-to-succe-86-1/">business finance productivity a comprehensive guide to succe</a> 
+<a href="https://crediblenews24.com/business-finance-productivity-a-practical-crypto-guide-86-6/">business finance productivity a practical crypto guide 86 6</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-a-practical-decision-guide-86-6/">business finance productivity a practical decision guide 86 </a> 
+<a href="https://crediblenews24.com/business-finance-productivity-a-practical-roundup-86-6/">business finance productivity a practical roundup 86 6</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-lessons-from-essential-games-86-6/">business finance productivity lessons from essential games 8</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-smarter-travel-timing-guide-86-6/">business finance productivity smarter travel timing guide 86</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-what-to-know-and-how-to-succee-86-6/">business finance productivity what to know and how to succee</a> 
@@ -785,20 +802,3 @@
 <a href="https://croginalcats.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
 <a href="https://croginalcats.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
 <a href="https://croginalcats.xyz/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
-<a href="https://croginalcats.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
-<a href="https://croginalcats.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
-<a href="https://croginalcats.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
-<a href="https://croginalcats.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
-<a href="https://croginalcats.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://croginalcats.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://croginalcats.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
-<a href="https://croginalcats.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://croginalcats.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://croginalcats.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://croginalcats.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://croginalcats.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://croginalcats.xyz/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://croginalcats.xyz/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
-<a href="https://croginalcats.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
-<a href="https://croginalcats.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
-<a href="https://croginalcats.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 

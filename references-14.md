@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
+<a href="https://captainjackinterview.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://captainjackinterview.com/building-your-personal-web-tech-content-toolkit-a-curated-gu-82-2/">building your personal web tech content toolkit a curated gu</a> 
 <a href="https://captainjackinterview.com/building-your-web-tech-content-skills-a-comprehensive-guide-82-2/">building your web tech content skills a comprehensive guide </a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-10/">business finance productivity 50 resources worth bookmarking</a> 
@@ -767,11 +769,14 @@
 <a href="https://captainjackinterview.com/virginia-childhood-education-what-to-know-in-2026-82-3/">virginia childhood education what to know in 2026 82 3</a> 
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
+<a href="https://captainjackinterview.com/web-tech-content-19-resources-worth-bookmarking-82-2/">web tech content 19 resources worth bookmarking 82 2</a> 
+<a href="https://captainjackinterview.com/web-tech-content-50-resources-worth-bookmarking-82-2-2/">web tech content 50 resources worth bookmarking 82 2 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-50-resources-worth-bookmarking-82-2/">web tech content 50 resources worth bookmarking 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-for-everyday-users-82-2/">web tech content a comprehensive guide for everyday users 82</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-82-2/">web tech content a comprehensive guide to navigating the dig</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-practical-guide-to-smarter-research-82-2/">web tech content a practical guide to smarter research 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-smarter-guide-to-news-online-82-2/">web tech content a smarter guide to news online 82 2</a> 
+<a href="https://captainjackinterview.com/web-tech-content-a-smarter-guide-to-online-research-82-2/">web tech content a smarter guide to online research 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-smarter-guide-to-reading-online-82-2/">web tech content a smarter guide to reading online 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-navigating-the-digital-landscape-for-succes-82-2/">web tech content navigating the digital landscape for succes</a> 
 <a href="https://captainjackinterview.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
@@ -797,8 +802,3 @@
 <a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
 <a href="https://captainjackinterview.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://captainjackinterview.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 

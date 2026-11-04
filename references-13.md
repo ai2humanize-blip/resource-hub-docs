@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/polling-surveys-3c7e216a/">polling surveys 3c7e216a</a> 
+<a href="https://boostelearning.mataroa.blog/blog/polling-surveys-6012902a/">polling surveys 6012902a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/polling-surveys-ac028787/">polling surveys ac028787</a> 
 <a href="https://boostelearning.mataroa.blog/blog/polling-surveys/">polling surveys</a> 
 <a href="https://boostelearning.mataroa.blog/blog/pourquoi-un-annuaire-evalue-est-plus-utile-quune-simple-liste/">pourquoi un annuaire evalue est plus utile quune simple list</a> 
@@ -800,5 +802,3 @@
 <a href="https://captainjackinterview.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-i/">breaking down the latest news in depth analysis and expert i</a> 
 <a href="https://captainjackinterview.com/breaking-down-today-s-top-news-analysis-and-insights-you-nee/">breaking down today s top news analysis and insights you nee</a> 
 <a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
-<a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
-<a href="https://captainjackinterview.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
