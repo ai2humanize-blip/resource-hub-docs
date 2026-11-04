@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-future-cryptocurrency-bitcoin-and-blockchain-.html">navigating the future cryptocurrency bitcoin and blockchain</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-future-how-ai-and-apps-are-transforming-our-d.html">navigating the future how ai and apps are transforming our d</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-future-how-ai-and-machine-learning-are-transf.html">navigating the future how ai and machine learning are transf</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-future-how-bitcoin-blockchain-and-productivit-43-4.html">navigating the future how bitcoin blockchain and productivit</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-future-of-digital-marketing-seo-growth-strate-42-4.html">navigating the future of digital marketing seo growth strate</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/navigating-the-future-of-finance-understanding-bitcoin-block-43-4.html">navigating the future of finance understanding bitcoin block</a> 
@@ -237,6 +240,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/voozon.html">voozon</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-50-resources-worth-bookmarking-43-1.html">web tech content 50 resources worth bookmarking 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-reading-43-1.html">web tech content a practical guide to better online reading </a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-online-learning-43-1.html">web tech content a practical guide to online learning 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-are-reproducible-builds.html">what are reproducible builds</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-bitcoin-btc-how-it-works.html">what is bitcoin btc how it works</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-crypto-wallet-how-to-keep.html">what is crypto wallet how to keep</a> 
@@ -798,7 +802,3 @@
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-producti-77-6/">essential digital tools online resources for modern producti</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-2/">essential digital tools online resources for modern professi</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-3/">essential digital tools online resources for modern professi</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-4/">essential digital tools online resources for modern professi</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-5/">essential digital tools online resources for modern professi</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-6/">essential digital tools online resources for modern professi</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-professi-77-6-7/">essential digital tools online resources for modern professi</a> 

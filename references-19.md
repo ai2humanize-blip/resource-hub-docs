@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cplemaire.us.org/licensing-and-player-protections-in-regulated-gambling-marke/">licensing and player protections in regulated gambling marke</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://cplemaire.us.org/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
+<a href="https://cplemaire.us.org/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
+<a href="https://cplemaire.us.org/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
+<a href="https://cplemaire.us.org/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
+<a href="https://cplemaire.us.org/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
+<a href="https://cplemaire.us.org/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide-2/">recognizing credible experts online a quick guide 2</a> 
+<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
 <a href="https://cplemaire.us.org/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
 <a href="https://cplemaire.us.org/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
 <a href="https://cplemaire.us.org/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
@@ -135,9 +150,12 @@
 <a href="https://crediblenews24.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://crediblenews24.com/building-your-web-tech-content-knowledge-a-comprehensive-gui-86-8/">building your web tech content knowledge a comprehensive gui</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-50-resources-worth-bookmarking-86-6-2/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://crediblenews24.com/business-finance-productivity-50-resources-worth-bookmarking-86-6-3/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://crediblenews24.com/business-finance-productivity-50-resources-worth-bookmarking-86-6-4/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-50-resources-worth-bookmarking-86-6/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-a-comprehensive-guide-to-succe-86-1/">business finance productivity a comprehensive guide to succe</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-a-practical-decision-guide-86-6/">business finance productivity a practical decision guide 86 </a> 
+<a href="https://crediblenews24.com/business-finance-productivity-lessons-from-essential-games-86-6/">business finance productivity lessons from essential games 8</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-smarter-travel-timing-guide-86-6/">business finance productivity smarter travel timing guide 86</a> 
 <a href="https://crediblenews24.com/business-finance-productivity-what-to-know-and-how-to-succee-86-6/">business finance productivity what to know and how to succee</a> 
 <a href="https://crediblenews24.com/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
@@ -784,21 +802,3 @@
 <a href="https://croginalcats.xyz/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
 <a href="https://croginalcats.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
 <a href="https://croginalcats.xyz/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://croginalcats.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
-<a href="https://croginalcats.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://croginalcats.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://croginalcats.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://croginalcats.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://croginalcats.xyz/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
-<a href="https://croginalcats.xyz/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
-<a href="https://croginalcats.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
-<a href="https://croginalcats.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://croginalcats.xyz/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
-<a href="https://croginalcats.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
-<a href="https://croginalcats.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://croginalcats.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://croginalcats.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://croginalcats.xyz/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
-<a href="https://croginalcats.xyz/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://croginalcats.xyz/how-to-pick-a-middle-name-that-fits-a-practical-guide/">how to pick a middle name that fits a practical guide</a> 
-<a href="https://croginalcats.xyz/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 

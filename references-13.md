@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/polling-surveys-ac028787/">polling surveys ac028787</a> 
+<a href="https://boostelearning.mataroa.blog/blog/polling-surveys/">polling surveys</a> 
+<a href="https://boostelearning.mataroa.blog/blog/pourquoi-un-annuaire-evalue-est-plus-utile-quune-simple-liste/">pourquoi un annuaire evalue est plus utile quune simple list</a> 
+<a href="https://boostelearning.mataroa.blog/blog/pqrnews/">pqrnews</a> 
 <a href="https://boostelearning.mataroa.blog/blog/privacy-policy-5f624cba/">privacy policy 5f624cba</a> 
 <a href="https://boostelearning.mataroa.blog/blog/privacy-policy-93b9f518/">privacy policy 93b9f518</a> 
 <a href="https://boostelearning.mataroa.blog/blog/privacy-policy-b591f73f/">privacy policy b591f73f</a> 
@@ -798,7 +802,3 @@
 <a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
 <a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
 <a href="https://captainjackinterview.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://captainjackinterview.com/building-your-personal-web-tech-content-toolkit-a-curated-gu-82-2/">building your personal web tech content toolkit a curated gu</a> 
-<a href="https://captainjackinterview.com/building-your-web-tech-content-skills-a-comprehensive-guide-82-2/">building your web tech content skills a comprehensive guide </a> 
-<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-10/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-11/">business finance productivity 50 resources worth bookmarking</a> 

@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://captainjackinterview.com/building-your-personal-web-tech-content-toolkit-a-curated-gu-82-2/">building your personal web tech content toolkit a curated gu</a> 
+<a href="https://captainjackinterview.com/building-your-web-tech-content-skills-a-comprehensive-guide-82-2/">building your web tech content skills a comprehensive guide </a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-10/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-11/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-12/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-13/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-14/">business finance productivity 50 resources worth bookmarking</a> 
@@ -264,6 +268,7 @@
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-2/">guides reviews how tos 50 resources worth bookmarking 82 8 2</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-3/">guides reviews how tos 50 resources worth bookmarking 82 8 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8/">guides reviews how tos 50 resources worth bookmarking 82 8</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-for-better-online-decisions-82-3/">guides reviews how tos for better online decisions 82 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-for-smarter-online-reading-82-3/">guides reviews how tos for smarter online reading 82 3</a> 
 <a href="https://captainjackinterview.com/harnessing-the-power-of-apps-transforming-daily-life-in-the/">harnessing the power of apps transforming daily life in the</a> 
 <a href="https://captainjackinterview.com/how-ai-driven-apps-are-transforming-daily-life-and-work/">how ai driven apps are transforming daily life and work</a> 
@@ -765,6 +770,8 @@
 <a href="https://captainjackinterview.com/web-tech-content-50-resources-worth-bookmarking-82-2/">web tech content 50 resources worth bookmarking 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-for-everyday-users-82-2/">web tech content a comprehensive guide for everyday users 82</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-82-2/">web tech content a comprehensive guide to navigating the dig</a> 
+<a href="https://captainjackinterview.com/web-tech-content-a-practical-guide-to-smarter-research-82-2/">web tech content a practical guide to smarter research 82 2</a> 
+<a href="https://captainjackinterview.com/web-tech-content-a-smarter-guide-to-news-online-82-2/">web tech content a smarter guide to news online 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-smarter-guide-to-reading-online-82-2/">web tech content a smarter guide to reading online 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-navigating-the-digital-landscape-for-succes-82-2/">web tech content navigating the digital landscape for succes</a> 
 <a href="https://captainjackinterview.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
@@ -795,10 +802,3 @@
 <a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
 <a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://captainjackinterview.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://captainjackinterview.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
