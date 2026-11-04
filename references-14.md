@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-12/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-13/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-14/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-15/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-16/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://captainjackinterview.com/business-finance-productivity-50-resources-worth-bookmarking-82-10-17/">business finance productivity 50 resources worth bookmarking</a> 
@@ -759,8 +762,10 @@
 <a href="https://captainjackinterview.com/virginia-childhood-education-what-to-know-in-2026-82-3/">virginia childhood education what to know in 2026 82 3</a> 
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://captainjackinterview.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
+<a href="https://captainjackinterview.com/web-tech-content-50-resources-worth-bookmarking-82-2/">web tech content 50 resources worth bookmarking 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-for-everyday-users-82-2/">web tech content a comprehensive guide for everyday users 82</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-82-2/">web tech content a comprehensive guide to navigating the dig</a> 
+<a href="https://captainjackinterview.com/web-tech-content-a-smarter-guide-to-reading-online-82-2/">web tech content a smarter guide to reading online 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-navigating-the-digital-landscape-for-succes-82-2/">web tech content navigating the digital landscape for succes</a> 
 <a href="https://captainjackinterview.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
 <a href="https://captainjackinterview.com/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
@@ -797,8 +802,3 @@
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply-2/">why context matters when reading online explained simply 2</a> 
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://captainjackinterview.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://captainjackinterview.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guide/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://captainjackinterview.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://captainjackinterview.com/wifi-keeps-disconnecting/">wifi keeps disconnecting</a> 
