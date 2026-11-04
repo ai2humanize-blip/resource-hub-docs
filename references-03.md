@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://88jl1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://88jl1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://88jl1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://88jl1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
@@ -479,6 +480,7 @@
 <a href="https://agriculture-lawyer.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
 <a href="https://agriculture-lawyer.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://agriculture-lawyer.com/guest-post-sites-list/">guest post sites list</a> 
+<a href="https://agriculture-lawyer.com/guides-reviews-how-tos-1-resources-worth-bookmarking-75-5/">guides reviews how tos 1 resources worth bookmarking 75 5</a> 
 <a href="https://agriculture-lawyer.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://agriculture-lawyer.com/how-ai-is-revolutionizing-news-consumption-trends-tools-and/">how ai is revolutionizing news consumption trends tools and</a> 
 <a href="https://agriculture-lawyer.com/how-ai-powered-apps-are-revolutionizing-our-digital-lives/">how ai powered apps are revolutionizing our digital lives</a> 
@@ -800,5 +802,3 @@
 <a href="https://agriculture-lawyer.com/navigating-the-web-tech-content-landscape-for-success-75-4/">navigating the web tech content landscape for success 75 4</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-web-tech-content-landscape-from-cryptorubleco-75-4/">navigating the web tech content landscape from cryptorubleco</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-world-of-web-tech-and-content-a-comprehensive-75-4/">navigating the world of web tech and content a comprehensive</a> 
-<a href="https://agriculture-lawyer.com/navigating-today-s-news-landscape-strategies-for-clarity-tru-75-9/">navigating today s news landscape strategies for clarity tru</a> 
-<a href="https://agriculture-lawyer.com/navigating-web-tech-and-content-a-comprehensive-roundup-75-4/">navigating web tech and content a comprehensive roundup 75 4</a> 

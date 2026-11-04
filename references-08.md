@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://app.zentrack.net/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://app.zentrack.net/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://app.zentrack.net/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://app.zentrack.net/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
 <a href="https://app.zentrack.net/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://app.zentrack.net/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
 <a href="https://app.zentrack.net/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
@@ -63,6 +73,7 @@
 <a href="https://arcadefloristbedford.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
 <a href="https://arcadefloristbedford.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://arcadefloristbedford.com/building-your-personal-toolkit-essential-digital-tools-onlin-79-9/">building your personal toolkit essential digital tools onlin</a> 
+<a href="https://arcadefloristbedford.com/business-finance-productivity-1-resources-worth-bookmarking-79-8/">business finance productivity 1 resources worth bookmarking </a> 
 <a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-10/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-11/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://arcadefloristbedford.com/business-finance-productivity-50-resources-worth-bookmarking-79-8-12/">business finance productivity 50 resources worth bookmarking</a> 
@@ -791,14 +802,3 @@
 <a href="https://arcadefloristbedford.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
 <a href="https://arcadefloristbedford.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
 <a href="https://arcadefloristbedford.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://arcadefloristbedford.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
-<a href="https://arcadefloristbedford.com/understanding-crypto-media-a-beginner-s-guide-to-staying-inf-79-8/">understanding crypto media a beginner s guide to staying inf</a> 
-<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://arcadefloristbedford.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

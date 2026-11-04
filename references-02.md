@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://123angelnumber.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://123angelnumber.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-18/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://123angelnumber.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -801,4 +802,3 @@
 <a href="https://7sjili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://88jl1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://88jl1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://88jl1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
