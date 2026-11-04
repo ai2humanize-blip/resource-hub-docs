@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cbdpuffbars.com/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
+<a href="https://cbdpuffbars.com/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
+<a href="https://cbdpuffbars.com/the-basics-of-staying-safe-while-browsing-a-quick-guide/">the basics of staying safe while browsing a quick guide</a> 
+<a href="https://cbdpuffbars.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://cbdpuffbars.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://cbdpuffbars.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://cbdpuffbars.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cbdpuffbars.com/the-future-of-apps-how-ai-and-personalization-are-transformi/">the future of apps how ai and personalization are transformi</a> 
+<a href="https://cbdpuffbars.com/the-future-of-news-ai-algorithms-and-the-role-of-human-journ/">the future of news ai algorithms and the role of human journ</a> 
 <a href="https://cbdpuffbars.com/the-future-of-news-how-ai-and-technology-are-transforming-jo/">the future of news how ai and technology are transforming jo</a> 
 <a href="https://cbdpuffbars.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
 <a href="https://cbdpuffbars.com/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-84-5/">the practical guide to ai art prompt generators web tech con</a> 
@@ -725,7 +734,10 @@
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-56/">web tech content 50 resources worth bookmarking 85 4 56</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-57/">web tech content 50 resources worth bookmarking 85 4 57</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-58/">web tech content 50 resources worth bookmarking 85 4 58</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-59/">web tech content 50 resources worth bookmarking 85 4 59</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-6/">web tech content 50 resources worth bookmarking 85 4 6</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-60/">web tech content 50 resources worth bookmarking 85 4 60</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-61/">web tech content 50 resources worth bookmarking 85 4 61</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-7/">web tech content 50 resources worth bookmarking 85 4 7</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-8/">web tech content 50 resources worth bookmarking 85 4 8</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-9/">web tech content 50 resources worth bookmarking 85 4 9</a> 
@@ -790,15 +802,3 @@
 <a href="https://chic-treacle-53b6d3.netlify.app/getting-building-a-healthy-daily-reading-habit-right.html">getting building a healthy daily reading habit right</a> 
 <a href="https://chimerical-chebakia-19c428.netlify.app/a-closer-look-at-understanding-digital-literacy.html">a closer look at understanding digital literacy</a> 
 <a href="https://chipper-entremet-0ee919.netlify.app/getting-how-to-read-the-news-without-getting-overwhelmed-rig.html">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://classy-custard-27adf4.netlify.app/what-is-yield-farming-real-risks.html">what is yield farming real risks</a> 
-<a href="https://classy-empanada-6ccd15.netlify.app/how-to-read-the-news-without-getting-overwhelmed-explained-s.html">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://classy-pudding-7b19a6.netlify.app/carmannews.html">carmannews</a> 
-<a href="https://clever-fenglisu-21c457.netlify.app/how-to-tell-explainer-journalism-from-opinion-the-basics.html">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://clinquant-moonbeam-2b26e4.netlify.app/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon.html">navigating the crypto landscape bitcoin blockchain and beyon</a> 
-<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
-<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
-<a href="https://cmdslot.xyz/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://cmdslot.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://cmdslot.xyz/a-closer-look-at-what-makes-an-explainer-article-genuinely-useful/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://cmdslot.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://cmdslot.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 

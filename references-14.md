@@ -320,6 +320,7 @@
 <a href="https://captainjackinterview.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://captainjackinterview.com/making-sense-of-web-tech-content-a-comprehensive-guide-82-2/">making sense of web tech content a comprehensive guide 82 2</a> 
 <a href="https://captainjackinterview.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://captainjackinterview.com/master-digital-tools-online-resources-for-smarter-reading-re-82-1/">master digital tools online resources for smarter reading re</a> 
 <a href="https://captainjackinterview.com/master-marketing-seo-growth-your-guide-to-online-success-82-4/">master marketing seo growth your guide to online success 82 </a> 
 <a href="https://captainjackinterview.com/master-the-art-of-cheap-flight-booking-tips-tools-and-timing-82-4/">master the art of cheap flight booking tips tools and timing</a> 
 <a href="https://captainjackinterview.com/master-the-art-of-online-reading-guides-reviews-how-tos-82-3/">master the art of online reading guides reviews how tos 82 3</a> 
@@ -383,6 +384,8 @@
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-3/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-4/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-5/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-6/">mastering digital tools online resources a comprehensive gui</a> 
+<a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-7/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-for-smarter-reading-82-1/">mastering digital tools online resources for smarter reading</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://casacours.uk.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
 <a href="https://casacours.uk.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://casacours.uk.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://casacours.uk.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://casacours.uk.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 

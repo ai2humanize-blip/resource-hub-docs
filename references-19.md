@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cplemaire.us.org/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://cplemaire.us.org/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
+<a href="https://cplemaire.us.org/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
+<a href="https://cplemaire.us.org/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://cplemaire.us.org/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
 <a href="https://cplemaire.us.org/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://cplemaire.us.org/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
 <a href="https://cplemaire.us.org/why-niche-blogs-still-matter-2/">why niche blogs still matter 2</a> 
@@ -286,7 +298,10 @@
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-56/">marketing seo growth 50 resources worth bookmarking 86 5 56</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-57/">marketing seo growth 50 resources worth bookmarking 86 5 57</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-58/">marketing seo growth 50 resources worth bookmarking 86 5 58</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-59/">marketing seo growth 50 resources worth bookmarking 86 5 59</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-6/">marketing seo growth 50 resources worth bookmarking 86 5 6</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-60/">marketing seo growth 50 resources worth bookmarking 86 5 60</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-61/">marketing seo growth 50 resources worth bookmarking 86 5 61</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-7/">marketing seo growth 50 resources worth bookmarking 86 5 7</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-8/">marketing seo growth 50 resources worth bookmarking 86 5 8</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-9/">marketing seo growth 50 resources worth bookmarking 86 5 9</a> 
@@ -787,18 +802,3 @@
 <a href="https://croyale88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://croyale88.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://croyale88.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://croyale88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://croyale88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://croyale88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://croyale88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://croyale88.xyz/hello-world/">hello world</a> 
-<a href="https://croyale88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://croyale88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://croyale88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://croyale88.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://croyale88.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://croyale88.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://croyale88.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://cup88.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
