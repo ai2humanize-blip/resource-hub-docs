@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-17/">web tech content 50 resources worth bookmarking 85 4 17</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-18/">web tech content 50 resources worth bookmarking 85 4 18</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-19/">web tech content 50 resources worth bookmarking 85 4 19</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-2/">web tech content 50 resources worth bookmarking 85 4 2</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-20/">web tech content 50 resources worth bookmarking 85 4 20</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-21/">web tech content 50 resources worth bookmarking 85 4 21</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-22/">web tech content 50 resources worth bookmarking 85 4 22</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-23/">web tech content 50 resources worth bookmarking 85 4 23</a> 
+<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-24/">web tech content 50 resources worth bookmarking 85 4 24</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-25/">web tech content 50 resources worth bookmarking 85 4 25</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-26/">web tech content 50 resources worth bookmarking 85 4 26</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-27/">web tech content 50 resources worth bookmarking 85 4 27</a> 
@@ -793,12 +802,3 @@
 <a href="https://cplemaire.us.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://cplemaire.us.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
 <a href="https://cplemaire.us.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://cplemaire.us.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
-<a href="https://cplemaire.us.org/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
-<a href="https://cplemaire.us.org/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
-<a href="https://cplemaire.us.org/how-classic-card-games-are-played/">how classic card games are played</a> 
-<a href="https://cplemaire.us.org/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
-<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
-<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 

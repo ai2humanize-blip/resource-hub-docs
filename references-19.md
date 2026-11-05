@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cplemaire.us.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cplemaire.us.org/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
+<a href="https://cplemaire.us.org/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
+<a href="https://cplemaire.us.org/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://cplemaire.us.org/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide-2/">how to avoid misinformation and hype a practical guide 2</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-a-quick-guide/">how to avoid misinformation and hype a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
 <a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
 <a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
@@ -299,6 +308,9 @@
 <a href="https://crediblenews24.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://crediblenews24.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
 <a href="https://crediblenews24.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-better-coinnews-de-com-roundup-86-4/">guides reviews how tos a better coinnews de com roundup 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-smart-currencynews-roundup-86-4-2/">guides reviews how tos a smart currencynews roundup 86 4 2</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-smart-currencynews-roundup-86-4/">guides reviews how tos a smart currencynews roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-mining-and-insurance-86-4/">guides reviews how tos for crypto mining and insurance 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4/">guides reviews how tos for smarter crypto decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-pour-les-courses-hippiques-pmu-86-4/">guides reviews how tos pour les courses hippiques pmu 86 4</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/what-to-know-about-how-to-organize-the-information-you-find-online/">what to know about how to organize the information you find </a> 
 <a href="https://crediblenews24.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy-2/">what to know about how to tell if a website is trustworthy 2</a> 
 <a href="https://crediblenews24.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
-<a href="https://crediblenews24.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://crediblenews24.com/what-to-know-about-the-difference-between-skimming-and-deep/">what to know about the difference between skimming and deep</a> 
-<a href="https://crediblenews24.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
-<a href="https://crediblenews24.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://crediblenews24.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
-<a href="https://crediblenews24.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://crediblenews24.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://crediblenews24.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
-<a href="https://crediblenews24.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://crediblenews24.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website-2/">what to look for in a good news website 2</a> 
-<a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
