@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cplemaire.us.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cplemaire.us.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://cplemaire.us.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://cplemaire.us.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://cplemaire.us.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://cplemaire.us.org/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
 <a href="https://cplemaire.us.org/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
@@ -308,9 +317,12 @@
 <a href="https://crediblenews24.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://crediblenews24.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
 <a href="https://crediblenews24.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-better-coinnews-de-com-roundup-86-4-2/">guides reviews how tos a better coinnews de com roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-better-coinnews-de-com-roundup-86-4/">guides reviews how tos a better coinnews de com roundup 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-crypto-learning-guide-86-4/">guides reviews how tos a practical crypto learning guide 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smart-currencynews-roundup-86-4-2/">guides reviews how tos a smart currencynews roundup 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smart-currencynews-roundup-86-4/">guides reviews how tos a smart currencynews roundup 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-learning-roundup-86-4/">guides reviews how tos a smarter learning roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-mining-and-insurance-86-4/">guides reviews how tos for crypto mining and insurance 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4/">guides reviews how tos for smarter crypto decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-pour-les-courses-hippiques-pmu-86-4/">guides reviews how tos pour les courses hippiques pmu 86 4</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
 <a href="https://crediblenews24.com/vaeyc/">vaeyc</a> 
 <a href="https://crediblenews24.com/web-tech-content-your-ultimate-guide-to-digital-productivity-86-8/">web tech content your ultimate guide to digital productivity</a> 
-<a href="https://crediblenews24.com/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
-<a href="https://crediblenews24.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://crediblenews24.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://crediblenews24.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://crediblenews24.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://crediblenews24.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-evaluate-online-reviews-and-recommendations/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-organize-the-information-you-find-online/">what to know about how to organize the information you find </a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy-2/">what to know about how to tell if a website is trustworthy 2</a> 
-<a href="https://crediblenews24.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
