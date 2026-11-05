@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/pi-crypto-value-consolidates-at-key-support/">pi crypto value consolidates at key support</a> 
+<a href="https://boostelearning.mataroa.blog/blog/polling-surveys-1174f250/">polling surveys 1174f250</a> 
 <a href="https://boostelearning.mataroa.blog/blog/polling-surveys-3c7e216a/">polling surveys 3c7e216a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/polling-surveys-6012902a/">polling surveys 6012902a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/polling-surveys-ac028787/">polling surveys ac028787</a> 
@@ -800,5 +802,3 @@
 <a href="https://captainjackinterview.com/boosting-your-business-finance-and-productivity-a-comprehens-82-10/">boosting your business finance and productivity a comprehens</a> 
 <a href="https://captainjackinterview.com/boosting-your-business-finance-and-productivity-expert-tips-82-10/">boosting your business finance and productivity expert tips </a> 
 <a href="https://captainjackinterview.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-i/">breaking down the latest news in depth analysis and expert i</a> 
-<a href="https://captainjackinterview.com/breaking-down-today-s-top-news-analysis-and-insights-you-nee/">breaking down today s top news analysis and insights you nee</a> 
-<a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 

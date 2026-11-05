@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://be1.ru/stat/tsam.net">tsam.net</a> 
+<a href="https://be1.ru/stat/ttweakflight.cc">ttweakflight.cc</a> 
 <a href="https://be1.ru/stat/upsattaking.cc">upsattaking.cc</a> 
 <a href="https://be1.ru/stat/urducentral.com">urducentral.com</a> 
 <a href="https://be1.ru/stat/urusid.com">urusid.com</a> 
@@ -800,5 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/pi-crypto-value-consolidates-at-key-support-b663a4b5/">pi crypto value consolidates at key support b663a4b5</a> 
 <a href="https://boostelearning.mataroa.blog/blog/pi-crypto-value-consolidates-at-key-support-ec3fde45/">pi crypto value consolidates at key support ec3fde45</a> 
 <a href="https://boostelearning.mataroa.blog/blog/pi-crypto-value-consolidates-at-key-support-f901727a/">pi crypto value consolidates at key support f901727a</a> 
-<a href="https://boostelearning.mataroa.blog/blog/pi-crypto-value-consolidates-at-key-support/">pi crypto value consolidates at key support</a> 
-<a href="https://boostelearning.mataroa.blog/blog/polling-surveys-1174f250/">polling surveys 1174f250</a> 

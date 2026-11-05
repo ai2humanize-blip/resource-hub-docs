@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://captainjackinterview.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
 <a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
 <a href="https://captainjackinterview.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
@@ -687,6 +689,9 @@
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-8/">guides reviews how tos 50 resources worth bookmarking 83 2 8</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-9/">guides reviews how tos 50 resources worth bookmarking 83 2 9</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2/">guides reviews how tos 50 resources worth bookmarking 83 2</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-a-smarter-path-to-better-answers-83-2/">guides reviews how tos a smarter path to better answers 83 2</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-for-crypto-and-casino-decisions-83-2/">guides reviews how tos for crypto and casino decisions 83 2</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-for-tech-crypto-and-xrp-83-2/">guides reviews how tos for tech crypto and xrp 83 2</a> 
 <a href="https://cbd-stone.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
 <a href="https://cbd-stone.com/how-ai-driven-apps-are-transforming-our-daily-digital-lives/">how ai driven apps are transforming our daily digital lives</a> 
 <a href="https://cbd-stone.com/how-ai-powered-apps-are-transforming-daily-life-and-work/">how ai powered apps are transforming daily life and work</a> 
@@ -797,8 +802,3 @@
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4-9/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-4/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-9-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-9-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-guid-83-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-roun-83-4-2/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-comprehensive-roun-83-4/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://cbd-stone.com/mastering-business-finance-productivity-a-deep-dive-into-ind-83-4/">mastering business finance productivity a deep dive into ind</a> 

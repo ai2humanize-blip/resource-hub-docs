@@ -241,8 +241,10 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-50-resources-worth-bookmarking-43-1.html">web tech content 50 resources worth bookmarking 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-reading-43-1.html">web tech content a practical guide to better online reading </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-online-learning-43-1.html">web tech content a practical guide to online learning 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-reading-online-43-1.html">web tech content a practical guide to reading online 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-reading-smarter-43-1.html">web tech content a practical guide to reading smarter 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-information-43-1.html">web tech content a smarter guide to online information 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-research-43-1.html">web tech content a smarter guide to online research 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-are-reproducible-builds.html">what are reproducible builds</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-bitcoin-btc-how-it-works.html">what is bitcoin btc how it works</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-crypto-wallet-how-to-keep.html">what is crypto wallet how to keep</a> 
@@ -800,5 +802,3 @@
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-producti-77-6-2/">essential digital tools online resources for modern producti</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-producti-77-6-3/">essential digital tools online resources for modern producti</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-producti-77-6-4/">essential digital tools online resources for modern producti</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-producti-77-6-5/">essential digital tools online resources for modern producti</a> 
-<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-modern-producti-77-6/">essential digital tools online resources for modern producti</a> 

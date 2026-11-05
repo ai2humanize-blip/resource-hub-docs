@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://captainjackinterview.com/breaking-down-today-s-top-news-analysis-and-insights-you-nee/">breaking down today s top news analysis and insights you nee</a> 
+<a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
 <a href="https://captainjackinterview.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
 <a href="https://captainjackinterview.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://captainjackinterview.com/building-your-personal-web-tech-content-toolkit-a-curated-gu-82-2/">building your personal web tech content toolkit a curated gu</a> 
@@ -800,5 +802,3 @@
 <a href="https://captainjackinterview.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
-<a href="https://captainjackinterview.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://captainjackinterview.com/what-to-know-before-choosing-a-crypto-card-like-redotpay/">what to know before choosing a crypto card like redotpay</a> 
