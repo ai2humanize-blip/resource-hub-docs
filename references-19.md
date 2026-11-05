@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cplemaire.us.org/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
+<a href="https://cplemaire.us.org/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://cplemaire.us.org/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
+<a href="https://cplemaire.us.org/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
+<a href="https://cplemaire.us.org/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://cplemaire.us.org/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://cplemaire.us.org/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
 <a href="https://cplemaire.us.org/how-to-evaluate-online-reviews-and-recommendations-the-basic-2/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://cplemaire.us.org/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
@@ -290,6 +299,8 @@
 <a href="https://crediblenews24.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://crediblenews24.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
 <a href="https://crediblenews24.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-mining-and-insurance-86-4/">guides reviews how tos for crypto mining and insurance 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4/">guides reviews how tos for smarter crypto decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-pour-les-courses-hippiques-pmu-86-4/">guides reviews how tos pour les courses hippiques pmu 86 4</a> 
 <a href="https://crediblenews24.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
 <a href="https://crediblenews24.com/how-ai-and-machine-learning-are-transforming-mobile-app-deve/">how ai and machine learning are transforming mobile app deve</a> 
@@ -430,6 +441,7 @@
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5-9/">marketing seo growth 50 resources worth bookmarking 86 5 9</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-50-resources-worth-bookmarking-86-5/">marketing seo growth 50 resources worth bookmarking 86 5</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-a-practical-ideas-roundup-86-5/">marketing seo growth a practical ideas roundup 86 5</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-a-practical-roadmap-to-results-86-5/">marketing seo growth a practical roadmap to results 86 5</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-a-practical-roundup-for-better-results-86-5/">marketing seo growth a practical roundup for better results </a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-a-practical-roundup-for-modern-teams-86-5/">marketing seo growth a practical roundup for modern teams 86</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-a-roundup-of-crypto-and-casino-topics-86-5/">marketing seo growth a roundup of crypto and casino topics 8</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website-2/">what to look for in a good news website 2</a> 
 <a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://crediblenews24.com/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
-<a href="https://crediblenews24.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://crediblenews24.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
-<a href="https://crediblenews24.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://crediblenews24.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://crediblenews24.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://crediblenews24.com/why-explainer-journalism-web-and-content-matter-in-today-s-w-86-8/">why explainer journalism web and content matter in today s w</a> 
-<a href="https://crediblenews24.com/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-86-8/">why niche blogs still matter a deep dive into web tech conte</a> 
-<a href="https://crediblenews24.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
