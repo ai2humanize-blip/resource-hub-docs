@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/pi-crypto-value-consolidates-at-key-support-b663a4b5/">pi crypto value consolidates at key support b663a4b5</a> 
+<a href="https://boostelearning.mataroa.blog/blog/pi-crypto-value-consolidates-at-key-support-ec3fde45/">pi crypto value consolidates at key support ec3fde45</a> 
+<a href="https://boostelearning.mataroa.blog/blog/pi-crypto-value-consolidates-at-key-support-f901727a/">pi crypto value consolidates at key support f901727a</a> 
 <a href="https://boostelearning.mataroa.blog/blog/pi-crypto-value-consolidates-at-key-support/">pi crypto value consolidates at key support</a> 
 <a href="https://boostelearning.mataroa.blog/blog/polling-surveys-1174f250/">polling surveys 1174f250</a> 
 <a href="https://boostelearning.mataroa.blog/blog/polling-surveys-3c7e216a/">polling surveys 3c7e216a</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/boosting-business-finance-productivity-a-comprehensive-round-82-10/">boosting business finance productivity a comprehensive round</a> 
 <a href="https://captainjackinterview.com/boosting-business-finance-productivity-expert-strategies-for-82-10/">boosting business finance productivity expert strategies for</a> 
 <a href="https://captainjackinterview.com/boosting-business-finance-productivity-with-islamic-practice-82-10/">boosting business finance productivity with islamic practice</a> 
-<a href="https://captainjackinterview.com/boosting-your-business-finance-and-productivity-a-comprehens-82-10/">boosting your business finance and productivity a comprehens</a> 
-<a href="https://captainjackinterview.com/boosting-your-business-finance-and-productivity-expert-tips-82-10/">boosting your business finance and productivity expert tips </a> 
-<a href="https://captainjackinterview.com/breaking-down-the-latest-news-in-depth-analysis-and-expert-i/">breaking down the latest news in depth analysis and expert i</a> 

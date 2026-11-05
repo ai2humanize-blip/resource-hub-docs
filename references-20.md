@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-the-basics-2/">why primary sources matter and how to find them the basics 2</a> 
+<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
+<a href="https://crediblenews24.com/why-you-have-gnats-indoors-and-how-to-identify-the-source/">why you have gnats indoors and how to identify the source</a> 
+<a href="https://croginalcats.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://croginalcats.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://croginalcats.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://croginalcats.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://croginalcats.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://croginalcats.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
+<a href="https://croginalcats.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://croginalcats.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://croginalcats.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://croginalcats.xyz/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
+<a href="https://croginalcats.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
 <a href="https://croginalcats.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
 <a href="https://croginalcats.xyz/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
 <a href="https://croginalcats.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
@@ -787,18 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-ai-26-3/">exploring the intersection of web tech and content in the ai</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-bi-26-3/">exploring the intersection of web tech and content in the bi</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-26-3-2/">exploring the intersection of web tech and content in the cr</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-26-3-3/">exploring the intersection of web tech and content in the cr</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-26-3-4/">exploring the intersection of web tech and content in the cr</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-26-3-5/">exploring the intersection of web tech and content in the cr</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-cr-26-3/">exploring the intersection of web tech and content in the cr</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-di-26-3-2/">exploring the intersection of web tech and content in the di</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-di-26-3-3/">exploring the intersection of web tech and content in the di</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-di-26-3-4/">exploring the intersection of web tech and content in the di</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-the-di-26-3/">exploring the intersection of web tech and content in the di</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-today-26-3-2/">exploring the intersection of web tech and content in today </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-today-26-3-3/">exploring the intersection of web tech and content in today </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-today-26-3-4/">exploring the intersection of web tech and content in today </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-today-26-3-5/">exploring the intersection of web tech and content in today </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-today-26-3-6/">exploring the intersection of web tech and content in today </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-in-today-26-3/">exploring the intersection of web tech and content in today </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-intersection-of-web-tech-and-content-key-trend-26-3/">exploring the intersection of web tech and content key trend</a> 
