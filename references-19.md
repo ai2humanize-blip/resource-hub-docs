@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill-2/">a closer look at how to use the web to learn a new skill 2</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online-2/">a closer look at recognizing credible experts online 2</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
 <a href="https://cplemaire.us.org/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
 <a href="https://cplemaire.us.org/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://cplemaire.us.org/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
@@ -362,6 +371,8 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-bitcointalk-roundup-86-4/">guides reviews how tos a practical bitcointalk roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-crypto-learning-guide-86-4/">guides reviews how tos a practical crypto learning guide 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-crypto-research-guide-86-4/">guides reviews how tos a practical crypto research guide 86 </a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-crypto-resource-guide-86-4/">guides reviews how tos a practical crypto resource guide 86 </a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-resource-roundup-86-4-2/">guides reviews how tos a practical resource roundup 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-resource-roundup-86-4/">guides reviews how tos a practical resource roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smart-currencynews-roundup-86-4-2/">guides reviews how tos a smart currencynews roundup 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smart-currencynews-roundup-86-4/">guides reviews how tos a smart currencynews roundup 86 4</a> 
@@ -373,6 +384,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-gamestop-pi-and-crypto-86-4/">guides reviews how tos for gamestop pi and crypto 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4-2/">guides reviews how tos for smarter crypto decisions 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4/">guides reviews how tos for smarter crypto decisions 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-everyday-decisions-86-4/">guides reviews how tos for smarter everyday decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-pour-les-courses-hippiques-pmu-86-4/">guides reviews how tos pour les courses hippiques pmu 86 4</a> 
 <a href="https://crediblenews24.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
 <a href="https://crediblenews24.com/how-ai-and-machine-learning-are-transforming-mobile-app-deve/">how ai and machine learning are transforming mobile app deve</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/transforming-daily-life-the-impact-of-apps-and-technology-on/">transforming daily life the impact of apps and technology on</a> 
 <a href="https://crediblenews24.com/transforming-your-digital-life-guides-reviews-how-tos-for-ai-86-9/">transforming your digital life guides reviews how tos for ai</a> 
 <a href="https://crediblenews24.com/transforming-your-digital-life-top-apps-and-ai-innovations-f-86-8/">transforming your digital life top apps and ai innovations f</a> 
-<a href="https://crediblenews24.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
-<a href="https://crediblenews24.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://crediblenews24.com/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
-<a href="https://crediblenews24.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://crediblenews24.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-15/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
