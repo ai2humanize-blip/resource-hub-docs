@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdstent.com/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
+<a href="https://cbdstent.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://cbdstent.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://cbdstent.com/the-best-free-browser-games-to-play-instantly/">the best free browser games to play instantly</a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-and-why-it-matters/">the difference between skimming and deep reading online and </a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-explained-simply/">the difference between skimming and deep reading online expl</a> 
 <a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
 <a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-3/">the difference between skimming and deep reading online the </a> 
 <a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-4/">the difference between skimming and deep reading online the </a> 
@@ -794,11 +802,3 @@
 <a href="https://competitorscreenshots.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
 <a href="https://competitorscreenshots.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://competitorscreenshots.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
-<a href="https://competitorscreenshots.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
-<a href="https://competitorscreenshots.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
-<a href="https://competitorscreenshots.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
-<a href="https://competitorscreenshots.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
-<a href="https://competitorscreenshots.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://competitorscreenshots.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://competitorscreenshots.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://competitorscreenshots.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
