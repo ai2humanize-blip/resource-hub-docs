@@ -323,11 +323,13 @@
 <a href="https://cbd-stone.com/web-tech-content-a-practical-bitcointalk-roundup-83-1/">web tech content a practical bitcointalk roundup 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-currencynews-roundup-83-1-2/">web tech content a practical currencynews roundup 83 1 2</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-currencynews-roundup-83-1/">web tech content a practical currencynews roundup 83 1</a> 
+<a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-crypto-and-privacy-83-1/">web tech content a practical guide to crypto and privacy 83 </a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-online-resources-83-1/">web tech content a practical guide to online resources 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-roundup-for-digital-readers-83-1-2/">web tech content a practical roundup for digital readers 83 </a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-roundup-for-digital-readers-83-1/">web tech content a practical roundup for digital readers 83 </a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-roundup-for-digital-work-83-1/">web tech content a practical roundup for digital work 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-satsspin-de-com-roundup-83-1/">web tech content a practical satsspin de com roundup 83 1</a> 
+<a href="https://cbd-stone.com/web-tech-content-bitcoin-etfs-and-pi-network-83-1/">web tech content bitcoin etfs and pi network 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-blackrock-etf-xrp-and-pi-insights-83-1/">web tech content blackrock etf xrp and pi insights 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-carbon-crypto-insurance-and-trust-83-1/">web tech content carbon crypto insurance and trust 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-casinos-tsam-and-digital-guides-83-1/">web tech content casinos tsam and digital guides 83 1</a> 
@@ -341,6 +343,7 @@
 <a href="https://cbd-stone.com/web-tech-content-gamestop-pi-crypto-and-market-guides-83-1/">web tech content gamestop pi crypto and market guides 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-insurance-eco-and-hbar-roundup-83-1/">web tech content insurance eco and hbar roundup 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-navigating-the-digital-landscape-for-succes-83-6/">web tech content navigating the digital landscape for succes</a> 
+<a href="https://cbd-stone.com/web-tech-content-pi-xrp-and-crypto-market-insights-83-1/">web tech content pi xrp and crypto market insights 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-roundup-casinos-crypto-and-mining-83-1/">web tech content roundup casinos crypto and mining 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-roundup-crypto-climate-and-site-trust-83-1/">web tech content roundup crypto climate and site trust 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-roundup-crypto-gaming-and-insurance-83-1/">web tech content roundup crypto gaming and insurance 83 1</a> 
@@ -731,12 +734,15 @@
 <a href="https://cbdpuffbars.com/marketing-seo-growth-50-resources-worth-bookmarking-84-2/">marketing seo growth 50 resources worth bookmarking 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-bitcointalk-roundup-84-2/">marketing seo growth a practical bitcointalk roundup 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-blockchain-roundup-84-2/">marketing seo growth a practical blockchain roundup 84 2</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-content-playbook-84-2/">marketing seo growth a practical content playbook 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-crypto-content-roundup-84-2-2/">marketing seo growth a practical crypto content roundup 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-crypto-content-roundup-84-2-3/">marketing seo growth a practical crypto content roundup 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-crypto-content-roundup-84-2/">marketing seo growth a practical crypto content roundup 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-crypto-marketing-playbook-84-2/">marketing seo growth a practical crypto marketing playbook 8</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-crypto-resource-guide-84-2/">marketing seo growth a practical crypto resource guide 84 2</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-personal-finance-guide-84-2/">marketing seo growth a practical personal finance guide 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-resource-roundup-84-2/">marketing seo growth a practical resource roundup 84 2</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-roadmap-for-growth-teams-84-2/">marketing seo growth a practical roadmap for growth teams 84</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-roadmap-for-results-84-2/">marketing seo growth a practical roadmap for results 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-roadmap-for-teams-84-2-2/">marketing seo growth a practical roadmap for teams 84 2 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-roadmap-for-teams-84-2/">marketing seo growth a practical roadmap for teams 84 2</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-20/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-21/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-3/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-4/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-5/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-6/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-7/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-8/">mastering digital tools online resources a comprehensive gui</a> 

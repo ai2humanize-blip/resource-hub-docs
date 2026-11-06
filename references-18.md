@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-3/">the difference between skimming and deep reading online the </a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the-4/">the difference between skimming and deep reading online the </a> 
+<a href="https://cbdstent.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://cbdstent.com/the-future-of-apps-how-ai-and-machine-learning-are-transform/">the future of apps how ai and machine learning are transform</a> 
+<a href="https://cbdstent.com/the-future-of-digital-interaction-how-ai-driven-apps-are-tra/">the future of digital interaction how ai driven apps are tra</a> 
+<a href="https://cbdstent.com/the-future-of-news-consumption-navigating-the-evolving-media/">the future of news consumption navigating the evolving media</a> 
+<a href="https://cbdstent.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
+<a href="https://cbdstent.com/the-impact-of-ai-on-modern-news-reporting-current-trends-and/">the impact of ai on modern news reporting current trends and</a> 
 <a href="https://cbdstent.com/the-rise-of-ai-in-journalism-transforming-news-delivery-and/">the rise of ai in journalism transforming news delivery and</a> 
 <a href="https://cbdstent.com/the-rise-of-ai-in-newsrooms-opportunities-and-challenges-for/">the rise of ai in newsrooms opportunities and challenges for</a> 
 <a href="https://cbdstent.com/the-rise-of-crypto-cards-a-comprehensive-guide-to-web-tech-c-85-4/">the rise of crypto cards a comprehensive guide to web tech c</a> 
@@ -793,12 +802,3 @@
 <a href="https://competitorscreenshots.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
 <a href="https://competitorscreenshots.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://competitorscreenshots.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online-and-why-it-matters-2/">why context matters when reading online and why it matters 2</a> 
-<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
-<a href="https://competitorscreenshots.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://competitorscreenshots.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
-<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
-<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
