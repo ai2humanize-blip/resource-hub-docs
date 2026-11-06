@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdstent.com/the-rise-of-ai-in-journalism-transforming-news-delivery-and/">the rise of ai in journalism transforming news delivery and</a> 
+<a href="https://cbdstent.com/the-rise-of-ai-in-newsrooms-opportunities-and-challenges-for/">the rise of ai in newsrooms opportunities and challenges for</a> 
+<a href="https://cbdstent.com/the-rise-of-crypto-cards-a-comprehensive-guide-to-web-tech-c-85-4/">the rise of crypto cards a comprehensive guide to web tech c</a> 
+<a href="https://cbdstent.com/the-rise-of-sustainable-fashion-how-eco-friendly-choices-are/">the rise of sustainable fashion how eco friendly choices are</a> 
+<a href="https://cbdstent.com/the-role-of-ai-in-modern-news-reporting-current-trends-and-f/">the role of ai in modern news reporting current trends and f</a> 
+<a href="https://cbdstent.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-every-o/">the ultimate guide to choosing the perfect watch for every o</a> 
+<a href="https://cbdstent.com/the-value-of-slow-careful-reading-2/">the value of slow careful reading 2</a> 
+<a href="https://cbdstent.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
+<a href="https://cbdstent.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://cbdstent.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
 <a href="https://cbdstent.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
 <a href="https://cbdstent.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
@@ -793,12 +802,3 @@
 <a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m-2/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://competitorscreenshots.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://competitorscreenshots.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
-<a href="https://competitorscreenshots.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
-<a href="https://competitorscreenshots.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
-<a href="https://contact--53b86390917111f180301607ee4eb77e.web.val.run">contact--53b86390917111f180301607ee4eb77e.web.val.run</a> 
-<a href="https://contact--aaf73658923011f1877b1607ee4eb77e.web.val.run">contact--aaf73658923011f1877b1607ee4eb77e.web.val.run</a> 
-<a href="https://contact--cd64b29e93c311f18c2e1607ee4eb77e.web.val.run">contact--cd64b29e93c311f18c2e1607ee4eb77e.web.val.run</a> 
-<a href="https://contact--da593ad2922511f1a26f1607ee4eb77e.web.val.run">contact--da593ad2922511f1a26f1607ee4eb77e.web.val.run</a> 
-<a href="https://convergence-london.com/gindex.html">gindex</a> 
-<a href="https://convergence-london.com/picks.html">picks</a> 
