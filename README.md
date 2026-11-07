@@ -147,6 +147,9 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://boostelearning.com/">boostelearning.com</a> 
 <a href="https://areyoufashion.com/">areyoufashion.com</a> 
 <a href="https://5blogsternation.com/">5blogsternation.com</a> 
+<a href="https://kriptometre.com/">kriptometre.com</a> 
+<a href="https://factsreadercom.org/">factsreadercom.org</a> 
+<a href="https://behindthefamous.com/">behindthefamous.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -228,7 +231,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 77](references-77.md)
 - [Reference set 78](references-78.md)
 
-_61,656 curated references across 78 sets._
+_62,277 curated references across 78 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)

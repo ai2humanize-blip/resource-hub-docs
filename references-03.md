@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://7sjili1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://7sjili1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://7sjili1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://7sjili1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://7sjili1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://7sjili1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://7sjili1.xyz/hello-world/">hello world</a> 
+<a href="https://7sjili1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://7sjili1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://7sjili1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://7sjili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://7sjili1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://7sjili1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://7sjili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://88jl1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://88jl1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
@@ -65,6 +78,7 @@
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://agenciainmobiliaria.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://agenciainmobiliaria.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://agenciainmobiliaria.xyz/a-practical-guide-to-following-new-movie-and-series-releases/">a practical guide to following new movie and series releases</a> 
@@ -73,6 +87,7 @@
 <a href="https://agenciainmobiliaria.xyz/a-readers-guide-to-advertising-and-editorial-standards/">a readers guide to advertising and editorial standards</a> 
 <a href="https://agenciainmobiliaria.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://agenciainmobiliaria.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://agenciainmobiliaria.xyz/a-simple-framework-for-researching-any-topic-online-a-quick-2/">a simple framework for researching any topic online a quick </a> 
 <a href="https://agenciainmobiliaria.xyz/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
 <a href="https://agenciainmobiliaria.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
 <a href="https://agenciainmobiliaria.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
@@ -135,6 +150,7 @@
 <a href="https://agenciainmobiliaria.xyz/stubble-burning-and-winter-smog-in-north-india-why-air-quali/">stubble burning and winter smog in north india why air quali</a> 
 <a href="https://agenciainmobiliaria.xyz/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
 <a href="https://agenciainmobiliaria.xyz/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://agenciainmobiliaria.xyz/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
 <a href="https://agenciainmobiliaria.xyz/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
 <a href="https://agenciainmobiliaria.xyz/tlt-ng-resource-1/">tlt ng resource 1</a> 
@@ -177,6 +193,7 @@
 <a href="https://agenciainmobiliaria.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
 <a href="https://agenciainmobiliaria.xyz/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://agenciainmobiliaria.xyz/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
+<a href="https://agenciainmobiliaria.xyz/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
 <a href="https://agenciainmobiliaria.xyz/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
 <a href="https://agenciainmobiliaria.xyz/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://agenciainmobiliaria.xyz/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
@@ -503,6 +520,7 @@
 <a href="https://agriculture-lawyer.com/how-to-compare-sources-on-the-same-story-a-quick-guide-2/">how to compare sources on the same story a quick guide 2</a> 
 <a href="https://agriculture-lawyer.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://agriculture-lawyer.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://agriculture-lawyer.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
 <a href="https://agriculture-lawyer.com/how-to-compare-travel-esim-providers-before-you-buy/">how to compare travel esim providers before you buy</a> 
 <a href="https://agriculture-lawyer.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://agriculture-lawyer.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
@@ -520,6 +538,7 @@
 <a href="https://agriculture-lawyer.com/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
 <a href="https://agriculture-lawyer.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
 <a href="https://agriculture-lawyer.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://agriculture-lawyer.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
 <a href="https://agriculture-lawyer.com/how-to-keep-an-older-laptop-running-smoothly-for-longer/">how to keep an older laptop running smoothly for longer</a> 
 <a href="https://agriculture-lawyer.com/how-to-leverage-personal-finance-strategies-for-business-gro/">how to leverage personal finance strategies for business gro</a> 
 <a href="https://agriculture-lawyer.com/how-to-leverage-technology-and-apps-for-enhanced-productivit/">how to leverage technology and apps for enhanced productivit</a> 
@@ -783,22 +802,3 @@
 <a href="https://agriculture-lawyer.com/navigating-the-intersection-of-web-tech-and-content-in-the-m-75-4/">navigating the intersection of web tech and content in the m</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-intersection-of-web-tech-and-content-in-today-75-4/">navigating the intersection of web tech and content in today</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-intersection-of-web-tech-and-content-key-insi-75-4/">navigating the intersection of web tech and content key insi</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-legal-landscape-how-to-stay-informed-and-make/">navigating the legal landscape how to stay informed and make</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-modern-news-landscape-business-finance-and-pr-75-7/">navigating the modern news landscape business finance and pr</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-news-landscape-in-2023-guides-reviews-and-how-75-5/">navigating the news landscape in 2023 guides reviews and how</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-shifting-landscape-of-news-consumption-a-comp-75-6/">navigating the shifting landscape of news consumption a comp</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-shifting-tides-of-modern-journalism-news-anal/">navigating the shifting tides of modern journalism news anal</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-a-comprehensive-guide-to-guides-reviews-a-75-5/">navigating the web a comprehensive guide to guides reviews a</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-a-comprehensive-guide-to-guides-reviews-h-75-5/">navigating the web a comprehensive guide to guides reviews h</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-a-comprehensive-guide-to-web-tech-content-75-4/">navigating the web a comprehensive guide to web tech content</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-a-curated-guide-to-essential-online-resou-75-5/">navigating the web a curated guide to essential online resou</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-a-curated-guide-to-guides-reviews-and-how-75-5/">navigating the web a curated guide to guides reviews and how</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-a-curated-guide-to-useful-online-resource-75-5/">navigating the web a curated guide to useful online resource</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-guides-reviews-and-how-tos-for-every-need-75-5/">navigating the web guides reviews and how tos for every need</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-guides-reviews-and-how-tos-for-every-read-75-5-2/">navigating the web guides reviews and how tos for every read</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-guides-reviews-and-how-tos-for-every-read-75-5/">navigating the web guides reviews and how tos for every read</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-guides-reviews-and-how-tos-for-every-user-75-5-2/">navigating the web guides reviews and how tos for every user</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-guides-reviews-and-how-tos-for-every-user-75-5/">navigating the web guides reviews and how tos for every user</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-mastering-tech-content-and-information-in-75-4/">navigating the web mastering tech content and information in</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-tech-and-content-landscape-a-comprehensiv-75-4/">navigating the web tech and content landscape a comprehensiv</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-web-tech-and-content-landscape-in-india-roles-75-4/">navigating the web tech and content landscape in india roles</a> 
