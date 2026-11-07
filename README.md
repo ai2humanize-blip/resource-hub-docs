@@ -146,6 +146,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://ivanaturf.cc/">ivanaturf.cc</a> 
 <a href="https://boostelearning.com/">boostelearning.com</a> 
 <a href="https://areyoufashion.com/">areyoufashion.com</a> 
+<a href="https://5blogsternation.com/">5blogsternation.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -225,8 +226,9 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 75](references-75.md)
 - [Reference set 76](references-76.md)
 - [Reference set 77](references-77.md)
+- [Reference set 78](references-78.md)
 
-_61,493 curated references across 77 sets._
+_61,656 curated references across 78 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)
