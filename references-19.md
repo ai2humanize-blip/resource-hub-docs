@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://competitorscreenshots.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://competitorscreenshots.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
+<a href="https://competitorscreenshots.com/oxpoll-cc-resource-1-2/">oxpoll cc resource 1 2</a> 
+<a href="https://competitorscreenshots.com/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
+<a href="https://competitorscreenshots.com/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
+<a href="https://competitorscreenshots.com/proof-of-work-vs-proof-of-stake-explained-simply-2/">proof of work vs proof of stake explained simply 2</a> 
+<a href="https://competitorscreenshots.com/proof-of-work-vs-proof-of-stake-explained-simply/">proof of work vs proof of stake explained simply</a> 
 <a href="https://competitorscreenshots.com/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
 <a href="https://competitorscreenshots.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
 <a href="https://competitorscreenshots.com/rep-res-pour-s-informer-sereinement-sur-les-courses/">rep res pour s informer sereinement sur les courses</a> 
@@ -490,6 +497,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-crypto-resource-roundup-86-4/">guides reviews how tos a smarter crypto resource roundup 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-learning-roundup-86-4/">guides reviews how tos a smarter learning roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-reader-s-roundup-86-4/">guides reviews how tos a smarter reader s roundup 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-betting-crypto-art-and-retirement-86-4/">guides reviews how tos betting crypto art and retirement 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-casinos-crypto-and-mining-86-4/">guides reviews how tos casinos crypto and mining 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-crypto-and-etf-insights-86-4/">guides reviews how tos crypto and etf insights 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-crypto-news-policy-and-trust-86-4/">guides reviews how tos crypto news policy and trust 86 4</a> 
@@ -500,6 +508,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-prices-etfs-and-pi-86-4/">guides reviews how tos for crypto prices etfs and pi 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-xrp-and-casinos-86-4/">guides reviews how tos for crypto xrp and casinos 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-gamestop-pi-and-crypto-86-4/">guides reviews how tos for gamestop pi and crypto 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-for-poker-slots-and-linux-users-86-4/">guides reviews how tos for poker slots and linux users 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-analysis-86-4/">guides reviews how tos for smarter crypto analysis 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4-2/">guides reviews how tos for smarter crypto decisions 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4-3/">guides reviews how tos for smarter crypto decisions 86 4 3</a> 
@@ -793,12 +802,3 @@
 <a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-86-5-5/">mastering marketing seo growth strategies for success 86 5 5</a> 
 <a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-86-5-6/">mastering marketing seo growth strategies for success 86 5 6</a> 
 <a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-86-5-7/">mastering marketing seo growth strategies for success 86 5 7</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-86-5-8/">mastering marketing seo growth strategies for success 86 5 8</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-86-5-9/">mastering marketing seo growth strategies for success 86 5 9</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-86-5/">mastering marketing seo growth strategies for success 86 5</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-in-div-86-5/">mastering marketing seo growth strategies for success in div</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-strategies-for-success-in-the-86-5/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-the-latest-strategies-for-suc-86-10/">mastering marketing seo growth the latest strategies for suc</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-your-guide-to-building-a-succ-86-10/">mastering marketing seo growth your guide to building a succ</a> 
-<a href="https://crediblenews24.com/mastering-marketing-seo-growth-your-ultimate-guide-86-5/">mastering marketing seo growth your ultimate guide 86 5</a> 
-<a href="https://crediblenews24.com/mastering-modern-fashion-navigating-2023-s-style-and-lifesty/">mastering modern fashion navigating 2023 s style and lifesty</a> 
