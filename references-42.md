@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-43.md) · [‹ prev](references-41.md)
 
+<a href="https://illustrious-cannoli-a3f143.netlify.app/bitcoincasinosnews.html">bitcoincasinosnews</a> 
+<a href="https://illustrious-sable-9e27c2.netlify.app/why-primary-sources-matter-and-how-to-find-them-a-practical-.html">why primary sources matter and how to find them a practical</a> 
+<a href="https://imaginative-cuchufli-3ae12e.netlify.app/how-manuscript-revision-works.html">how manuscript revision works</a> 
+<a href="https://imaginative-mandazi-6652b3.netlify.app/aavotcom.html">aavotcom</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides-2/">a closer look at how to get the most out of online guides 2</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-making-sense-of-complex-topics-online-3/">a closer look at making sense of complex topics online 3</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://influencersgonewild.eu.com/a-closer-look-at-the-value-of-slow-careful-reading-2/">a closer look at the value of slow careful reading 2</a> 
 <a href="https://influencersgonewild.eu.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://influencersgonewild.eu.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://influencersgonewild.eu.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
@@ -784,21 +802,3 @@
 <a href="https://ireplicadealers.com/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
 <a href="https://ireplicadealers.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
 <a href="https://ireplicadealers.com/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
-<a href="https://ireplicadealers.com/baby-name-meanings-guide/">baby name meanings guide</a> 
-<a href="https://ireplicadealers.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://ireplicadealers.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://ireplicadealers.com/boost-your-business-success-with-integrated-personal-finance/">boost your business success with integrated personal finance</a> 
-<a href="https://ireplicadealers.com/breaking-down-the-latest-in-news-explanations-and-expert-ana/">breaking down the latest in news explanations and expert ana</a> 
-<a href="https://ireplicadealers.com/breaking-down-today-s-top-news-insights-and-analysis-you-can/">breaking down today s top news insights and analysis you can</a> 
-<a href="https://ireplicadealers.com/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://ireplicadealers.com/building-a-healthy-daily-reading-habit-a-quick-guide-2/">building a healthy daily reading habit a quick guide 2</a> 
-<a href="https://ireplicadealers.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
-<a href="https://ireplicadealers.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://ireplicadealers.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://ireplicadealers.com/business-finance-productivity-a-comprehensive-guide-to-succe-103-4/">business finance productivity a comprehensive guide to succe</a> 
-<a href="https://ireplicadealers.com/business-finance-productivity-key-strategies-for-success-in-103-9/">business finance productivity key strategies for success in </a> 
-<a href="https://ireplicadealers.com/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://ireplicadealers.com/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://ireplicadealers.com/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
-<a href="https://ireplicadealers.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-103-7/">comprehensive guides in depth reviews and practical how tos </a> 
-<a href="https://ireplicadealers.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-103-7/">comprehensive guides reviews and how tos for every interest </a> 

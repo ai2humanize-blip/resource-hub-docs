@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://ezoterizm.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://ezoterizm.com/navigating-online-casino-news-safety-trends-and-responsible/">navigating online casino news safety trends and responsible</a> 
+<a href="https://ezoterizm.com/navigating-online-casino-news-staying-safe-and-playing-respo/">navigating online casino news staying safe and playing respo</a> 
+<a href="https://ezoterizm.com/navigating-the-complex-world-of-current-news-insights-and-an/">navigating the complex world of current news insights and an</a> 
+<a href="https://ezoterizm.com/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon/">navigating the crypto landscape bitcoin blockchain and beyon</a> 
+<a href="https://ezoterizm.com/navigating-the-digital-landscape-web-tech-content-insights-93-1/">navigating the digital landscape web tech content insights 9</a> 
 <a href="https://ezoterizm.com/navigating-the-digital-world-guides-reviews-how-tos-for-savv-93-2/">navigating the digital world guides reviews how tos for savv</a> 
 <a href="https://ezoterizm.com/navigating-the-digital-world-guides-reviews-how-tos-for-smar-93-2/">navigating the digital world guides reviews how tos for smar</a> 
 <a href="https://ezoterizm.com/navigating-the-digital-world-mastering-marketing-seo-growth-93-3/">navigating the digital world mastering marketing seo growth </a> 
@@ -796,9 +802,3 @@
 <a href="https://fabulouspoetry.it.com/getting-how-to-tell-explainer-journalism-from-opinion-right-2/">getting how to tell explainer journalism from opinion right </a> 
 <a href="https://fabulouspoetry.it.com/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
 <a href="https://fabulouspoetry.it.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://fabulouspoetry.it.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
-<a href="https://fabulouspoetry.it.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
-<a href="https://fabulouspoetry.it.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
-<a href="https://fabulouspoetry.it.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
-<a href="https://fabulouspoetry.it.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://fabulouspoetry.it.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 

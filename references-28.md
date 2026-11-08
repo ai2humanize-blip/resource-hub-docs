@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://emiamedical.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://emiamedical.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://emiamedical.com/the-difference-between-skimming-and-deep-reading-online-and/">the difference between skimming and deep reading online and</a> 
+<a href="https://emiamedical.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://emiamedical.com/the-hindu-lunar-calendar-months-paksha-and-major-festivals/">the hindu lunar calendar months paksha and major festivals</a> 
+<a href="https://emiamedical.com/the-impact-of-ai-on-modern-journalism-opportunities-and-chal/">the impact of ai on modern journalism opportunities and chal</a> 
 <a href="https://emiamedical.com/the-lora-and-lato-pairing/">the lora and lato pairing</a> 
 <a href="https://emiamedical.com/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-92-2/">the practical guide to ai art prompt generators web tech con</a> 
 <a href="https://emiamedical.com/the-rise-of-ai-powered-apps-transforming-daily-life-and-work/">the rise of ai powered apps transforming daily life and work</a> 
@@ -796,9 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ac7eb0c/reconnaitre-une-dependance-au-jeu.html">reconnaitre une dependance au jeu</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ac8b66c/the-case-for-boring-software.html">the case for boring software</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@aca1bc6/rajya-sabha-vs-lok-sabha-how-india-two.html">rajya sabha vs lok sabha how india two</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ad800ba/why-is-crypto-down-today-key-reasons.html">why is crypto down today key reasons</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ad9946d/tokenspin.html">tokenspin</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ade9c9a/eternal-slots-casino-review-top-online-slots-casino.html">eternal slots casino review top online slots casino</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ae253be/how-to-structure-kol-contract-that-protects-both.html">how to structure kol contract that protects both</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ae93556/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters.html">how to find balanced coverage of a topic and why it matters</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@aedd790/bitcointalk.html">bitcointalk</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-09.md) · [‹ prev](references-07.md)
 
+<a href="https://app.zentrack.net/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
+<a href="https://app.zentrack.net/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
+<a href="https://app.zentrack.net/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
 <a href="https://app.zentrack.net/tlt-ng-resource-1/">tlt ng resource 1</a> 
 <a href="https://app.zentrack.net/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
 <a href="https://app.zentrack.net/top-digital-tools-online-resources-for-productivity-and-grow-25-3-2/">top digital tools online resources for productivity and grow</a> 
@@ -799,6 +802,3 @@
 <a href="https://arcadefloristbedford.com/navigating-the-ever-evolving-news-landscape-a-comprehensive-79-2/">navigating the ever evolving news landscape a comprehensive </a> 
 <a href="https://arcadefloristbedford.com/navigating-the-evolving-landscape-of-news-consumption-in-202-79-10/">navigating the evolving landscape of news consumption in 202</a> 
 <a href="https://arcadefloristbedford.com/navigating-the-future-bitcoin-blockchain-and-the-latest-cryp/">navigating the future bitcoin blockchain and the latest cryp</a> 
-<a href="https://arcadefloristbedford.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
-<a href="https://arcadefloristbedford.com/navigating-the-future-how-bitcoin-and-blockchain-are-transfo-79-2/">navigating the future how bitcoin and blockchain are transfo</a> 
-<a href="https://arcadefloristbedford.com/navigating-the-future-of-digital-currency-key-trends-and-ins/">navigating the future of digital currency key trends and ins</a> 

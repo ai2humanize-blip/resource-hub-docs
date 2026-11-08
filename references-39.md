@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://grouperfishingsecrets.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://grouperfishingsecrets.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://grouperfishingsecrets.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://grouperfishingsecrets.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://grouperfishingsecrets.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://grouperfishingsecrets.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
+<a href="https://grouperfishingsecrets.com/a-simple-framework-for-researching-any-topic-online-a-quick-guide/">a simple framework for researching any topic online a quick </a> 
+<a href="https://grouperfishingsecrets.com/air-quality-in-pune-what-affects-the-air-you-breathe/">air quality in pune what affects the air you breathe</a> 
+<a href="https://grouperfishingsecrets.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://grouperfishingsecrets.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
+<a href="https://grouperfishingsecrets.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://grouperfishingsecrets.com/breaking-down-the-latest-news-expert-analysis-and-insights/">breaking down the latest news expert analysis and insights</a> 
+<a href="https://grouperfishingsecrets.com/breaking-down-the-latest-news-trends-analysis-and-insights-f/">breaking down the latest news trends analysis and insights f</a> 
+<a href="https://grouperfishingsecrets.com/building-a-healthy-daily-reading-habit-a-practical-guide/">building a healthy daily reading habit a practical guide</a> 
+<a href="https://grouperfishingsecrets.com/building-a-healthy-daily-reading-habit-and-why-it-matters-2/">building a healthy daily reading habit and why it matters 2</a> 
+<a href="https://grouperfishingsecrets.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
+<a href="https://grouperfishingsecrets.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://grouperfishingsecrets.com/business-finance-productivity-and-more-a-comprehensive-round-98-9/">business finance productivity and more a comprehensive round</a> 
 <a href="https://grouperfishingsecrets.com/business-finance-productivity-essential-independent-websites-98-9/">business finance productivity essential independent websites</a> 
 <a href="https://grouperfishingsecrets.com/business-finance-productivity-key-strategies-for-success-in-98-4/">business finance productivity key strategies for success in </a> 
 <a href="https://grouperfishingsecrets.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
@@ -784,21 +802,3 @@
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-17/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-18/">mastering business finance productivity a comprehensive guid</a> 
 <a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-19/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-20/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-21/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-22/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-23/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-24/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-25/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-26/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-27/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-4/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-5/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-6/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-7/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-8/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-9/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-roun-99-3/">mastering business finance productivity a comprehensive roun</a> 
