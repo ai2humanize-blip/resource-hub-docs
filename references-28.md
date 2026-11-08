@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://emiamedical.com/the-lora-and-lato-pairing/">the lora and lato pairing</a> 
+<a href="https://emiamedical.com/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-92-2/">the practical guide to ai art prompt generators web tech con</a> 
+<a href="https://emiamedical.com/the-rise-of-ai-powered-apps-transforming-daily-life-and-work/">the rise of ai powered apps transforming daily life and work</a> 
+<a href="https://emiamedical.com/the-rise-of-independent-music-culture-and-its-impact-on-the/">the rise of independent music culture and its impact on the</a> 
+<a href="https://emiamedical.com/the-rise-of-sustainable-fashion-how-eco-friendly-trends-are/">the rise of sustainable fashion how eco friendly trends are</a> 
+<a href="https://emiamedical.com/the-ultimate-guide-to-choosing-the-perfect-watch-for-your-li/">the ultimate guide to choosing the perfect watch for your li</a> 
 <a href="https://emiamedical.com/the-value-of-slow-careful-reading-a-quick-guide-2/">the value of slow careful reading a quick guide 2</a> 
 <a href="https://emiamedical.com/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://emiamedical.com/the-value-of-slow-careful-reading-and-why-it-matters-2/">the value of slow careful reading and why it matters 2</a> 
@@ -796,9 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ae253be/how-to-structure-kol-contract-that-protects-both.html">how to structure kol contract that protects both</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@ae93556/how-to-find-balanced-coverage-of-a-topic-and-why-it-matters.html">how to find balanced coverage of a topic and why it matters</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@aedd790/bitcointalk.html">bitcointalk</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@af3e60b/pt-br.html">pt br</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@af571ef/a-simple-framework-for-researching-any-topic-online-a-quick-.html">a simple framework for researching any topic online a quick</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@af784ef/why-washington-not-charts-is-driving-crypto.html">why washington not charts is driving crypto</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@afa23d1/a-closer-look-at-a-simple-framework-for-researching-any-topi.html">a closer look at a simple framework for researching any topi</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b01fee0/the-evolution-of-sports-news-how-modern-analysis-is-transfor.html">the evolution of sports news how modern analysis is transfor</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@b085258/mastering-the-art-of-budgeting-boost-your-business-and-perso.html">mastering the art of budgeting boost your business and perso</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdstent.com/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
+<a href="https://cbdstent.com/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
+<a href="https://cbdstent.com/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
 <a href="https://cbdstent.com/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
 <a href="https://cbdstent.com/how-to-navigate-the-latest-news-and-analysis-for-informed-de/">how to navigate the latest news and analysis for informed de</a> 
 <a href="https://cbdstent.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
@@ -799,6 +802,3 @@
 <a href="https://cochesdeocasion.xyz/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
 <a href="https://cochesdeocasion.xyz/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
 <a href="https://cochesdeocasion.xyz/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
-<a href="https://cochesdeocasion.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://cochesdeocasion.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://cochesdeocasion.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 

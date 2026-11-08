@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-transfer-data-from-android-to-iphone/">how to transfer data from android to iphone</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-use-the-generator/">how to use the generator</a> 
+<a href="https://boostelearning.mataroa.blog/blog/how-to-use-the-web-to-learn-a-new-skill-explained-simply-354ea3fd/">how to use the web to learn a new skill explained simply 354</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
 <a href="https://boostelearning.mataroa.blog/blog/hypepressscom-27c2f3d0/">hypepressscom 27c2f3d0</a> 
 <a href="https://boostelearning.mataroa.blog/blog/hypepressscom-70446364/">hypepressscom 70446364</a> 
@@ -799,6 +802,3 @@
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjp4545524">3mygjp4545524</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjtzk3qt2t">3mygjtzk3qt2t</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjwpbwg42b">3mygjwpbwg42b</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjzfltcb2b">3mygjzfltcb2b</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygk44t3m726">3mygk44t3m726</a> 
-<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygk6vkqtl2t">3mygk6vkqtl2t</a> 

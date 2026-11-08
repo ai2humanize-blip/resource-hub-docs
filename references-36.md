@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://getolive.org/gender-neutral-baby-names-explained-explained-simply/">gender neutral baby names explained explained simply</a> 
+<a href="https://getolive.org/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://getolive.org/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
+<a href="https://getolive.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://getolive.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://getolive.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://getolive.org/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://getolive.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://getolive.org/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
+<a href="https://getolive.org/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
+<a href="https://getolive.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://getolive.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://getolive.org/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-2/">guides reviews how tos 50 resources worth bookmarking 97 3 2</a> 
 <a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-3/">guides reviews how tos 50 resources worth bookmarking 97 3 3</a> 
@@ -738,6 +750,7 @@
 <a href="https://globespro.it.com/guides-reviews-how-tos-a-practical-guide-to-better-choices-29-6/">guides reviews how tos a practical guide to better choices 2</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-for-better-everyday-decisions-29-6/">guides reviews how tos for better everyday decisions 29 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-for-celebrity-family-life-stories-29-6/">guides reviews how tos for celebrity family life stories 29 </a> 
+<a href="https://globespro.it.com/guides-reviews-how-tos-for-palette-press-and-shopwowwee-29-6/">guides reviews how tos for palette press and shopwowwee 29 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-for-smarter-everyday-decisions-29-6/">guides reviews how tos for smarter everyday decisions 29 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-for-smarter-web-reading-29-6/">guides reviews how tos for smarter web reading 29 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-for-teens-kids-and-trivia-29-6/">guides reviews how tos for teens kids and trivia 29 6</a> 
@@ -789,16 +802,3 @@
 <a href="https://globespro.it.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://globespro.it.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
 <a href="https://globespro.it.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
-<a href="https://globespro.it.com/how-to-find-reliable-how-to-guides-and-why-it-matters-2/">how to find reliable how to guides and why it matters 2</a> 
-<a href="https://globespro.it.com/how-to-find-reliable-how-to-guides-and-why-it-matters/">how to find reliable how to guides and why it matters</a> 
-<a href="https://globespro.it.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
-<a href="https://globespro.it.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://globespro.it.com/how-to-navigate-casinos-without-gamstop-while-protecting-you/">how to navigate casinos without gamstop while protecting you</a> 
-<a href="https://globespro.it.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://globespro.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical-2/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://globespro.it.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
-<a href="https://globespro.it.com/how-to-safely-clean-your-phone-speaker/">how to safely clean your phone speaker</a> 
-<a href="https://globespro.it.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://globespro.it.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://globespro.it.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
-<a href="https://globespro.it.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-3/">how to use the web to learn a new skill a practical guide 3</a> 

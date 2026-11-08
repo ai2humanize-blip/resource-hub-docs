@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cochesdeocasion.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://cochesdeocasion.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
+<a href="https://cochesdeocasion.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://cochesdeocasion.xyz/cloud-stacking-service-2/">cloud stacking service 2</a> 
 <a href="https://cochesdeocasion.xyz/cloud-stacking-service/">cloud stacking service</a> 
 <a href="https://cochesdeocasion.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
 <a href="https://crediblenews24.com/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
 <a href="https://crediblenews24.com/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://crediblenews24.com/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://crediblenews24.com/how-to-leverage-the-latest-tech-trends-to-boost-your-digital/">how to leverage the latest tech trends to boost your digital</a> 
-<a href="https://crediblenews24.com/how-to-master-business-personal-finance-and-marketing-synerg/">how to master business personal finance and marketing synerg</a> 
