@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-43.md) · [‹ prev](references-41.md)
 
+<a href="https://illicitlabel.com/understanding-the-origins-of-baby-names-the-basics/">understanding the origins of baby names the basics</a> 
+<a href="https://illicitlabel.com/understanding-thefontworld-a-practical-guide/">understanding thefontworld a practical guide</a> 
+<a href="https://illicitlabel.com/understanding-todaykeralalotteryresult-a-practical-guide/">understanding todaykeralalotteryresult a practical guide</a> 
+<a href="https://illicitlabel.com/understanding-ttweakflight-a-practical-guide/">understanding ttweakflight a practical guide</a> 
+<a href="https://illicitlabel.com/understanding-upsattaking-a-practical-guide/">understanding upsattaking a practical guide</a> 
+<a href="https://illicitlabel.com/understanding-voozon-a-practical-guide/">understanding voozon a practical guide</a> 
+<a href="https://illicitlabel.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
+<a href="https://illicitlabel.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
+<a href="https://illicitlabel.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
+<a href="https://illicitlabel.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
+<a href="https://illicitlabel.com/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
+<a href="https://illicitlabel.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://illicitlabel.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://illicitlabel.com/what-makes-an-explainer-article-genuinely-useful-explained-s-2/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://illicitlabel.com/what-makes-an-explainer-article-genuinely-useful-explained-s-3/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://illicitlabel.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://illicitlabel.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://illicitlabel.com/what-to-know-about-how-to-avoid-misinformation-and-hype-2/">what to know about how to avoid misinformation and hype 2</a> 
+<a href="https://illicitlabel.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://illicitlabel.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://illicitlabel.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://illicitlabel.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://illicitlabel.com/what-to-know-about-making-sense-of-complex-topics-online-2/">what to know about making sense of complex topics online 2</a> 
@@ -782,23 +802,3 @@
 <a href="https://ipfs.filebase.io/ipfs/Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR">Qmf7vdu1LVTjSxgsnt5y1H8pFfeau7jE4MQtvw4BQDfwZR</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G">QmfDbqc7YwiZ2BWEonFDMhktgiGWy9zVjQLCwyxANZSE3G</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv">QmfN8DH3UQJ2Uj3P1xbACksGtCU4JoHZ2nM9rGvnFbxvvv</a> 
-<a href="https://ipfs.filebase.io/ipfs/QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R">QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource-2/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://ireplicadealers.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
-<a href="https://ireplicadealers.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 

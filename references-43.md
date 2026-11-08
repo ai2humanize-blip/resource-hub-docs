@@ -2,6 +2,26 @@
 
 [index](README.md) · [next ›](references-44.md) · [‹ prev](references-42.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R">QmfYcwPpR3RbWafLfMWxGUV9x231xaunqZmWQ5QPuBHh4R</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource-2/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-bookmark-and-revisit-useful-resource/">a closer look at how to bookmark and revisit useful resource</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh-2/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-read-the-news-without-getting-overwh/">a closer look at how to read the news without getting overwh</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online-2/">a closer look at making sense of complex topics online 2</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://ireplicadealers.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://ireplicadealers.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://ireplicadealers.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://ireplicadealers.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
 <a href="https://ireplicadealers.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
@@ -782,23 +802,3 @@
 <a href="https://labmagickite.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://labmagickite.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
 <a href="https://labmagickite.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
-<a href="https://labmagickite.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
-<a href="https://labmagickite.com/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://labmagickite.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://labmagickite.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://labmagickite.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://labmagickite.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://labmagickite.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://labmagickite.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://labmagickite.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://labmagickite.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://labmagickite.com/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://labmagickite.com/a-simple-framework-for-researching-any-topic-online-the-basics/">a simple framework for researching any topic online the basi</a> 
-<a href="https://labmagickite.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://labmagickite.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://labmagickite.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://labmagickite.com/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
-<a href="https://labmagickite.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://labmagickite.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://labmagickite.com/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
-<a href="https://labmagickite.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
