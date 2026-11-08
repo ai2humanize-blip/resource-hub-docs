@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
+<a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
+<a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
+<a href="https://cbdstent.com/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://cbdstent.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://cbdstent.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
+<a href="https://cbdstent.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide-2/">how to tell if a website is trustworthy a practical guide 2</a> 
+<a href="https://cbdstent.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
 <a href="https://cbdstent.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
 <a href="https://cbdstent.com/how-to-tell-if-a-website-is-trustworthy-explained-simply/">how to tell if a website is trustworthy explained simply</a> 
 <a href="https://cbdstent.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
@@ -794,11 +802,3 @@
 <a href="https://cochesdeocasion.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://cochesdeocasion.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
 <a href="https://cochesdeocasion.xyz/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
-<a href="https://cochesdeocasion.xyz/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://cochesdeocasion.xyz/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://cochesdeocasion.xyz/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
-<a href="https://cochesdeocasion.xyz/getting-started-with-a-password-manager/">getting started with a password manager</a> 
-<a href="https://cochesdeocasion.xyz/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
-<a href="https://cochesdeocasion.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
-<a href="https://cochesdeocasion.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
-<a href="https://cochesdeocasion.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 

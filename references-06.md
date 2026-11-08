@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-crypto-and-clou-77-6/">essential digital tools online resources for crypto and clou</a> 
+<a href="https://algiamedical.com/essential-digital-tools-online-resources-for-crypto-enthusia-77-6-2/">essential digital tools online resources for crypto enthusia</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-crypto-enthusia-77-6-3/">essential digital tools online resources for crypto enthusia</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-crypto-enthusia-77-6-4/">essential digital tools online resources for crypto enthusia</a> 
 <a href="https://algiamedical.com/essential-digital-tools-online-resources-for-crypto-enthusia-77-6-5/">essential digital tools online resources for crypto enthusia</a> 
@@ -800,5 +802,3 @@
 <a href="https://app.zentrack.net/breaking-down-the-latest-cybersecurity-news-trends-threats-a/">breaking down the latest cybersecurity news trends threats a</a> 
 <a href="https://app.zentrack.net/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-1-resources-worth-bookmarking-25-2/">business finance productivity 1 resources worth bookmarking </a> 
-<a href="https://app.zentrack.net/business-finance-productivity-45-resources-worth-bookmarking-25-17/">business finance productivity 45 resources worth bookmarking</a> 
-<a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-10/">business finance productivity 50 resources worth bookmarking</a> 

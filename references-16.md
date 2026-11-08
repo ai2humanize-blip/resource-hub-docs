@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cbd-stone.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://cbd-stone.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://cbd-stone.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://cbd-stone.com/getting-how-to-find-balanced-coverage-of-a-topic-right-2/">getting how to find balanced coverage of a topic right 2</a> 
+<a href="https://cbd-stone.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
+<a href="https://cbd-stone.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
+<a href="https://cbd-stone.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://cbd-stone.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
 <a href="https://cbd-stone.com/getting-simple-habits-of-a-smart-internet-reader-right-2/">getting simple habits of a smart internet reader right 2</a> 
 <a href="https://cbd-stone.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
 <a href="https://cbd-stone.com/getting-the-basics-of-staying-safe-while-browsing-right/">getting the basics of staying safe while browsing right</a> 
@@ -794,11 +802,3 @@
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smart-research-84-4/">essential digital tools online resources for smart research </a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-interne-84-4-2/">essential digital tools online resources for smarter interne</a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-interne-84-4/">essential digital tools online resources for smarter interne</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-learnin-84-4/">essential digital tools online resources for smarter learnin</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-living-84-4/">essential digital tools online resources for smarter living </a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-reading-84-4/">essential digital tools online resources for smarter reading</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-researc-84-4/">essential digital tools online resources for smarter researc</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-staying-informe-84-4/">essential digital tools online resources for staying informe</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-understanding-c-84-4/">essential digital tools online resources for understanding c</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-to-enhance-your-kno-84-4/">essential digital tools online resources to enhance your kno</a> 
-<a href="https://cbdpuffbars.com/essential-guides-reviews-and-how-tos-for-independent-news-fi-84-6/">essential guides reviews and how tos for independent news fi</a> 

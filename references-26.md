@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-27.md) · [‹ prev](references-25.md)
 
+<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-3op8">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-52g2">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://dinxsh.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://dinxsh.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://dinxsh.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://dinxsh.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://dinxsh.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://dinxsh.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://dinxsh.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://dinxsh.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://dinxsh.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://dinxsh.xyz/hello-world/">hello world</a> 
 <a href="https://dinxsh.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://dinxsh.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
@@ -791,14 +802,3 @@
 <a href="https://ecomhuntreviews.com/newsrealtors-india-following-the-stories-that-matter/">newsrealtors india following the stories that matter</a> 
 <a href="https://ecomhuntreviews.com/oxpoll-cc-resource-3/">oxpoll cc resource 3</a> 
 <a href="https://ecomhuntreviews.com/phonespeakerclean-com-resource-3/">phonespeakerclean com resource 3</a> 
-<a href="https://ecomhuntreviews.com/practical-tech-tips-worth-knowing/">practical tech tips worth knowing</a> 
-<a href="https://ecomhuntreviews.com/quikconsolecom-net-resource-3/">quikconsolecom net resource 3</a> 
-<a href="https://ecomhuntreviews.com/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
-<a href="https://ecomhuntreviews.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://ecomhuntreviews.com/recognizing-credible-experts-online/">recognizing credible experts online</a> 
-<a href="https://ecomhuntreviews.com/report-identity-theft-in-the-philippines/">report identity theft in the philippines</a> 
-<a href="https://ecomhuntreviews.com/revitalize-your-life-practical-health-wellness-and-organic-l/">revitalize your life practical health wellness and organic l</a> 
-<a href="https://ecomhuntreviews.com/revolutionizing-daily-life-mastering-apps-for-productivity-l-90-10/">revolutionizing daily life mastering apps for productivity l</a> 
-<a href="https://ecomhuntreviews.com/revolutionizing-daily-life-the-impact-of-innovative-apps-on/">revolutionizing daily life the impact of innovative apps on</a> 
-<a href="https://ecomhuntreviews.com/robthecoins-xyz-resource-3/">robthecoins xyz resource 3</a> 
-<a href="https://ecomhuntreviews.com/safeguarding-your-digital-life-the-rise-of-privacy-focused-a/">safeguarding your digital life the rise of privacy focused a</a> 

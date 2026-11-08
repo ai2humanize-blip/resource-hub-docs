@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://fabulouspoetry.it.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://fabulouspoetry.it.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://fabulouspoetry.it.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://fabulouspoetry.it.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://fabulouspoetry.it.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-build-a-personal-reading-list-2/">what to know about how to build a personal reading list 2</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-how-to-use-the-web-to-learn-a-new-skill/">what to know about how to use the web to learn a new skill</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://fabulouspoetry.it.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://fabulouspoetry.it.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
@@ -346,9 +361,12 @@
 <a href="https://fideleturfturf.it.com/digital-tools-online-resources-a-comprehensive-roundup-for-m-28-5/">digital tools online resources a comprehensive roundup for m</a> 
 <a href="https://fideleturfturf.it.com/digital-tools-online-resources-a-smarter-reading-guide-28-5-2/">digital tools online resources a smarter reading guide 28 5 </a> 
 <a href="https://fideleturfturf.it.com/digital-tools-online-resources-a-smarter-reading-guide-28-5/">digital tools online resources a smarter reading guide 28 5</a> 
+<a href="https://fideleturfturf.it.com/digital-tools-online-resources-crypto-safety-roundup-28-5/">digital tools online resources crypto safety roundup 28 5</a> 
+<a href="https://fideleturfturf.it.com/digital-tools-online-resources-for-celebrity-research-28-5/">digital tools online resources for celebrity research 28 5</a> 
 <a href="https://fideleturfturf.it.com/digital-tools-online-resources-for-more-creative-work-28-5/">digital tools online resources for more creative work 28 5</a> 
 <a href="https://fideleturfturf.it.com/digital-tools-online-resources-for-smarter-everyday-life-28-5/">digital tools online resources for smarter everyday life 28 </a> 
 <a href="https://fideleturfturf.it.com/digital-tools-online-resources-for-smarter-reading-28-5/">digital tools online resources for smarter reading 28 5</a> 
+<a href="https://fideleturfturf.it.com/digital-tools-online-resources-for-teens-families-and-groups-28-5/">digital tools online resources for teens families and groups</a> 
 <a href="https://fideleturfturf.it.com/digital-tools-online-resources-navigating-the-modern-news-la-28-5/">digital tools online resources navigating the modern news la</a> 
 <a href="https://fideleturfturf.it.com/digital-tools-online-resources-roundup-smarter-workflows-28-5/">digital tools online resources roundup smarter workflows 28 </a> 
 <a href="https://fideleturfturf.it.com/digital-tools-online-resources-the-blogsternation-roundup-28-5/">digital tools online resources the blogsternation roundup 28</a> 
@@ -784,21 +802,3 @@
 <a href="https://fideleturfturf.it.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
 <a href="https://fideleturfturf.it.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu-2/">how to tell explainer journalism from opinion a practical gu</a> 
 <a href="https://fideleturfturf.it.com/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
-<a href="https://fideleturfturf.it.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
-<a href="https://fideleturfturf.it.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://fideleturfturf.it.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://fideleturfturf.it.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
-<a href="https://fideleturfturf.it.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
-<a href="https://fideleturfturf.it.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://fideleturfturf.it.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
-<a href="https://fideleturfturf.it.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://fideleturfturf.it.com/is-there-a-tn-aavot-or-regional-version/">is there a tn aavot or regional version</a> 
-<a href="https://fideleturfturf.it.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
-<a href="https://fideleturfturf.it.com/leveraging-web-tech-content-for-personal-and-professional-gr-28-6/">leveraging web tech content for personal and professional gr</a> 
-<a href="https://fideleturfturf.it.com/making-sense-of-complex-topics-online-a-quick-guide-2/">making sense of complex topics online a quick guide 2</a> 
-<a href="https://fideleturfturf.it.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://fideleturfturf.it.com/master-digital-tools-online-resources-a-comprehensive-guide-28-5/">master digital tools online resources a comprehensive guide </a> 
-<a href="https://fideleturfturf.it.com/master-the-art-of-smart-web-tech-content-consumption-a-pract-28-6/">master the art of smart web tech content consumption a pract</a> 
-<a href="https://fideleturfturf.it.com/master-the-web-essential-digital-tools-online-resources-for-28-5/">master the web essential digital tools online resources for </a> 
-<a href="https://fideleturfturf.it.com/master-web-tech-content-a-comprehensive-guide-to-smarter-rea-28-6/">master web tech content a comprehensive guide to smarter rea</a> 
-<a href="https://fideleturfturf.it.com/mastering-business-finance-productivity-essential-skills-for-28-4/">mastering business finance productivity essential skills for</a> 

@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhd4rn5hc23">3myhd4rn5hc23</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhd6hsq3x2z">3myhd6hsq3x2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhd7zyxjl2r">3myhd7zyxjl2r</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhdbp7e3r2z">3myhdbp7e3r2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhddeffwr2s">3myhddeffwr2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhdeyelog2r">3myhdeyelog2r</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhdgmrqjm2z">3myhdgmrqjm2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhdiacpam23">3myhdiacpam23</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhdjtnzwp2n">3myhdjtnzwp2n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhdlgm43a2h">3myhdlgm43a2h</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhdn2k3oa2h">3myhdn2k3oa2h</a> 
@@ -794,11 +802,3 @@
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-82-2-2/">navigating web tech content a comprehensive guide for savvy </a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-82-2/">navigating web tech content a comprehensive guide for savvy </a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-smart-82-2/">navigating web tech content a comprehensive guide for smart </a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-the-di-82-2/">navigating web tech content a comprehensive guide for the di</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-82-2-2/">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-82-2/">navigating web tech content a comprehensive guide for the mo</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-to-cryptoc-82-2/">navigating web tech content a comprehensive guide to cryptoc</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-to-digital-82-2-2/">navigating web tech content a comprehensive guide to digital</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-to-digital-82-2/">navigating web tech content a comprehensive guide to digital</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-to-staying-82-2/">navigating web tech content a comprehensive guide to staying</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-practical-guide-to-informed-on-82-2/">navigating web tech content a practical guide to informed on</a> 

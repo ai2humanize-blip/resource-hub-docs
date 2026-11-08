@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-the-di-82-2/">navigating web tech content a comprehensive guide for the di</a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-82-2-2/">navigating web tech content a comprehensive guide for the mo</a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-82-2/">navigating web tech content a comprehensive guide for the mo</a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-to-cryptoc-82-2/">navigating web tech content a comprehensive guide to cryptoc</a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-to-digital-82-2-2/">navigating web tech content a comprehensive guide to digital</a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-to-digital-82-2/">navigating web tech content a comprehensive guide to digital</a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-to-staying-82-2/">navigating web tech content a comprehensive guide to staying</a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-practical-guide-to-informed-on-82-2/">navigating web tech content a practical guide to informed on</a> 
 <a href="https://captainjackinterview.com/newsrealtors-independent-coverage-of-india-and-world-news/">newsrealtors independent coverage of india and world news</a> 
 <a href="https://captainjackinterview.com/no-download-games-play-instantly-in-your-browser-2/">no download games play instantly in your browser 2</a> 
 <a href="https://captainjackinterview.com/no-download-games-play-instantly-in-your-browser/">no download games play instantly in your browser</a> 
@@ -794,11 +802,3 @@
 <a href="https://cbd-stone.com/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
 <a href="https://cbd-stone.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
 <a href="https://cbd-stone.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
-<a href="https://cbd-stone.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://cbd-stone.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
-<a href="https://cbd-stone.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
-<a href="https://cbd-stone.com/getting-how-to-find-balanced-coverage-of-a-topic-right-2/">getting how to find balanced coverage of a topic right 2</a> 
-<a href="https://cbd-stone.com/getting-how-to-find-balanced-coverage-of-a-topic-right/">getting how to find balanced coverage of a topic right</a> 
-<a href="https://cbd-stone.com/getting-how-to-organize-the-information-you-find-online-righ/">getting how to organize the information you find online righ</a> 
-<a href="https://cbd-stone.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://cbd-stone.com/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
