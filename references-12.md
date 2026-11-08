@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://be1.ru/stat/bitcoindigital.info">bitcoindigital.info</a> 
+<a href="https://be1.ru/stat/bitcoinlogical.com">bitcoinlogical.com</a> 
+<a href="https://be1.ru/stat/bitcoinprime.info">bitcoinprime.info</a> 
+<a href="https://be1.ru/stat/bitcointalk.co.bz">bitcointalk.co.bz</a> 
+<a href="https://be1.ru/stat/bitjackpot.de.com">bitjackpot.de.com</a> 
 <a href="https://be1.ru/stat/blackpearlbitcoin.com">blackpearlbitcoin.com</a> 
 <a href="https://be1.ru/stat/blocklist.co.kr">blocklist.co.kr</a> 
 <a href="https://be1.ru/stat/blueflamepublishingblog.xyz">blueflamepublishingblog.xyz</a> 
@@ -797,8 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/how-to-transfer-data-from-android-to-iphone/">how to transfer data from android to iphone</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-use-the-generator/">how to use the generator</a> 
 <a href="https://boostelearning.mataroa.blog/blog/how-to-use-the-web-to-learn-a-new-skill-explained-simply-354ea3fd/">how to use the web to learn a new skill explained simply 354</a> 
-<a href="https://boostelearning.mataroa.blog/blog/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://boostelearning.mataroa.blog/blog/hypepressscom-27c2f3d0/">hypepressscom 27c2f3d0</a> 
-<a href="https://boostelearning.mataroa.blog/blog/hypepressscom-70446364/">hypepressscom 70446364</a> 
-<a href="https://boostelearning.mataroa.blog/blog/hypepressscom-ac6a0978/">hypepressscom ac6a0978</a> 
-<a href="https://boostelearning.mataroa.blog/blog/hypepressscom-f89b26f8/">hypepressscom f89b26f8</a> 

@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdstent.com/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
+<a href="https://cbdstent.com/how-to-navigate-the-latest-news-and-analysis-for-informed-de/">how to navigate the latest news and analysis for informed de</a> 
+<a href="https://cbdstent.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://cbdstent.com/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
+<a href="https://cbdstent.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
 <a href="https://cbdstent.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
 <a href="https://cbdstent.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
 <a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
@@ -797,8 +802,3 @@
 <a href="https://cochesdeocasion.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://cochesdeocasion.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
 <a href="https://cochesdeocasion.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://cochesdeocasion.xyz/cloud-stacking-service-2/">cloud stacking service 2</a> 
-<a href="https://cochesdeocasion.xyz/cloud-stacking-service/">cloud stacking service</a> 
-<a href="https://cochesdeocasion.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://cochesdeocasion.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
-<a href="https://cochesdeocasion.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 

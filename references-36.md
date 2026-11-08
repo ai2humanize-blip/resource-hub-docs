@@ -2,6 +2,20 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://getolive.org/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-2/">guides reviews how tos 50 resources worth bookmarking 97 3 2</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-3/">guides reviews how tos 50 resources worth bookmarking 97 3 3</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3/">guides reviews how tos 50 resources worth bookmarking 97 3</a> 
+<a href="https://getolive.org/guides-reviews-how-tos-navigating-the-information-age-97-8/">guides reviews how tos navigating the information age 97 8</a> 
+<a href="https://getolive.org/how-ai-driven-apps-are-transforming-our-digital-experience/">how ai driven apps are transforming our digital experience</a> 
+<a href="https://getolive.org/how-ai-driven-apps-are-transforming-our-digital-lives/">how ai driven apps are transforming our digital lives</a> 
+<a href="https://getolive.org/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://getolive.org/how-ai-powered-apps-are-transforming-our-digital-lives/">how ai powered apps are transforming our digital lives</a> 
+<a href="https://getolive.org/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://getolive.org/how-blockchain-actually-works-in-plain-terms/">how blockchain actually works in plain terms</a> 
+<a href="https://getolive.org/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://getolive.org/how-crypto-debit-cards-work-and-what-the-fees-really-are/">how crypto debit cards work and what the fees really are</a> 
+<a href="https://getolive.org/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://getolive.org/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
 <a href="https://getolive.org/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
 <a href="https://getolive.org/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
@@ -720,6 +734,7 @@
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-8/">guides reviews how tos 50 resources worth bookmarking 29 6 8</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6-9/">guides reviews how tos 50 resources worth bookmarking 29 6 9</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-50-resources-worth-bookmarking-29-6/">guides reviews how tos 50 resources worth bookmarking 29 6</a> 
+<a href="https://globespro.it.com/guides-reviews-how-tos-a-practical-crypto-card-hub-29-6/">guides reviews how tos a practical crypto card hub 29 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-a-practical-guide-to-better-choices-29-6/">guides reviews how tos a practical guide to better choices 2</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-for-better-everyday-decisions-29-6/">guides reviews how tos for better everyday decisions 29 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-for-celebrity-family-life-stories-29-6/">guides reviews how tos for celebrity family life stories 29 </a> 
@@ -727,6 +742,7 @@
 <a href="https://globespro.it.com/guides-reviews-how-tos-for-smarter-web-reading-29-6/">guides reviews how tos for smarter web reading 29 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-for-teens-kids-and-trivia-29-6/">guides reviews how tos for teens kids and trivia 29 6</a> 
 <a href="https://globespro.it.com/guides-reviews-how-tos-mastering-crypto-and-blockchain-topic-29-6/">guides reviews how tos mastering crypto and blockchain topic</a> 
+<a href="https://globespro.it.com/haunted-palace-guides-reviews-how-tos-plan-smarter-29-6/">haunted palace guides reviews how tos plan smarter 29 6</a> 
 <a href="https://globespro.it.com/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
 <a href="https://globespro.it.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://globespro.it.com/how-ai-is-transforming-news-reporting-current-trends-and-fut/">how ai is transforming news reporting current trends and fut</a> 
@@ -786,19 +802,3 @@
 <a href="https://globespro.it.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
 <a href="https://globespro.it.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
 <a href="https://globespro.it.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-3/">how to use the web to learn a new skill a practical guide 3</a> 
-<a href="https://globespro.it.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://globespro.it.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
-<a href="https://globespro.it.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
-<a href="https://globespro.it.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://globespro.it.com/ivana-turf-articles/">ivana turf articles</a> 
-<a href="https://globespro.it.com/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://globespro.it.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://globespro.it.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://globespro.it.com/marketing-seo-growth-10-resources-worth-bookmarking-29-7/">marketing seo growth 10 resources worth bookmarking 29 7</a> 
-<a href="https://globespro.it.com/marketing-seo-growth-a-comprehensive-guide-for-business-succ-29-7/">marketing seo growth a comprehensive guide for business succ</a> 
-<a href="https://globespro.it.com/marketing-seo-growth-strategies-for-success-in-the-digital-a-29-7/">marketing seo growth strategies for success in the digital a</a> 
-<a href="https://globespro.it.com/master-crypto-basics-guides-reviews-safety-tips-for-beginner-29-6/">master crypto basics guides reviews safety tips for beginner</a> 
-<a href="https://globespro.it.com/master-crypto-investing-guides-reviews-how-tos-for-success-29-6/">master crypto investing guides reviews how tos for success 2</a> 
-<a href="https://globespro.it.com/master-guides-reviews-how-tos-your-ultimate-resource-for-dai-29-6/">master guides reviews how tos your ultimate resource for dai</a> 
-<a href="https://globespro.it.com/master-guides-reviews-how-tos-your-ultimate-resource-roundup-29-6/">master guides reviews how tos your ultimate resource roundup</a> 
-<a href="https://globespro.it.com/master-marketing-seo-growth-essential-web-resources-for-succ-29-7/">master marketing seo growth essential web resources for succ</a> 

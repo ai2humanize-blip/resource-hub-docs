@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkbsu3y52b">3mygkbsu3y52b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkejkghb2h">3mygkejkghb2h</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkhafkwa2f">3mygkhafkwa2f</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkjyid6l2b">3mygkjyid6l2b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkmwtgkz22">3mygkmwtgkz22</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkpvhro52v">3mygkpvhro52v</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkucvdzo2b">3mygkucvdzo2b</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhd3bicov25">3myhd3bicov25</a> 
@@ -797,8 +802,3 @@
 <a href="https://captainjackinterview.com/navigating-web-tech-and-content-a-comprehensive-roundup-82-2/">navigating web tech and content a comprehensive roundup 82 2</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-and-content-a-comprehensive-roundup-for-82-2/">navigating web tech and content a comprehensive roundup for </a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-82-2-2/">navigating web tech content a comprehensive guide 82 2 2</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-82-2/">navigating web tech content a comprehensive guide 82 2</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-2023-82-2/">navigating web tech content a comprehensive guide for 2023 8</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-inform-82-2/">navigating web tech content a comprehensive guide for inform</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-job-se-82-2/">navigating web tech content a comprehensive guide for job se</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-modern-82-2/">navigating web tech content a comprehensive guide for modern</a> 
