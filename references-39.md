@@ -2,6 +2,22 @@
 
 [index](README.md) · [next ›](references-40.md) · [‹ prev](references-38.md)
 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-3/">a closer look at how to avoid misinformation and hype 3</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-4/">a closer look at how to avoid misinformation and hype 4</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opinion/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-making-sense-of-complex-topics-online/">a closer look at making sense of complex topics online</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-niche-blogs-still-matter-2/">a closer look at why niche blogs still matter 2</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://grouperfishingsecrets.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find-them/">a closer look at why primary sources matter and how to find </a> 
 <a href="https://grouperfishingsecrets.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://grouperfishingsecrets.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
 <a href="https://grouperfishingsecrets.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
@@ -786,19 +802,3 @@
 <a href="https://heatherburrisphotography.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-99-10/">master the art of budget travel find cheap flights and save </a> 
 <a href="https://heatherburrisphotography.com/master-your-online-experience-essential-digital-tools-resour-99-9/">master your online experience essential digital tools resour</a> 
 <a href="https://heatherburrisphotography.com/master-your-online-research-essential-digital-tools-resource-99-9/">master your online research essential digital tools resource</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-and-productivity-a-comprehensive-99-8-2/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-and-productivity-a-comprehensive-99-8-3/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-and-productivity-a-comprehensive-99-8-4/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-and-productivity-a-comprehensive-99-8-5/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-and-productivity-a-comprehensive-99-8/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-and-productivity-in-the-digital-a-99-8/">mastering business finance and productivity in the digital a</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-10/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-11/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-12/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-13/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-14/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-15/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-16/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-17/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-18/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://heatherburrisphotography.com/mastering-business-finance-productivity-a-comprehensive-guid-99-8-19/">mastering business finance productivity a comprehensive guid</a> 

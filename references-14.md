@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muztkogveb2n">3muztkogveb2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3muztqkcnb324">3muztqkcnb324</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myahrhc7ln24">3myahrhc7ln24</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygip52x3w2h">3mygip52x3w2h</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygirqnd3d2b">3mygirqnd3d2b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygiulcxof2t">3mygiulcxof2t</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygixfd7lc2b">3mygixfd7lc2b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygj2cnad52r">3mygj2cnad52r</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygj5d2byv2r">3mygj5d2byv2r</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjaandu52t">3mygjaandu52t</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjdadnwm26">3mygjdadnwm26</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjp4545524">3mygjp4545524</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjtzk3qt2t">3mygjtzk3qt2t</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygjwpbwg42b">3mygjwpbwg42b</a> 
@@ -791,14 +802,3 @@
 <a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-essential-tech-content-82-2/">navigating the web a curated guide to essential tech content</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-tech-content-and-relia-82-2/">navigating the web a curated guide to tech content and relia</a> 
 <a href="https://captainjackinterview.com/navigating-the-web-a-curated-guide-to-tech-content-and-usefu-82-2/">navigating the web a curated guide to tech content and usefu</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-essential-online-res-82-2-2/">navigating the web a practical guide to essential online res</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-essential-online-res-82-2-3/">navigating the web a practical guide to essential online res</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-essential-online-res-82-2/">navigating the web a practical guide to essential online res</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-reliable-tech-conten-82-2/">navigating the web a practical guide to reliable tech conten</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-useful-online-resour-82-2-2/">navigating the web a practical guide to useful online resour</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-useful-online-resour-82-2-3/">navigating the web a practical guide to useful online resour</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-useful-online-resour-82-2/">navigating the web a practical guide to useful online resour</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-a-practical-guide-to-valuable-online-reso-82-2/">navigating the web a practical guide to valuable online reso</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-tech-content-and-staying-safe-online-82-2/">navigating the web tech content and staying safe online 82 2</a> 
-<a href="https://captainjackinterview.com/navigating-the-web-tech-content-landscape-a-comprehensive-gu-82-2/">navigating the web tech content landscape a comprehensive gu</a> 
-<a href="https://captainjackinterview.com/navigating-the-world-of-business-finance-productivity-a-comp-82-10/">navigating the world of business finance productivity a comp</a> 
