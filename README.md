@@ -150,6 +150,13 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://kriptometre.com/">kriptometre.com</a> 
 <a href="https://factsreadercom.org/">factsreadercom.org</a> 
 <a href="https://behindthefamous.com/">behindthefamous.com</a> 
+<a href="https://wmovc.com/">wmovc.com</a> 
+<a href="https://seabreezeseafoodrestaurant.com/">seabreezeseafoodrestaurant.com</a> 
+<a href="https://shopwowwee.com/">shopwowwee.com</a> 
+<a href="https://sabinanore.com/">sabinanore.com</a> 
+<a href="https://hauntedpalace.net/">hauntedpalace.net</a> 
+<a href="https://cryptocardhub.com/">cryptocardhub.com</a> 
+<a href="https://dltutuapp.com/">dltutuapp.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -230,8 +237,9 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 76](references-76.md)
 - [Reference set 77](references-77.md)
 - [Reference set 78](references-78.md)
+- [Reference set 79](references-79.md)
 
-_62,277 curated references across 78 sets._
+_62,586 curated references across 79 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)
