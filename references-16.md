@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cbd-stone.com/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
+<a href="https://cbd-stone.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://cbd-stone.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
 <a href="https://cbd-stone.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
 <a href="https://cbd-stone.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
 <a href="https://cbd-stone.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-modern-users-84-4/">essential digital tools online resources for modern users 84</a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-navigating-the-84-4/">essential digital tools online resources for navigating the </a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-optimal-phone-s-84-4/">essential digital tools online resources for optimal phone s</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smart-research-84-4/">essential digital tools online resources for smart research </a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-interne-84-4-2/">essential digital tools online resources for smarter interne</a> 
-<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-interne-84-4/">essential digital tools online resources for smarter interne</a> 

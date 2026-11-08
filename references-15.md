@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-82-2-2/">navigating web tech content a comprehensive guide for savvy </a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-82-2/">navigating web tech content a comprehensive guide for savvy </a> 
+<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-smart-82-2/">navigating web tech content a comprehensive guide for smart </a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-the-di-82-2/">navigating web tech content a comprehensive guide for the di</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-82-2-2/">navigating web tech content a comprehensive guide for the mo</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-the-mo-82-2/">navigating web tech content a comprehensive guide for the mo</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
 <a href="https://cbd-stone.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://cbd-stone.com/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://cbd-stone.com/free-online-developer-tools-and-utilities-what-to-know/">free online developer tools and utilities what to know</a> 
-<a href="https://cbd-stone.com/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://cbd-stone.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 

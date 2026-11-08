@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-18.md) · [‹ prev](references-16.md)
 
+<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smart-research-84-4/">essential digital tools online resources for smart research </a> 
+<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-interne-84-4-2/">essential digital tools online resources for smarter interne</a> 
+<a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-interne-84-4/">essential digital tools online resources for smarter interne</a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-learnin-84-4/">essential digital tools online resources for smarter learnin</a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-living-84-4/">essential digital tools online resources for smarter living </a> 
 <a href="https://cbdpuffbars.com/essential-digital-tools-online-resources-for-smarter-reading-84-4/">essential digital tools online resources for smarter reading</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbdstent.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
 <a href="https://cbdstent.com/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
 <a href="https://cbdstent.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
-<a href="https://cbdstent.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://cbdstent.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 

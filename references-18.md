@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdstent.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
+<a href="https://cbdstent.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
+<a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
 <a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed-the-basics/">how to read the news without getting overwhelmed the basics</a> 
 <a href="https://cbdstent.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
@@ -799,6 +802,3 @@
 <a href="https://cochesdeocasion.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://cochesdeocasion.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
 <a href="https://cochesdeocasion.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://cochesdeocasion.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://cochesdeocasion.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
-<a href="https://cochesdeocasion.xyz/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 

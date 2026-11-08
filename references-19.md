@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cochesdeocasion.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-evaluate-online-reviews-and-recommendations-right/">getting how to evaluate online reviews and recommendations r</a> 
+<a href="https://cochesdeocasion.xyz/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
 <a href="https://cochesdeocasion.xyz/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
 <a href="https://cochesdeocasion.xyz/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
 <a href="https://cochesdeocasion.xyz/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/how-to-organize-the-information-you-find-online-a-quick-guide/">how to organize the information you find online a quick guid</a> 
 <a href="https://crediblenews24.com/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
 <a href="https://crediblenews24.com/how-to-pick-a-middle-name-that-fits-a-practical-guide/">how to pick a middle name that fits a practical guide</a> 
-<a href="https://crediblenews24.com/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://crediblenews24.com/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://crediblenews24.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 

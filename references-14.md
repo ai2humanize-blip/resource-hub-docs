@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkpvhro52v">3mygkpvhro52v</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mygkucvdzo2b">3mygkucvdzo2b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhd3bicov25">3myhd3bicov25</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhd4rn5hc23">3myhd4rn5hc23</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhd6hsq3x2z">3myhd6hsq3x2z</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3myhd7zyxjl2r">3myhd7zyxjl2r</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-inform-82-2/">navigating web tech content a comprehensive guide for inform</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-job-se-82-2/">navigating web tech content a comprehensive guide for job se</a> 
 <a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-modern-82-2/">navigating web tech content a comprehensive guide for modern</a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-82-2-2/">navigating web tech content a comprehensive guide for savvy </a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-savvy-82-2/">navigating web tech content a comprehensive guide for savvy </a> 
-<a href="https://captainjackinterview.com/navigating-web-tech-content-a-comprehensive-guide-for-smart-82-2/">navigating web tech content a comprehensive guide for smart </a> 
