@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://7game1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://7game1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://7game1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://7game1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -273,8 +274,10 @@
 <a href="https://agriculture-lawyer.com/building-a-healthy-daily-reading-habit-a-quick-guide/">building a healthy daily reading habit a quick guide</a> 
 <a href="https://agriculture-lawyer.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://agriculture-lawyer.com/building-your-personal-web-toolkit-guides-reviews-how-tos-75-5/">building your personal web toolkit guides reviews how tos 75</a> 
+<a href="https://agriculture-lawyer.com/business-finance-productivity-50-resources-worth-bookmarking-75-2/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-a-comprehensive-guide-to-under-75-7/">business finance productivity a comprehensive guide to under</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-a-practical-playbook-75-2/">business finance productivity a practical playbook 75 2</a> 
+<a href="https://agriculture-lawyer.com/business-finance-productivity-a-practical-roundup-for-growth-75-2/">business finance productivity a practical roundup for growth</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-essential-independent-websites-75-7/">business finance productivity essential independent websites</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-essential-resources-for-2026-75-7/">business finance productivity essential resources for 2026 7</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-navigating-news-trends-and-res-75-7/">business finance productivity navigating news trends and res</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/navigating-online-casino-news-safety-and-responsible-gamblin/">navigating online casino news safety and responsible gamblin</a> 
 <a href="https://agriculture-lawyer.com/navigating-online-casinos-safely-tips-for-responsible-gambli/">navigating online casinos safely tips for responsible gambli</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-complex-world-of-ai-regulation-challenges-and/">navigating the complex world of ai regulation challenges and</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-complex-world-of-web-tech-content-a-comprehen-75-4/">navigating the complex world of web tech content a comprehen</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-crypto-market-a-deep-dive-into-price-volume-a-75-4/">navigating the crypto market a deep dive into price volume a</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 

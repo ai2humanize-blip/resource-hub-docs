@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz5zqk7kc2q">3msz5zqk7kc2q</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz6ypork52d">3msz6ypork52d</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz7wccogw2e">3msz7wccogw2e</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszavpnzly2u">3mszavpnzly2u</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszbwrvjgq2u">3mszbwrvjgq2u</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszcry454u2q">3mszcry454u2q</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszeaz2xit22">3mszeaz2xit22</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszf55eql227">3mszf55eql227</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszg3r6ykm27">3mszg3r6ykm27</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszgxt6oek26">3mszgxt6oek26</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszhvpu4be26">3mszhvpu4be26</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszisksxlf22">3mszisksxlf22</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3mszkmzinsf22">3mszkmzinsf22</a> 
@@ -427,6 +437,7 @@
 <a href="https://captainjackinterview.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://captainjackinterview.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-for-daily-prayer-and-social-m-82-1/">digital tools online resources for daily prayer and social m</a> 
+<a href="https://captainjackinterview.com/digital-tools-online-resources-for-smarter-browsing-82-6/">digital tools online resources for smarter browsing 82 6</a> 
 <a href="https://captainjackinterview.com/discover-essential-digital-tools-online-resources-for-every-82-1/">discover essential digital tools online resources for every </a> 
 <a href="https://captainjackinterview.com/discover-the-art-of-event-planning-unique-ideas-and-tips-for/">discover the art of event planning unique ideas and tips for</a> 
 <a href="https://captainjackinterview.com/discover-the-best-ai-art-prompt-generators-guides-reviews-ho-82-3/">discover the best ai art prompt generators guides reviews ho</a> 
@@ -590,6 +601,7 @@
 <a href="https://captainjackinterview.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://captainjackinterview.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
 <a href="https://captainjackinterview.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-3/">guides reviews how tos 50 resources worth bookmarking 82 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-2/">guides reviews how tos 50 resources worth bookmarking 82 8 2</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-3/">guides reviews how tos 50 resources worth bookmarking 82 8 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8/">guides reviews how tos 50 resources worth bookmarking 82 8</a> 
@@ -790,15 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-the-82-3/">mastering online research guides reviews and how tos for the</a> 
 <a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-digital-82-3/">mastering online research guides reviews how tos for digital</a> 
 <a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-effecti-82-3/">mastering online research guides reviews how tos for effecti</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-savvy-r-82-3/">mastering online research guides reviews how tos for savvy r</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-smart-i-82-3/">mastering online research guides reviews how tos for smart i</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-smart-l-82-8/">mastering online research guides reviews how tos for smart l</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-smarter-82-3-2/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-smarter-82-3/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://captainjackinterview.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-82-3/">mastering online resources guides reviews how tos for smarte</a> 
-<a href="https://captainjackinterview.com/mastering-personal-finance-marketing-and-business-growth-a-s-82-4/">mastering personal finance marketing and business growth a s</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-app-management-boost-productivity-with/">mastering the art of app management boost productivity with</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-and-personal-finance-a-marketi/">mastering the art of business and personal finance a marketi</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-and-personal-finance-in-the-di/">mastering the art of business and personal finance in the di</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-finance-personal-wealth-and-ma-82-2/">mastering the art of business finance personal wealth and ma</a> 
-<a href="https://captainjackinterview.com/mastering-the-art-of-business-personal-finance-and-marketing-82-4/">mastering the art of business personal finance and marketing</a> 

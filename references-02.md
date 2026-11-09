@@ -71,6 +71,7 @@
 <a href="https://123angelnumber.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://123angelnumber.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
 <a href="https://123angelnumber.com/web-tech-content-apps-crypto-cards-and-market-warnings-76-3/">web tech content apps crypto cards and market warnings 76 3</a> 
+<a href="https://123angelnumber.com/web-tech-content-lumora-sea-breeze-seafood-smith-76-3/">web tech content lumora sea breeze seafood smith 76 3</a> 
 <a href="https://123angelnumber.com/web-tech-content-roundup-shopwowwee-and-palette-press-76-3/">web tech content roundup shopwowwee and palette press 76 3</a> 
 <a href="https://123angelnumber.com/web-tech-content-your-ultimate-guide-to-digital-productivity-76-8/">web tech content your ultimate guide to digital productivity</a> 
 <a href="https://123angelnumber.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
@@ -801,4 +802,3 @@
 <a href="https://789jl1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://789jl1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://789jl1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://7game1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
