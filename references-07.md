@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://algiamedical.com/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://algiamedical.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
 <a href="https://algiamedical.com/what-to-know-about-the-basics-of-staying-safe-while-browsing/">what to know about the basics of staying safe while browsing</a> 
@@ -801,4 +802,3 @@
 <a href="https://app.zentrack.net/navigating-the-future-ai-s-impact-on-journalism-and-news-con/">navigating the future ai s impact on journalism and news con</a> 
 <a href="https://app.zentrack.net/navigating-the-future-business-finance-productivity-in-2026-25-2/">navigating the future business finance productivity in 2026 </a> 
 <a href="https://app.zentrack.net/navigating-the-future-choosing-a-virtual-seo-expert-in-2026-25-2/">navigating the future choosing a virtual seo expert in 2026 </a> 
-<a href="https://app.zentrack.net/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 

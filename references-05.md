@@ -366,6 +366,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-reading-online-43-1.html">web tech content a practical guide to reading online 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-reading-smarter-43-1.html">web tech content a practical guide to reading smarter 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-smarter-browsing-43-1.html">web tech content a practical guide to smarter browsing 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-statscrop-site-roundup-43-1.html">web tech content a practical statscrop site roundup 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-information-43-1.html">web tech content a smarter guide to online information 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-research-43-1.html">web tech content a smarter guide to online research 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-safer-guide-to-the-web-43-1.html">web tech content a smarter safer guide to the web 43 1</a> 
@@ -801,4 +802,3 @@
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-40/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-41/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-42/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-43/">digital tools online resources 50 resources worth bookmarkin</a> 

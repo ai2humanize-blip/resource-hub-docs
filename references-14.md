@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msyzd6xooy2k">3msyzd6xooy2k</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz2bsnhw42b">3msz2bsnhw42b</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz3dllqh22a">3msz3dllqh22a</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz55oaq3c2q">3msz55oaq3c2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz5zqk7kc2q">3msz5zqk7kc2q</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz6ypork52d">3msz6ypork52d</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msz7wccogw2e">3msz7wccogw2e</a> 
@@ -607,6 +611,7 @@
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8/">guides reviews how tos 50 resources worth bookmarking 82 8</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-a-smarter-guide-to-reading-online-82-8/">guides reviews how tos a smarter guide to reading online 82 </a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-for-better-online-decisions-82-3/">guides reviews how tos for better online decisions 82 3</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-for-facts-trivia-and-social-growth-82-3/">guides reviews how tos for facts trivia and social growth 82</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-for-smarter-online-reading-82-3/">guides reviews how tos for smarter online reading 82 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-for-smarter-online-research-today-82-8/">guides reviews how tos for smarter online research today 82 </a> 
 <a href="https://captainjackinterview.com/harnessing-the-power-of-apps-transforming-daily-life-in-the/">harnessing the power of apps transforming daily life in the</a> 
@@ -797,8 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-online-reading-guides-reviews-how-tos-for-smart-in-82-8/">mastering online reading guides reviews how tos for smart in</a> 
 <a href="https://captainjackinterview.com/mastering-online-reading-research-and-digital-literacy-a-com-82-8/">mastering online reading research and digital literacy a com</a> 
 <a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-sav-82-3/">mastering online research guides reviews and how tos for sav</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-sma-82-3/">mastering online research guides reviews and how tos for sma</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-the-82-3-2/">mastering online research guides reviews and how tos for the</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-and-how-tos-for-the-82-3/">mastering online research guides reviews and how tos for the</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-digital-82-3/">mastering online research guides reviews how tos for digital</a> 
-<a href="https://captainjackinterview.com/mastering-online-research-guides-reviews-how-tos-for-effecti-82-3/">mastering online research guides reviews how tos for effecti</a> 

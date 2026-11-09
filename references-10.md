@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
 <a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
 <a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
 <a href="https://autumnfallsinterview.com/air-quality-in-bengaluru-how-it-compares-and-what-to-watch/">air quality in bengaluru how it compares and what to watch</a> 
@@ -801,4 +802,3 @@
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-51/">web tech content 50 resources worth bookmarking 80 9 51</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-52/">web tech content 50 resources worth bookmarking 80 9 52</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-53/">web tech content 50 resources worth bookmarking 80 9 53</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-54/">web tech content 50 resources worth bookmarking 80 9 54</a> 
