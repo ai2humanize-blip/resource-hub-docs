@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
 <a href="https://123angelnumber.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://123angelnumber.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
 <a href="https://123angelnumber.com/timeless-baby-names-their-meanings-a-comprehensive-guide-76-5/">timeless baby names their meanings a comprehensive guide 76 </a> 
@@ -573,6 +574,7 @@
 <a href="https://5starsstocks.it.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
 <a href="https://5starsstocks.it.com/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
 <a href="https://5starsstocks.it.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://5starsstocks.it.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://5starsstocks.it.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
 <a href="https://5starsstocks.it.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
 <a href="https://5starsstocks.it.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour-2/">what to know about how to bookmark and revisit useful resour</a> 
@@ -669,6 +671,7 @@
 <a href="https://666game.com.im/blog/how-to-organize-the-information-you-find-online-the-basics/">how to organize the information you find online the basics</a> 
 <a href="https://666game.com.im/blog/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
 <a href="https://666game.com.im/blog/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
+<a href="https://666game.com.im/blog/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
 <a href="https://666game.com.im/blog/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
 <a href="https://666game.com.im/blog/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
 <a href="https://666game.com.im/blog/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
@@ -799,6 +802,3 @@
 <a href="https://789jl1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://789jl1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://789jl1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://789jl1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://789jl1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://789jl1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 

@@ -2,6 +2,21 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing-2/">a closer look at the basics of staying safe while browsing 2</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-why-niche-blogs-still-matter-2/">a closer look at why niche blogs still matter 2</a> 
+<a href="https://autumnfallsinterview.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://autumnfallsinterview.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://autumnfallsinterview.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://autumnfallsinterview.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://autumnfallsinterview.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://autumnfallsinterview.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-2/">a simple framework for researching any topic online 2</a> 
 <a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
 <a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
 <a href="https://autumnfallsinterview.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
@@ -355,6 +370,7 @@
 <a href="https://autumnfallsinterview.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
 <a href="https://autumnfallsinterview.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
 <a href="https://autumnfallsinterview.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://autumnfallsinterview.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
 <a href="https://autumnfallsinterview.com/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
 <a href="https://autumnfallsinterview.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply-2/">how to use the web to learn a new skill explained simply 2</a> 
 <a href="https://autumnfallsinterview.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
@@ -786,19 +802,3 @@
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-37/">web tech content 50 resources worth bookmarking 80 9 37</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-38/">web tech content 50 resources worth bookmarking 80 9 38</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-39/">web tech content 50 resources worth bookmarking 80 9 39</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-4/">web tech content 50 resources worth bookmarking 80 9 4</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-40/">web tech content 50 resources worth bookmarking 80 9 40</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-41/">web tech content 50 resources worth bookmarking 80 9 41</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-42/">web tech content 50 resources worth bookmarking 80 9 42</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-43/">web tech content 50 resources worth bookmarking 80 9 43</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-44/">web tech content 50 resources worth bookmarking 80 9 44</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-45/">web tech content 50 resources worth bookmarking 80 9 45</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-46/">web tech content 50 resources worth bookmarking 80 9 46</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-47/">web tech content 50 resources worth bookmarking 80 9 47</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-48/">web tech content 50 resources worth bookmarking 80 9 48</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-49/">web tech content 50 resources worth bookmarking 80 9 49</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-5/">web tech content 50 resources worth bookmarking 80 9 5</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-50/">web tech content 50 resources worth bookmarking 80 9 50</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-51/">web tech content 50 resources worth bookmarking 80 9 51</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-52/">web tech content 50 resources worth bookmarking 80 9 52</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-53/">web tech content 50 resources worth bookmarking 80 9 53</a> 

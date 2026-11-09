@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-36/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-37/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-38/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-39/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-4/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-40/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-41/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-42/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-43/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-44/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-45/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -667,6 +675,7 @@
 <a href="https://algiamedical.com/techvantor-xyz-resource-1-2/">techvantor xyz resource 1 2</a> 
 <a href="https://algiamedical.com/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
 <a href="https://algiamedical.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://algiamedical.com/the-basics-of-staying-safe-while-browsing-explained-simply-2/">the basics of staying safe while browsing explained simply 2</a> 
 <a href="https://algiamedical.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
 <a href="https://algiamedical.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
 <a href="https://algiamedical.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
@@ -793,12 +802,3 @@
 <a href="https://algiamedical.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
 <a href="https://algiamedical.com/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
 <a href="https://algiamedical.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
-<a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://algiamedical.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://algiamedical.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
-<a href="https://algiamedical.com/what-to-know-about-how-to-fact-check-something-in-five-minut/">what to know about how to fact check something in five minut</a> 
-<a href="https://algiamedical.com/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
-<a href="https://algiamedical.com/what-to-know-about-how-to-spot-low-quality-content-online-2/">what to know about how to spot low quality content online 2</a> 

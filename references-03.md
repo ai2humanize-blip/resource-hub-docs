@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://789jl1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://789jl1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://789jl1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://7game1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://7game1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://7game1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
@@ -98,6 +101,7 @@
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://agenciainmobiliaria.xyz/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
 <a href="https://agenciainmobiliaria.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
 <a href="https://agenciainmobiliaria.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -798,7 +802,3 @@
 <a href="https://agriculture-lawyer.com/navigating-crypto-crisis-smart-contracts-nfts-more-a-deep-di-75-4/">navigating crypto crisis smart contracts nfts more a deep di</a> 
 <a href="https://agriculture-lawyer.com/navigating-crypto-guides-reviews-and-how-tos-for-beginners-a-75-5/">navigating crypto guides reviews and how tos for beginners a</a> 
 <a href="https://agriculture-lawyer.com/navigating-marketing-seo-growth-avoiding-misinformation-and-75-6/">navigating marketing seo growth avoiding misinformation and </a> 
-<a href="https://agriculture-lawyer.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://agriculture-lawyer.com/navigating-online-casino-news-safety-and-responsible-gamblin/">navigating online casino news safety and responsible gamblin</a> 
-<a href="https://agriculture-lawyer.com/navigating-online-casinos-safely-tips-for-responsible-gambli/">navigating online casinos safely tips for responsible gambli</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-complex-world-of-ai-regulation-challenges-and/">navigating the complex world of ai regulation challenges and</a> 
