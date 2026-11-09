@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-44.md) · [‹ prev](references-42.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp">QmXevhj8yaBKUTr3C9XFwU4aTjTMKH3drxbBvKh2yAwKBp</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA">QmXkDG4GbWjWQRRuSxq9EoDi7X6731Eqny3PP6ZbVSgrxA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW">QmXq6nLkyY4qMcnDaYwrmhYUXzTBakPv9CEZg83Um2PVuW</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmXrwtRqLoHJXTuExRKjzTqNzfSAJMUNqEtmN9gkxrSw8z">QmXrwtRqLoHJXTuExRKjzTqNzfSAJMUNqEtmN9gkxrSw8z</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw">QmYGCbqEejPXfkXHmNJ4bGNsyUipKAmbu8hVnysFxVQBhw</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp">QmYNYWEZ8QFCxzUXxsxZ2ZM77mXDHNxGiK1tqcC6JXFgTp</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa">QmYWHphtSJaSW1ME9RuSGo4kYLwRoo5pmp4y3ZL3Q5erTa</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc">QmYaDGTmTxUti7z1eiDBQU1j3rDTLWxv5KEmtTQiwzs2Kc</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw">QmYaSzs5g6h2nNqGJWpASjCrcGkqf7fTPraP1swiff42dw</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7">QmYg2MLAEoTESoF5fRmysjs3ZvRBwkeo5Y9S4FczGUFcE7</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYi5zaYpxyatQtDPfy1oFCJGjJDBeCxzwJmi4tsyehJZB">QmYi5zaYpxyatQtDPfy1oFCJGjJDBeCxzwJmi4tsyehJZB</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3">QmYpfeo3QucEezSVWnjnHzHkd7tcu7ULjYaVRY7iDA2SB3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX">QmZBu3ateKaz8Mhhs3qaNh4RFXTQYTZUkCdnJ3MFdfNFZX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj">QmZFxzKM6XLFkm5JwGUzDXqLXAssbbxaahagKHEKvkt4uj</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o">QmZGb5JhPaUJukFBjr88e34WutPyt2xZFPqYjmWLjmHK1o</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA">QmZLeZqXGiPBmjveioYJR3g86jGVtYZZxNj4vwgzWHHCnA</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZT8JqUbm2dnt5wBncfHGzU8okXs888d74h6V2H1dQN77">QmZT8JqUbm2dnt5wBncfHGzU8okXs888d74h6V2H1dQN77</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZWiUSfTj9MmpMGbTqmFoH8q3o1RfW2v7LDzGMRioXFvh">QmZWiUSfTj9MmpMGbTqmFoH8q3o1RfW2v7LDzGMRioXFvh</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZdXLbYtPwBoFNE5yCdg6s8TcM4ee1GRtWUbXWfNRJHsT">QmZdXLbYtPwBoFNE5yCdg6s8TcM4ee1GRtWUbXWfNRJHsT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZhPTvryYjnRZn94WeKMmQxa2rFQ3aL67WFfkMwKrR8zh">QmZhPTvryYjnRZn94WeKMmQxa2rFQ3aL67WFfkMwKrR8zh</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmZiazvJJjwz7myo9TPajTf4qenWfXKGCEi1mrm5SU18rq">QmZiazvJJjwz7myo9TPajTf4qenWfXKGCEi1mrm5SU18rq</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmZmfkNhLrdavikDberQgx6ytgGPKWftNzDUdzNGqV7PAD">QmZmfkNhLrdavikDberQgx6ytgGPKWftNzDUdzNGqV7PAD</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmZogmTA25DsThhGj5dFc8kdH3M58iLefbB9b66JRxFVcS">QmZogmTA25DsThhGj5dFc8kdH3M58iLefbB9b66JRxFVcS</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmZvhuFxXdoaRzJn5y3Q723Xa9Zk7QKHZRwhwgMfSLr5sq">QmZvhuFxXdoaRzJn5y3Q723Xa9Zk7QKHZRwhwgMfSLr5sq</a> 
@@ -781,24 +802,3 @@
 <a href="https://jollibeecasino.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
 <a href="https://jollibeecasino.xyz/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
 <a href="https://jollibeecasino.xyz/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://jollibeecasino.xyz/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
-<a href="https://jollibeecasino.xyz/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://jollibeecasino.xyz/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
-<a href="https://jollibeecasino.xyz/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
-<a href="https://jollibeecasino.xyz/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
-<a href="https://jollibeecasino.xyz/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://jollibeecasino.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://jollibeecasino.xyz/media-partnerships-in-the-independent-web/">media partnerships in the independent web</a> 
-<a href="https://jollibeecasino.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://jollibeecasino.xyz/oxpoll-cc-resource-3/">oxpoll cc resource 3</a> 
-<a href="https://jollibeecasino.xyz/phonespeakerclean-com-resource-3/">phonespeakerclean com resource 3</a> 
-<a href="https://jollibeecasino.xyz/practical-tech-tips-worth-knowing/">practical tech tips worth knowing</a> 
-<a href="https://jollibeecasino.xyz/quikconsolecom-net-resource-3/">quikconsolecom net resource 3</a> 
-<a href="https://jollibeecasino.xyz/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://jollibeecasino.xyz/renew-your-philippine-passport/">renew your philippine passport</a> 
-<a href="https://jollibeecasino.xyz/robthecoins-xyz-resource-3/">robthecoins xyz resource 3</a> 
-<a href="https://jollibeecasino.xyz/satta-record-charts/">satta record charts</a> 
-<a href="https://jollibeecasino.xyz/simple-habits-of-a-smart-internet-reader-a-practical-guide/">simple habits of a smart internet reader a practical guide</a> 
-<a href="https://jollibeecasino.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://jollibeecasino.xyz/stubble-burning-and-winter-smog-in-north-india-why-air-quali/">stubble burning and winter smog in north india why air quali</a> 
-<a href="https://jollibeecasino.xyz/techvantor-xyz-resource-3/">techvantor xyz resource 3</a> 

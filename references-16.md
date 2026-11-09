@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://cbd-stone.com/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
+<a href="https://cbd-stone.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://cbd-stone.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cbd-stone.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cbd-stone.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://cbd-stone.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cbd-stone.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cbd-stone.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cbd-stone.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://cbd-stone.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://cbd-stone.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
+<a href="https://cbd-stone.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://cbd-stone.com/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cbd-stone.com/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cbd-stone.com/air-quality-in-kolkata-winter-pollution-and-health-context/">air quality in kolkata winter pollution and health context</a> 
+<a href="https://cbd-stone.com/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
 <a href="https://cbd-stone.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
 <a href="https://cbd-stone.com/arcenturf-quoi-sert-un-site-d-information-sur-le-turf/">arcenturf quoi sert un site d information sur le turf</a> 
 <a href="https://cbd-stone.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
@@ -781,24 +802,3 @@
 <a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-39/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-4/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-40/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-41/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-42/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-43/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-44/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-45/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-46/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-47/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-48/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-49/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-5/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-50/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-51/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-52/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-53/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-54/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-55/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-56/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-57/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-58/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-59/">business finance productivity 50 resources worth bookmarking</a> 
-<a href="https://cbdpuffbars.com/business-finance-productivity-50-resources-worth-bookmarking-84-3-6/">business finance productivity 50 resources worth bookmarking</a> 

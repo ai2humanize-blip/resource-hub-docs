@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://7game1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://7game1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://7game1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://7game1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://7game1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://7game1.xyz/hello-world/">hello world</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/navigating-the-digital-world-guides-reviews-how-tos-for-smar-75-5/">navigating the digital world guides reviews how tos for smar</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-evolving-landscape-of-news-consumption-in-202-75-9/">navigating the evolving landscape of news consumption in 202</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-evolving-landscape-of-news-consumption-insigh/">navigating the evolving landscape of news consumption insigh</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-future-a-comprehensive-guide-to-web-tech-cont-75-4-2/">navigating the future a comprehensive guide to web tech cont</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-future-a-comprehensive-guide-to-web-tech-cont-75-4/">navigating the future a comprehensive guide to web tech cont</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain-2/">navigating the future cryptocurrency bitcoin and blockchain </a> 

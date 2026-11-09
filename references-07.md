@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://algiamedical.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://algiamedical.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
+<a href="https://algiamedical.com/why-your-phone-charges-slowly/">why your phone charges slowly</a> 
+<a href="https://alientapereviews.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://alientapereviews.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://alientapereviews.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://alientapereviews.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://alientapereviews.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://alientapereviews.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://alientapereviews.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://alientapereviews.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://alientapereviews.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://alientapereviews.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -791,14 +802,3 @@
 <a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-and-producti-25-2-4/">navigating the intersection of business finance and producti</a> 
 <a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-and-producti-25-2-5/">navigating the intersection of business finance and producti</a> 
 <a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-and-producti-25-2-6/">navigating the intersection of business finance and producti</a> 
-<a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-and-producti-25-2-7/">navigating the intersection of business finance and producti</a> 
-<a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-and-producti-25-2-8/">navigating the intersection of business finance and producti</a> 
-<a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-and-producti-25-2-9/">navigating the intersection of business finance and producti</a> 
-<a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-and-producti-25-2/">navigating the intersection of business finance and producti</a> 
-<a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-productivity-25-2-2/">navigating the intersection of business finance productivity</a> 
-<a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-productivity-25-2-3/">navigating the intersection of business finance productivity</a> 
-<a href="https://app.zentrack.net/navigating-the-intersection-of-business-finance-productivity-25-2/">navigating the intersection of business finance productivity</a> 
-<a href="https://app.zentrack.net/navigating-the-intersection-of-fashion-style-and-modern-life-25-2/">navigating the intersection of fashion style and modern life</a> 
-<a href="https://app.zentrack.net/navigating-the-latest-news-expert-analysis-and-insights-for/">navigating the latest news expert analysis and insights for</a> 
-<a href="https://app.zentrack.net/navigating-the-latest-news-in-depth-analysis-and-expert-insi-2/">navigating the latest news in depth analysis and expert insi</a> 
-<a href="https://app.zentrack.net/navigating-the-latest-news-in-depth-analysis-and-expert-insi/">navigating the latest news in depth analysis and expert insi</a> 
