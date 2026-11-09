@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://123angelnumber.com/thefontworld-net-resource-3/">thefontworld net resource 3</a> 
 <a href="https://123angelnumber.com/timeless-baby-names-their-meanings-a-comprehensive-guide-76-5/">timeless baby names their meanings a comprehensive guide 76 </a> 
 <a href="https://123angelnumber.com/tlt-ng-resource-3/">tlt ng resource 3</a> 
@@ -69,6 +70,8 @@
 <a href="https://123angelnumber.com/using-a-crypto-card-for-travel-fees-fx-and-what-to-check/">using a crypto card for travel fees fx and what to check</a> 
 <a href="https://123angelnumber.com/wallets-and-self-custody-the-safety-first-basics-2/">wallets and self custody the safety first basics 2</a> 
 <a href="https://123angelnumber.com/wallets-and-self-custody-the-safety-first-basics/">wallets and self custody the safety first basics</a> 
+<a href="https://123angelnumber.com/web-tech-content-apps-crypto-cards-and-market-warnings-76-3/">web tech content apps crypto cards and market warnings 76 3</a> 
+<a href="https://123angelnumber.com/web-tech-content-roundup-shopwowwee-and-palette-press-76-3/">web tech content roundup shopwowwee and palette press 76 3</a> 
 <a href="https://123angelnumber.com/web-tech-content-your-ultimate-guide-to-digital-productivity-76-8/">web tech content your ultimate guide to digital productivity</a> 
 <a href="https://123angelnumber.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
 <a href="https://123angelnumber.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
@@ -799,6 +802,3 @@
 <a href="https://789jl1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://789jl1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://7game1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://7game1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://7game1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://7game1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 

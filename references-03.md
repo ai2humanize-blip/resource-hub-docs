@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://7game1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://7game1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://7game1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://7game1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://7game1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://7game1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
@@ -271,9 +274,11 @@
 <a href="https://agriculture-lawyer.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://agriculture-lawyer.com/building-your-personal-web-toolkit-guides-reviews-how-tos-75-5/">building your personal web toolkit guides reviews how tos 75</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-a-comprehensive-guide-to-under-75-7/">business finance productivity a comprehensive guide to under</a> 
+<a href="https://agriculture-lawyer.com/business-finance-productivity-a-practical-playbook-75-2/">business finance productivity a practical playbook 75 2</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-essential-independent-websites-75-7/">business finance productivity essential independent websites</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-essential-resources-for-2026-75-7/">business finance productivity essential resources for 2026 7</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-navigating-news-trends-and-res-75-7/">business finance productivity navigating news trends and res</a> 
+<a href="https://agriculture-lawyer.com/business-finance-productivity-tools-and-market-risk-guide-75-2/">business finance productivity tools and market risk guide 75</a> 
 <a href="https://agriculture-lawyer.com/business-finance-productivity-unlocking-success-in-the-moder-75-7/">business finance productivity unlocking success in the moder</a> 
 <a href="https://agriculture-lawyer.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
 <a href="https://agriculture-lawyer.com/choosing-the-right-virtual-seo-expert-in-2026-a-comprehensiv-75-6/">choosing the right virtual seo expert in 2026 a comprehensiv</a> 
@@ -335,6 +340,7 @@
 <a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
 <a href="https://agriculture-lawyer.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-75-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://agriculture-lawyer.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://agriculture-lawyer.com/digital-tools-online-resources-a-practical-roundup-75-3/">digital tools online resources a practical roundup 75 3</a> 
 <a href="https://agriculture-lawyer.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
 <a href="https://agriculture-lawyer.com/discover-the-best-browser-games-digital-tools-for-endless-en-75-8/">discover the best browser games digital tools for endless en</a> 
 <a href="https://agriculture-lawyer.com/discover-the-best-digital-tools-online-resources-for-every-n-75-3/">discover the best digital tools online resources for every n</a> 
@@ -796,9 +802,3 @@
 <a href="https://agriculture-lawyer.com/navigating-the-complex-world-of-web-tech-content-a-comprehen-75-4/">navigating the complex world of web tech content a comprehen</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-crypto-market-a-deep-dive-into-price-volume-a-75-4/">navigating the crypto market a deep dive into price volume a</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-cryptocurrency-landscape-bitcoin-blockchain-a/">navigating the cryptocurrency landscape bitcoin blockchain a</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-digital-landscape-web-tech-and-content-insigh-75-4/">navigating the digital landscape web tech and content insigh</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-digital-landscape-web-tech-content-insights-75-4/">navigating the digital landscape web tech content insights 7</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-digital-world-guides-reviews-how-tos-for-info-75-5/">navigating the digital world guides reviews how tos for info</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-digital-world-guides-reviews-how-tos-for-smar-75-5/">navigating the digital world guides reviews how tos for smar</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-evolving-landscape-of-news-consumption-in-202-75-9/">navigating the evolving landscape of news consumption in 202</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-evolving-landscape-of-news-consumption-insigh/">navigating the evolving landscape of news consumption insigh</a> 
