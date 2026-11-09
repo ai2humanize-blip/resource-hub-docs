@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://7game1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://7game1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://7game1.xyz/hello-world/">hello world</a> 
 <a href="https://7game1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://7game1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://7game1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -512,6 +515,9 @@
 <a href="https://agriculture-lawyer.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://agriculture-lawyer.com/guest-post-sites-list/">guest post sites list</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-1-resources-worth-bookmarking-75-5/">guides reviews how tos 1 resources worth bookmarking 75 5</a> 
+<a href="https://agriculture-lawyer.com/guides-reviews-how-tos-50-resources-worth-bookmarking-75-5/">guides reviews how tos 50 resources worth bookmarking 75 5</a> 
+<a href="https://agriculture-lawyer.com/guides-reviews-how-tos-for-tutuapp-and-crypto-card-hub-75-5/">guides reviews how tos for tutuapp and crypto card hub 75 5</a> 
+<a href="https://agriculture-lawyer.com/guides-reviews-how-tos-haunted-palace-and-crypto-cards-75-5/">guides reviews how tos haunted palace and crypto cards 75 5</a> 
 <a href="https://agriculture-lawyer.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://agriculture-lawyer.com/how-ai-is-revolutionizing-news-consumption-trends-tools-and/">how ai is revolutionizing news consumption trends tools and</a> 
 <a href="https://agriculture-lawyer.com/how-ai-powered-apps-are-revolutionizing-our-digital-lives/">how ai powered apps are revolutionizing our digital lives</a> 
@@ -796,9 +802,3 @@
 <a href="https://agriculture-lawyer.com/navigating-the-future-a-comprehensive-guide-to-web-tech-cont-75-4-2/">navigating the future a comprehensive guide to web tech cont</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-future-a-comprehensive-guide-to-web-tech-cont-75-4/">navigating the future a comprehensive guide to web tech cont</a> 
 <a href="https://agriculture-lawyer.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain-2/">navigating the future cryptocurrency bitcoin and blockchain </a> 
-<a href="https://agriculture-lawyer.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-future-of-business-finance-productivity-exper-75-7/">navigating the future of business finance productivity exper</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-future-of-digital-marketing-seo-growth-strate-75-6/">navigating the future of digital marketing seo growth strate</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-future-of-media-marketing-seo-growth-trends-75-6/">navigating the future of media marketing seo growth trends 7</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-future-of-news-current-trends-and-expert-anal/">navigating the future of news current trends and expert anal</a> 
-<a href="https://agriculture-lawyer.com/navigating-the-future-of-news-expert-analysis-and-key-insigh-75-7/">navigating the future of news expert analysis and key insigh</a> 

@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-64.md) · [‹ prev](references-62.md)
 
+<a href="https://pharmacoplus.com/career-advice/">career advice</a> 
+<a href="https://pharmacoplus.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
+<a href="https://pharmacoplus.com/classic-arcade-style-games-you-can-play-in-a-browser/">classic arcade style games you can play in a browser</a> 
+<a href="https://pharmacoplus.com/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
+<a href="https://pharmacoplus.com/comprehensive-guides-in-depth-reviews-and-practical-how-tos-117-3/">comprehensive guides in depth reviews and practical how tos </a> 
+<a href="https://pharmacoplus.com/comprehensive-roundup-guides-reviews-how-tos-for-every-inter-117-8/">comprehensive roundup guides reviews how tos for every inter</a> 
+<a href="https://pharmacoplus.com/cplemaire-quoi-sert-un-annuaire-du-turf/">cplemaire quoi sert un annuaire du turf</a> 
+<a href="https://pharmacoplus.com/decoding-today-s-news-in-depth-analysis-and-expert-insights/">decoding today s news in depth analysis and expert insights</a> 
+<a href="https://pharmacoplus.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://pharmacoplus.com/discover-the-best-digital-tools-online-resources-for-success-117-1/">discover the best digital tools online resources for success</a> 
+<a href="https://pharmacoplus.com/embrace-organic-living-your-guide-to-holistic-health-and-wel/">embrace organic living your guide to holistic health and wel</a> 
+<a href="https://pharmacoplus.com/essential-digital-tools-online-resources-for-modern-needs-117-1/">essential digital tools online resources for modern needs 11</a> 
+<a href="https://pharmacoplus.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://pharmacoplus.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://pharmacoplus.com/exploring-the-vibrant-world-of-independent-music-culture/">exploring the vibrant world of independent music culture</a> 
+<a href="https://pharmacoplus.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://pharmacoplus.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://pharmacoplus.com/getting-how-to-bookmark-and-revisit-useful-resources-right/">getting how to bookmark and revisit useful resources right</a> 
+<a href="https://pharmacoplus.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://pharmacoplus.com/getting-how-to-read-the-news-without-getting-overwhelmed-right/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://pharmacoplus.com/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
 <a href="https://pharmacoplus.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://pharmacoplus.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
 <a href="https://pharmacoplus.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
@@ -781,24 +802,3 @@
 <a href="https://playboicartinetworth.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
 <a href="https://playboicartinetworth.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
 <a href="https://playboicartinetworth.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
-<a href="https://playboicartinetworth.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
-<a href="https://playboicartinetworth.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
-<a href="https://playboicartinetworth.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
-<a href="https://playboicartinetworth.com/how-personal-finance-skills-can-transform-your-business-and/">how personal finance skills can transform your business and</a> 
-<a href="https://playboicartinetworth.com/how-popular-baby-names-change-over-the-decades-a-quick-guide/">how popular baby names change over the decades a quick guide</a> 
-<a href="https://playboicartinetworth.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
-<a href="https://playboicartinetworth.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
-<a href="https://playboicartinetworth.com/how-technology-and-apps-are-transforming-everyday-life-in-20/">how technology and apps are transforming everyday life in 20</a> 
-<a href="https://playboicartinetworth.com/how-technology-and-apps-are-transforming-everyday-life/">how technology and apps are transforming everyday life</a> 
-<a href="https://playboicartinetworth.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://playboicartinetworth.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
-<a href="https://playboicartinetworth.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
-<a href="https://playboicartinetworth.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://playboicartinetworth.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
-<a href="https://playboicartinetworth.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 
-<a href="https://playboicartinetworth.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
-<a href="https://playboicartinetworth.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
-<a href="https://playboicartinetworth.com/how-to-build-a-personal-reading-list-a-practical-guide/">how to build a personal reading list a practical guide</a> 
-<a href="https://playboicartinetworth.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
-<a href="https://playboicartinetworth.com/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
-<a href="https://playboicartinetworth.com/how-to-build-a-weekly-cleaning-routine-that-actually-sticks/">how to build a weekly cleaning routine that actually sticks</a> 
