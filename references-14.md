@@ -518,7 +518,9 @@
 <a href="https://captainjackinterview.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-82-2/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://captainjackinterview.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://captainjackinterview.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://captainjackinterview.com/digital-tools-online-resources-50-resources-worth-bookmarkin-82-1-2/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-50-resources-worth-bookmarkin-82-1/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://captainjackinterview.com/digital-tools-online-resources-a-practical-site-roundup-82-1/">digital tools online resources a practical site roundup 82 1</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-for-daily-prayer-and-social-m-82-1/">digital tools online resources for daily prayer and social m</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-for-safer-smarter-browsing-82-1/">digital tools online resources for safer smarter browsing 82</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-for-smarter-browsing-82-6/">digital tools online resources for smarter browsing 82 6</a> 
@@ -800,5 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-20/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-21/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-22/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-23/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-24/">mastering business finance and productivity a comprehensive </a> 

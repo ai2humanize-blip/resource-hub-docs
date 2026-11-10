@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://casinonutanlicens.xyz/a-practical-guide-to-useful-online-resources-2/">a practical guide to useful online resources 2</a> 
+<a href="https://casinonutanlicens.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://casinonutanlicens.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://casinonutanlicens.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://casinonutanlicens.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
@@ -358,6 +360,7 @@
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-62/">guides reviews how tos 50 resources worth bookmarking 83 2 6</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-63/">guides reviews how tos 50 resources worth bookmarking 83 2 6</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-64/">guides reviews how tos 50 resources worth bookmarking 83 2 6</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-65/">guides reviews how tos 50 resources worth bookmarking 83 2 6</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-7/">guides reviews how tos 50 resources worth bookmarking 83 2 7</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-8/">guides reviews how tos 50 resources worth bookmarking 83 2 8</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-50-resources-worth-bookmarking-83-2-9/">guides reviews how tos 50 resources worth bookmarking 83 2 9</a> 
@@ -367,6 +370,7 @@
 <a href="https://cbd-stone.com/guides-reviews-how-tos-a-smarter-path-to-better-answers-83-2/">guides reviews how tos a smarter path to better answers 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-casinos-poker-crypto-and-ramps-83-2/">guides reviews how tos casinos poker crypto and ramps 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-crypto-and-casino-decisions-83-2/">guides reviews how tos for crypto and casino decisions 83 2</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-for-smarter-crypto-decisions-83-2/">guides reviews how tos for smarter crypto decisions 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-smarter-crypto-pr-decisions-83-2/">guides reviews how tos for smarter crypto pr decisions 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-smarter-everyday-decisions-83-2/">guides reviews how tos for smarter everyday decisions 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-tech-crypto-and-xrp-83-2/">guides reviews how tos for tech crypto and xrp 83 2</a> 
@@ -798,7 +802,3 @@
 <a href="https://cbd-stone.com/web-2-0-backlinks-2/">web 2 0 backlinks 2</a> 
 <a href="https://cbd-stone.com/web-2-0-backlinks/">web 2 0 backlinks</a> 
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-2/">web tech content 50 resources worth bookmarking 83 1 2</a> 
-<a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-3/">web tech content 50 resources worth bookmarking 83 1 3</a> 
-<a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-4/">web tech content 50 resources worth bookmarking 83 1 4</a> 
-<a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-5/">web tech content 50 resources worth bookmarking 83 1 5</a> 
-<a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1/">web tech content 50 resources worth bookmarking 83 1</a> 

@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-23/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-24/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-25/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-26/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-27/">mastering business finance and productivity a comprehensive </a> 
@@ -800,5 +802,3 @@
 <a href="https://casinonutanlicens.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://casinonutanlicens.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://casinonutanlicens.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://casinonutanlicens.xyz/a-practical-guide-to-useful-online-resources-2/">a practical guide to useful online resources 2</a> 
-<a href="https://casinonutanlicens.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
