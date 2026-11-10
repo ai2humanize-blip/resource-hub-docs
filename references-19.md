@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cbdstent.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://cbdstent.com/why-context-matters-when-reading-online-the-basics-2/">why context matters when reading online the basics 2</a> 
+<a href="https://cbdstent.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-85-9/">why niche blogs still matter a deep dive into web tech conte</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
+<a href="https://cbdstent.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://cbdstent.com/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://cbdstent.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://cbdstent.com/why-you-have-gnats-indoors-and-how-to-identify-the-source/">why you have gnats indoors and how to identify the source</a> 
 <a href="https://cdn.jsdelivr.net/npm/curated-web-directory-hub/index.html">index</a> 
 <a href="https://cdn.jsdelivr.net/npm/curated-web-directory-hub@1.0.0/index.html">index</a> 
@@ -793,12 +802,3 @@
 <a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
 <a href="https://cplemaire.us.org/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
 <a href="https://cplemaire.us.org/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
-<a href="https://cplemaire.us.org/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
-<a href="https://cplemaire.us.org/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://cplemaire.us.org/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://cplemaire.us.org/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://cplemaire.us.org/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide-2/">recognizing credible experts online a quick guide 2</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
-<a href="https://cplemaire.us.org/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
