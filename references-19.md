@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://chipper-entremet-0ee919.netlify.app/getting-how-to-read-the-news-without-getting-overwhelmed-rig.html">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://classy-custard-27adf4.netlify.app/what-is-yield-farming-real-risks.html">what is yield farming real risks</a> 
+<a href="https://classy-empanada-6ccd15.netlify.app/how-to-read-the-news-without-getting-overwhelmed-explained-s.html">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://classy-pudding-7b19a6.netlify.app/carmannews.html">carmannews</a> 
+<a href="https://clever-fenglisu-21c457.netlify.app/how-to-tell-explainer-journalism-from-opinion-the-basics.html">how to tell explainer journalism from opinion the basics</a> 
+<a href="https://clinquant-moonbeam-2b26e4.netlify.app/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon.html">navigating the crypto landscape bitcoin blockchain and beyon</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-on/">a closer look at how to organize the information you find on</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-makes-an-explainer-article-genuinely-useful/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://cmdslot.xyz/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://cmdslot.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://cmdslot.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://cmdslot.xyz/a-guide-to-guest-contributing-and-press-outreach/">a guide to guest contributing and press outreach</a> 
 <a href="https://cmdslot.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
 <a href="https://cmdslot.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://cmdslot.xyz/a-practical-guide-to-working-with-independent-publishers/">a practical guide to working with independent publishers</a> 
@@ -784,21 +802,3 @@
 <a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
 <a href="https://cplemaire.us.org/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
 <a href="https://cplemaire.us.org/tlt-ng-resource-2/">tlt ng resource 2</a> 
-<a href="https://cplemaire.us.org/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
-<a href="https://cplemaire.us.org/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
-<a href="https://cplemaire.us.org/understanding-baby-name-origins-across-cultures-and-language-2/">understanding baby name origins across cultures and language</a> 
-<a href="https://cplemaire.us.org/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
-<a href="https://cplemaire.us.org/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://cplemaire.us.org/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
-<a href="https://cplemaire.us.org/understanding-cryptocurrency-a-plain-language-introduction-f/">understanding cryptocurrency a plain language introduction f</a> 
-<a href="https://cplemaire.us.org/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
-<a href="https://cplemaire.us.org/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://cplemaire.us.org/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
-<a href="https://cplemaire.us.org/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
-<a href="https://cplemaire.us.org/understanding-french-horse-racing-and-turf-guides-what-to-kn/">understanding french horse racing and turf guides what to kn</a> 
-<a href="https://cplemaire.us.org/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-and-why-it-matte-2/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://cplemaire.us.org/understanding-ott-platforms-where-new-shows-and-movies-premi/">understanding ott platforms where new shows and movies premi</a> 
-<a href="https://cplemaire.us.org/understanding-the-air-quality-index-aqi-how-to-read-it-and-w/">understanding the air quality index aqi how to read it and w</a> 

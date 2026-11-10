@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxx3yian2z">3msjxx3yian2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxcd2pi2h">3msjxxcd2pi2h</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxximto72c">3msjxximto72c</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxowsk22n">3msjxxowsk22n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxvb54m26">3msjxxvb54m26</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxy3ksdo2u">3msjxy3ksdo2u</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxybuqbq2h">3msjxybuqbq2h</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxyi6bk22n">3msjxyi6bk22n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxyoi4gm2m">3msjxyoi4gm2m</a> 
@@ -682,6 +688,7 @@
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-2/">guides reviews how tos 50 resources worth bookmarking 82 8 2</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-3/">guides reviews how tos 50 resources worth bookmarking 82 8 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8/">guides reviews how tos 50 resources worth bookmarking 82 8</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-a-practical-lumora-roundup-82-3/">guides reviews how tos a practical lumora roundup 82 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-a-smarter-guide-to-reading-online-82-8/">guides reviews how tos a smarter guide to reading online 82 </a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-for-better-online-decisions-82-3/">guides reviews how tos for better online decisions 82 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-for-facts-trivia-and-social-growth-82-3/">guides reviews how tos for facts trivia and social growth 82</a> 
@@ -766,6 +773,7 @@
 <a href="https://captainjackinterview.com/marketing-seo-growth-50-resources-worth-bookmarking-82-9/">marketing seo growth 50 resources worth bookmarking 82 9</a> 
 <a href="https://captainjackinterview.com/marketing-seo-growth-a-practical-guide-for-seafood-brands-82-4/">marketing seo growth a practical guide for seafood brands 82</a> 
 <a href="https://captainjackinterview.com/marketing-seo-growth-a-practical-resource-roundup-82-4/">marketing seo growth a practical resource roundup 82 4</a> 
+<a href="https://captainjackinterview.com/marketing-seo-growth-a-practical-roundup-for-brand-teams-82-4/">marketing seo growth a practical roundup for brand teams 82 </a> 
 <a href="https://captainjackinterview.com/marketing-seo-growth-haunted-palace-and-crypto-card-hub-82-4/">marketing seo growth haunted palace and crypto card hub 82 4</a> 
 <a href="https://captainjackinterview.com/master-digital-tools-online-resources-for-smarter-reading-re-82-1/">master digital tools online resources for smarter reading re</a> 
 <a href="https://captainjackinterview.com/master-marketing-seo-growth-your-guide-to-online-success-82-4/">master marketing seo growth your guide to online success 82 </a> 
@@ -794,11 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-25/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-26/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-27/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-28/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-29/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-3/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-30/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-31/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-4/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-5/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-6/">mastering business finance and productivity a comprehensive </a> 
