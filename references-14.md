@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy22pt5a2j">3msjy22pt5a2j</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy2b6pcs2n">3msjy2b6pcs2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy2high72n">3msjy2high72n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy2nsvve2s">3msjy2nsvve2s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy2u4tu72n">3msjy2u4tu72n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy32grns2j">3msjy32grns2j</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy3aqygq2h">3msjy3aqygq2h</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy3h7bwc2j">3msjy3h7bwc2j</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy3njbvp2n">3msjy3njbvp2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy3tt2t72c">3msjy3tt2t72c</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjy4257os2n">3msjy4257os2n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msn2glasq32s">3msn2glasq32s</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxi2dlodm2u">3msxi2dlodm2u</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxjyats2n2u">3msxjyats2n2u</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxkvncckr2v">3msxkvncckr2v</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxlvbvktv2y">3msxlvbvktv2y</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxmxe6xwt2u">3msxmxe6xwt2u</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxnxvdavn2v">3msxnxvdavn2v</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxouyrbz32u">3msxouyrbz32u</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msxpruqpz222">3msxpruqpz222</a> 
@@ -651,6 +668,7 @@
 <a href="https://captainjackinterview.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://captainjackinterview.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
 <a href="https://captainjackinterview.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-3-2/">guides reviews how tos 50 resources worth bookmarking 82 3 2</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-3/">guides reviews how tos 50 resources worth bookmarking 82 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-2/">guides reviews how tos 50 resources worth bookmarking 82 8 2</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-3/">guides reviews how tos 50 resources worth bookmarking 82 8 3</a> 
@@ -784,21 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-essential-tools-82-10/">mastering business finance and productivity essential tools </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-in-the-crypto-sp-82-10/">mastering business finance and productivity in the crypto sp</a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-key-insights-and-82-10/">mastering business finance and productivity key insights and</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-10-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-10-3/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-10-4/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-10-5/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-10-6/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-10/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-5-2/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-guid-82-5/">mastering business finance productivity a comprehensive guid</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-roun-82-10-2/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-roun-82-10-3/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-a-comprehensive-roun-82-10/">mastering business finance productivity a comprehensive roun</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-essential-strategies-82-10/">mastering business finance productivity essential strategies</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-essential-tools-stra-82-10/">mastering business finance productivity essential tools stra</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-productivity-key-insights-for-suc-82-10/">mastering business finance productivity key insights for suc</a> 
-<a href="https://captainjackinterview.com/mastering-business-personal-finance-and-marketing-a-comprehe/">mastering business personal finance and marketing a comprehe</a> 
-<a href="https://captainjackinterview.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-82-3/">mastering digital literacy guides reviews and how tos for th</a> 
-<a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-2/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://captainjackinterview.com/mastering-digital-tools-online-resources-a-comprehensive-gui-82-1-3/">mastering digital tools online resources a comprehensive gui</a> 
