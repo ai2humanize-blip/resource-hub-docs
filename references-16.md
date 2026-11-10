@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://casinonutanlicens.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://casinonutanlicens.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://casinonutanlicens.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
 <a href="https://casinonutanlicens.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
 <a href="https://casinonutanlicens.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
 <a href="https://casinonutanlicens.xyz/air-quality-in-pune-what-affects-the-air-you-breathe/">air quality in pune what affects the air you breathe</a> 
@@ -223,6 +226,7 @@
 <a href="https://cbd-stone.com/creating-online-polls-and-surveys-and-reading-results-what-t/">creating online polls and surveys and reading results what t</a> 
 <a href="https://cbd-stone.com/criptano/">criptano</a> 
 <a href="https://cbd-stone.com/crypto-cards-vs-bank-cards-a-comprehensive-guide-to-choosing-83-2/">crypto cards vs bank cards a comprehensive guide to choosing</a> 
+<a href="https://cbd-stone.com/crypto-guides-reviews-how-tos-bridges-layers-fintech-83-2/">crypto guides reviews how tos bridges layers fintech 83 2</a> 
 <a href="https://cbd-stone.com/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
 <a href="https://cbd-stone.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-83-3/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://cbd-stone.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
@@ -363,6 +367,7 @@
 <a href="https://cbd-stone.com/guides-reviews-how-tos-a-smarter-path-to-better-answers-83-2/">guides reviews how tos a smarter path to better answers 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-casinos-poker-crypto-and-ramps-83-2/">guides reviews how tos casinos poker crypto and ramps 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-crypto-and-casino-decisions-83-2/">guides reviews how tos for crypto and casino decisions 83 2</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-for-smarter-crypto-pr-decisions-83-2/">guides reviews how tos for smarter crypto pr decisions 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-smarter-everyday-decisions-83-2/">guides reviews how tos for smarter everyday decisions 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-tech-crypto-and-xrp-83-2/">guides reviews how tos for tech crypto and xrp 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-voozon-ai-and-security-83-2/">guides reviews how tos voozon ai and security 83 2</a> 
@@ -727,6 +732,7 @@
 <a href="https://cbd-stone.com/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
 <a href="https://cbd-stone.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
 <a href="https://cbd-stone.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
+<a href="https://cbd-stone.com/tokenspin-guides-reviews-how-tos-a-practical-roundup-83-2/">tokenspin guides reviews how tos a practical roundup 83 2</a> 
 <a href="https://cbd-stone.com/transform-your-life-business-finance-and-productivity-strate-83-4/">transform your life business finance and productivity strate</a> 
 <a href="https://cbd-stone.com/transforming-your-digital-life-how-ai-driven-apps-are-revolu-83-6/">transforming your digital life how ai driven apps are revolu</a> 
 <a href="https://cbd-stone.com/transforming-your-digital-life-top-apps-and-ai-innovations-f-83-6/">transforming your digital life top apps and ai innovations f</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-4/">web tech content 50 resources worth bookmarking 83 1 4</a> 
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-5/">web tech content 50 resources worth bookmarking 83 1 5</a> 
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1/">web tech content 50 resources worth bookmarking 83 1</a> 
-<a href="https://cbd-stone.com/web-tech-content-a-practical-bitcointalk-roundup-83-1/">web tech content a practical bitcointalk roundup 83 1</a> 
-<a href="https://cbd-stone.com/web-tech-content-a-practical-currencynews-roundup-83-1-2/">web tech content a practical currencynews roundup 83 1 2</a> 
-<a href="https://cbd-stone.com/web-tech-content-a-practical-currencynews-roundup-83-1/">web tech content a practical currencynews roundup 83 1</a> 
-<a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-better-insights-83-1/">web tech content a practical guide to better insights 83 1</a> 
-<a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-crypto-and-privacy-83-1/">web tech content a practical guide to crypto and privacy 83 </a> 
-<a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-crypto-publishing-83-1/">web tech content a practical guide to crypto publishing 83 1</a> 

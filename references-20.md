@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cplemaire.us.org/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://cplemaire.us.org/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cplemaire.us.org/the-font-world/">the font world</a> 
+<a href="https://cplemaire.us.org/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
+<a href="https://cplemaire.us.org/the-origins-and-meanings-of-common-idioms-what-to-know/">the origins and meanings of common idioms what to know</a> 
+<a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
+<a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-quick-guide-2/">the value of slow careful reading a quick guide 2</a> 
+<a href="https://cplemaire.us.org/the-value-of-slow-careful-reading-a-quick-guide/">the value of slow careful reading a quick guide</a> 
+<a href="https://cplemaire.us.org/thefontworld-net-resource-2/">thefontworld net resource 2</a> 
+<a href="https://cplemaire.us.org/tlt-ng-resource-2/">tlt ng resource 2</a> 
 <a href="https://cplemaire.us.org/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
 <a href="https://cplemaire.us.org/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
 <a href="https://cplemaire.us.org/understanding-baby-name-origins-across-cultures-and-language-2/">understanding baby name origins across cultures and language</a> 
@@ -423,8 +435,11 @@
 <a href="https://crediblenews24.com/marketing-seo-growth-a-practical-ideas-roundup-86-5/">marketing seo growth a practical ideas roundup 86 5</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-a-practical-roadmap-to-results-86-5/">marketing seo growth a practical roadmap to results 86 5</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-a-practical-roundup-for-better-results-86-5/">marketing seo growth a practical roundup for better results </a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-a-practical-roundup-for-modern-teams-86-5-2/">marketing seo growth a practical roundup for modern teams 86</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-a-practical-roundup-for-modern-teams-86-5/">marketing seo growth a practical roundup for modern teams 86</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-a-practical-roundup-for-results-86-5/">marketing seo growth a practical roundup for results 86 5</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-a-roundup-of-crypto-and-casino-topics-86-5/">marketing seo growth a roundup of crypto and casino topics 8</a> 
+<a href="https://crediblenews24.com/marketing-seo-growth-a-smarter-market-content-roundup-86-5/">marketing seo growth a smarter market content roundup 86 5</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-casino-crypto-and-ramps-guide-86-5/">marketing seo growth casino crypto and ramps guide 86 5</a> 
 <a href="https://crediblenews24.com/marketing-seo-growth-crypto-casinos-and-blockchain-86-10/">marketing seo growth crypto casinos and blockchain 86 10</a> 
 <a href="https://crediblenews24.com/master-business-finance-productivity-essential-online-guides-86-6/">master business finance productivity essential online guides</a> 
@@ -787,18 +802,3 @@
 <a href="https://crediblenews24.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
 <a href="https://crediblenews24.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 
 <a href="https://crediblenews24.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
-<a href="https://crediblenews24.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
-<a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website-2/">what to look for in a good news website 2</a> 
-<a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://crediblenews24.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://crediblenews24.com/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
-<a href="https://crediblenews24.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://crediblenews24.com/why-browser-games-are-perfect-for-a-quick-break/">why browser games are perfect for a quick break</a> 
-<a href="https://crediblenews24.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://crediblenews24.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://crediblenews24.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://crediblenews24.com/why-explainer-journalism-web-and-content-matter-in-today-s-w-86-8/">why explainer journalism web and content matter in today s w</a> 
-<a href="https://crediblenews24.com/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-86-8/">why niche blogs still matter a deep dive into web tech conte</a> 
-<a href="https://crediblenews24.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://crediblenews24.com/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
-<a href="https://crediblenews24.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 

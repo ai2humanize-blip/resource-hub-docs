@@ -518,8 +518,11 @@
 <a href="https://captainjackinterview.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-82-2/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://captainjackinterview.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://captainjackinterview.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://captainjackinterview.com/digital-tools-online-resources-50-resources-worth-bookmarkin-82-1/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-for-daily-prayer-and-social-m-82-1/">digital tools online resources for daily prayer and social m</a> 
+<a href="https://captainjackinterview.com/digital-tools-online-resources-for-safer-smarter-browsing-82-1/">digital tools online resources for safer smarter browsing 82</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-for-smarter-browsing-82-6/">digital tools online resources for smarter browsing 82 6</a> 
+<a href="https://captainjackinterview.com/digital-tools-online-resources-shopwowwee-and-palette-press-82-1/">digital tools online resources shopwowwee and palette press </a> 
 <a href="https://captainjackinterview.com/discover-essential-digital-tools-online-resources-for-every-82-1/">discover essential digital tools online resources for every </a> 
 <a href="https://captainjackinterview.com/discover-the-art-of-event-planning-unique-ideas-and-tips-for/">discover the art of event planning unique ideas and tips for</a> 
 <a href="https://captainjackinterview.com/discover-the-best-ai-art-prompt-generators-guides-reviews-ho-82-3/">discover the best ai art prompt generators guides reviews ho</a> 
@@ -799,6 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-22/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-23/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-24/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-25/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-26/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-27/">mastering business finance and productivity a comprehensive </a> 

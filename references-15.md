@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-25/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-26/">mastering business finance and productivity a comprehensive </a> 
+<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-27/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-28/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-29/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-3/">mastering business finance and productivity a comprehensive </a> 
@@ -799,6 +802,3 @@
 <a href="https://casinonutanlicens.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
 <a href="https://casinonutanlicens.xyz/a-practical-guide-to-useful-online-resources-2/">a practical guide to useful online resources 2</a> 
 <a href="https://casinonutanlicens.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://casinonutanlicens.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://casinonutanlicens.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://casinonutanlicens.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
