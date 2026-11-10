@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdpuffbars.com/why-context-matters-when-reading-online-a-practical-guide-2/">why context matters when reading online a practical guide 2</a> 
+<a href="https://cbdpuffbars.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://cbdpuffbars.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://cbdpuffbars.com/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-conte-84-10/">why niche blogs still matter a deep dive into web tech conte</a> 
+<a href="https://cbdpuffbars.com/why-niche-blogs-still-matter-a-practical-guide-2/">why niche blogs still matter a practical guide 2</a> 
+<a href="https://cbdpuffbars.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://cbdpuffbars.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://cbdpuffbars.com/why-niche-blogs-still-matter-in-the-web-tech-content-landsca-84-5/">why niche blogs still matter in the web tech content landsca</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-a-practical-guide/">why primary sources matter and how to find them a practical </a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
 <a href="https://cbdpuffbars.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
 <a href="https://cbdpuffbars.com/why-you-have-gnats-indoors-and-how-to-identify-the-source/">why you have gnats indoors and how to identify the source</a> 
@@ -41,6 +53,7 @@
 <a href="https://cbdstent.com/building-your-personal-web-toolkit-guides-reviews-how-tos-85-5/">building your personal web toolkit guides reviews how tos 85</a> 
 <a href="https://cbdstent.com/business-finance-productivity-a-comprehensive-guide-to-under-85-7/">business finance productivity a comprehensive guide to under</a> 
 <a href="https://cbdstent.com/business-finance-productivity-a-crypto-decision-guide-85-7/">business finance productivity a crypto decision guide 85 7</a> 
+<a href="https://cbdstent.com/business-finance-productivity-a-practical-blockchain-roundup-85-7/">business finance productivity a practical blockchain roundup</a> 
 <a href="https://cbdstent.com/business-finance-productivity-a-practical-roundup-85-7/">business finance productivity a practical roundup 85 7</a> 
 <a href="https://cbdstent.com/business-finance-productivity-essential-independent-websites-85-7/">business finance productivity essential independent websites</a> 
 <a href="https://cbdstent.com/business-finance-productivity-navigating-online-casinos-and-85-7/">business finance productivity navigating online casinos and </a> 
@@ -789,16 +802,3 @@
 <a href="https://cmdslot.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://cmdslot.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://cmdslot.xyz/a-guide-to-guest-contributing-and-press-outreach/">a guide to guest contributing and press outreach</a> 
-<a href="https://cmdslot.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://cmdslot.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://cmdslot.xyz/a-practical-guide-to-working-with-independent-publishers/">a practical guide to working with independent publishers</a> 
-<a href="https://cmdslot.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://cmdslot.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://cmdslot.xyz/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://cmdslot.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://cmdslot.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://cmdslot.xyz/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
-<a href="https://cmdslot.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
-<a href="https://cmdslot.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://cmdslot.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 

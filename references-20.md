@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cplemaire.us.org/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
+<a href="https://cplemaire.us.org/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
+<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-and-why-it-2/">what makes an explainer article genuinely useful and why it </a> 
+<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-the-basics-2/">what makes an explainer article genuinely useful the basics </a> 
+<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
+<a href="https://cplemaire.us.org/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://cplemaire.us.org/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
 <a href="https://cplemaire.us.org/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
 <a href="https://cplemaire.us.org/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
@@ -727,6 +740,7 @@
 <a href="https://crediblenews24.com/unpacking-today-s-top-news-in-depth-analysis-and-expert-insi/">unpacking today s top news in depth analysis and expert insi</a> 
 <a href="https://crediblenews24.com/vaeyc/">vaeyc</a> 
 <a href="https://crediblenews24.com/web-tech-content-a-practical-roundup-for-modern-readers-86-8/">web tech content a practical roundup for modern readers 86 8</a> 
+<a href="https://crediblenews24.com/web-tech-content-bitcoin-and-institutional-filing-trends-86-8/">web tech content bitcoin and institutional filing trends 86 </a> 
 <a href="https://crediblenews24.com/web-tech-content-practical-tools-for-getting-out-of-debt-86-3/">web tech content practical tools for getting out of debt 86 </a> 
 <a href="https://crediblenews24.com/web-tech-content-roundup-hypepresss-com-and-conisec-com-86-8/">web tech content roundup hypepresss com and conisec com 86 8</a> 
 <a href="https://crediblenews24.com/web-tech-content-your-ultimate-guide-to-digital-productivity-86-8/">web tech content your ultimate guide to digital productivity</a> 
@@ -788,17 +802,3 @@
 <a href="https://croginalcats.xyz/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
 <a href="https://croginalcats.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
 <a href="https://croginalcats.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
-<a href="https://croginalcats.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
-<a href="https://croginalcats.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
-<a href="https://croginalcats.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://croginalcats.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://croginalcats.xyz/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://croginalcats.xyz/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://croginalcats.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://croginalcats.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
-<a href="https://croginalcats.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://croginalcats.xyz/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
-<a href="https://croginalcats.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
-<a href="https://croginalcats.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
-<a href="https://croginalcats.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
-<a href="https://croginalcats.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 

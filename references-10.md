@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/Why-Context-Matters-When-Reading-Online-a-practical-guide-3d1615d6bd4281509dbfd538ff3d071e">Why Context Matters When Reading Online a practical guide 3d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Why-Context-Matters-When-Reading-Online-a-practical-guide-3d1615d6bd42819ab5cdf35377acdabe">Why Context Matters When Reading Online a practical guide 3d</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Why-Context-Matters-When-Reading-Online-and-why-it-matters-3d1615d6bd428127a8daeddaafa3c446">Why Context Matters When Reading Online and why it matters 3</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Why-Context-Matters-When-Reading-Online-and-why-it-matters-3d3615d6bd4281989208f71925442477">Why Context Matters When Reading Online and why it matters 3</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Why-Context-Matters-When-Reading-Online-explained-simply-3d1615d6bd4281e0801edff7a73b0508">Why Context Matters When Reading Online explained simply 3d1</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Why-Instagram-Photos-Look-Blurry-and-How-to-Fix-It-3e7615d6bd4281d68f86cb0d26f0dd32">Why Instagram Photos Look Blurry and How to Fix It 3e7615d6b</a> 
+<a href="https://automatic-meeting-203.notion.site/p/Why-Niche-Blogs-Still-Matter-and-why-it-matters-401615d6bd428180b480d1484b80e0e8">Why Niche Blogs Still Matter and why it matters 401615d6bd42</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Why-Niche-Blogs-Still-Matter-explained-simply-401615d6bd4281cda3eaeeb7cc3d9c80">Why Niche Blogs Still Matter explained simply 401615d6bd4281</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Why-Niche-Blogs-Still-Matter-the-basics-3d1615d6bd42810a846ccb6598740c5a">Why Niche Blogs Still Matter the basics 3d1615d6bd42810a846c</a> 
 <a href="https://automatic-meeting-203.notion.site/p/Why-Primary-Sources-Matter-and-How-to-Find-Them-a-practical-guide-3d1615d6bd4281a68eb8d2e75a1ef23e">Why Primary Sources Matter and How to Find Them a practical </a> 
@@ -324,6 +331,7 @@
 <a href="https://autumnfallsinterview.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
 <a href="https://autumnfallsinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-80-10-2/">guides reviews how tos 50 resources worth bookmarking 80 10 </a> 
 <a href="https://autumnfallsinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-80-10/">guides reviews how tos 50 resources worth bookmarking 80 10</a> 
+<a href="https://autumnfallsinterview.com/guides-reviews-how-tos-a-smarter-discovery-roundup-80-10/">guides reviews how tos a smarter discovery roundup 80 10</a> 
 <a href="https://autumnfallsinterview.com/guides-reviews-how-tos-a-smarter-guide-to-reading-online-80-10/">guides reviews how tos a smarter guide to reading online 80 </a> 
 <a href="https://autumnfallsinterview.com/guides-reviews-how-tos-for-facts-trivia-and-social-growth-80-10/">guides reviews how tos for facts trivia and social growth 80</a> 
 <a href="https://autumnfallsinterview.com/guides-reviews-how-tos-for-smarter-online-research-today-80-10/">guides reviews how tos for smarter online research today 80 </a> 
@@ -794,11 +802,3 @@
 <a href="https://autumnfallsinterview.com/web-tech-content-1-resources-worth-bookmarking-80-9/">web tech content 1 resources worth bookmarking 80 9</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-10/">web tech content 50 resources worth bookmarking 80 9 10</a> 
 <a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-11/">web tech content 50 resources worth bookmarking 80 9 11</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-12/">web tech content 50 resources worth bookmarking 80 9 12</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-13/">web tech content 50 resources worth bookmarking 80 9 13</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-14/">web tech content 50 resources worth bookmarking 80 9 14</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-15/">web tech content 50 resources worth bookmarking 80 9 15</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-16/">web tech content 50 resources worth bookmarking 80 9 16</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-17/">web tech content 50 resources worth bookmarking 80 9 17</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-18/">web tech content 50 resources worth bookmarking 80 9 18</a> 
-<a href="https://autumnfallsinterview.com/web-tech-content-50-resources-worth-bookmarking-80-9-19/">web tech content 50 resources worth bookmarking 80 9 19</a> 

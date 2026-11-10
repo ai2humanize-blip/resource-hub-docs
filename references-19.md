@@ -2,6 +2,19 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cmdslot.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
+<a href="https://cmdslot.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://cmdslot.xyz/a-practical-guide-to-working-with-independent-publishers/">a practical guide to working with independent publishers</a> 
+<a href="https://cmdslot.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://cmdslot.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://cmdslot.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://cmdslot.xyz/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://cmdslot.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://cmdslot.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://cmdslot.xyz/air-quality-in-delhi-what-drives-the-city-s-pollution-and-ho/">air quality in delhi what drives the city s pollution and ho</a> 
+<a href="https://cmdslot.xyz/an-overview-of-the-uk-electronic-travel-authorisation-eta/">an overview of the uk electronic travel authorisation eta</a> 
+<a href="https://cmdslot.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
+<a href="https://cmdslot.xyz/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
 <a href="https://cmdslot.xyz/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
 <a href="https://cmdslot.xyz/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
 <a href="https://cmdslot.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -789,16 +802,3 @@
 <a href="https://cplemaire.us.org/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://cplemaire.us.org/understanding-ott-platforms-where-new-shows-and-movies-premi/">understanding ott platforms where new shows and movies premi</a> 
 <a href="https://cplemaire.us.org/understanding-the-air-quality-index-aqi-how-to-read-it-and-w/">understanding the air quality index aqi how to read it and w</a> 
-<a href="https://cplemaire.us.org/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
-<a href="https://cplemaire.us.org/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
-<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
-<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-and-why-it-2/">what makes an explainer article genuinely useful and why it </a> 
-<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-the-basics-2/">what makes an explainer article genuinely useful the basics </a> 
-<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://cplemaire.us.org/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
-<a href="https://cplemaire.us.org/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
