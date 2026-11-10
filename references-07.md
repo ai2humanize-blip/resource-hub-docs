@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/web-tech-content-your-ultimate-guide-to-online-resources-and-77-7/">web tech content your ultimate guide to online resources and</a> 
+<a href="https://algiamedical.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
+<a href="https://algiamedical.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
+<a href="https://algiamedical.com/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
+<a href="https://algiamedical.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
 <a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
 <a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://algiamedical.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
@@ -194,6 +199,8 @@
 <a href="https://app.zentrack.net/business-finance-productivity-a-comprehensive-2026-guide-for-25-2/">business finance productivity a comprehensive 2026 guide for</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-comprehensive-guide-to-moder-25-2/">business finance productivity a comprehensive guide to moder</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-guide-to-better-decisions-25-2/">business finance productivity a guide to better decisions 25</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-a-practical-daily-playbook-25-2-2/">business finance productivity a practical daily playbook 25 </a> 
+<a href="https://app.zentrack.net/business-finance-productivity-a-practical-daily-playbook-25-2/">business finance productivity a practical daily playbook 25 </a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-everyday-guide-25-2/">business finance productivity a practical everyday guide 25 </a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-growth-roundup-25-2/">business finance productivity a practical growth roundup 25 </a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-idea-roundup-25-2/">business finance productivity a practical idea roundup 25 2</a> 
@@ -795,10 +802,3 @@
 <a href="https://app.zentrack.net/navigating-business-finance-productivity-in-the-crypto-casin-25-2/">navigating business finance productivity in the crypto casin</a> 
 <a href="https://app.zentrack.net/navigating-business-finance-productivity-in-the-crypto-era-25-2-2/">navigating business finance productivity in the crypto era 2</a> 
 <a href="https://app.zentrack.net/navigating-business-finance-productivity-in-the-crypto-era-25-2/">navigating business finance productivity in the crypto era 2</a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-in-the-digital-age-25-2-2/">navigating business finance productivity in the digital age </a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-in-the-digital-age-25-2-3/">navigating business finance productivity in the digital age </a> 
-<a href="https://app.zentrack.net/navigating-business-finance-productivity-in-the-digital-age-25-2/">navigating business finance productivity in the digital age </a> 
-<a href="https://app.zentrack.net/navigating-career-and-legal-transitions-strategies-for-succe-25-2/">navigating career and legal transitions strategies for succe</a> 
-<a href="https://app.zentrack.net/navigating-crypto-crises-smart-contract-audits-and-nft-utili-25-2/">navigating crypto crises smart contract audits and nft utili</a> 
-<a href="https://app.zentrack.net/navigating-online-casino-news-cryptocurrency-and-productivit-25-2/">navigating online casino news cryptocurrency and productivit</a> 
-<a href="https://app.zentrack.net/navigating-the-crypto-landscape-bitcoin-blockchain-and-beyon/">navigating the crypto landscape bitcoin blockchain and beyon</a> 

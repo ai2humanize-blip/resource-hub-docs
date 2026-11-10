@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-32/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-33/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-34/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-35/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-36/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-37/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-38/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -337,6 +341,7 @@
 <a href="https://algiamedical.com/guides-reviews-how-tos-for-smarter-safer-online-reading-77-8/">guides reviews how tos for smarter safer online reading 77 8</a> 
 <a href="https://algiamedical.com/guides-reviews-how-tos-haunted-palace-and-crypto-cards-77-8/">guides reviews how tos haunted palace and crypto cards 77 8</a> 
 <a href="https://algiamedical.com/guides-reviews-how-tos-navigating-online-casinos-and-crypto-77-8/">guides reviews how tos navigating online casinos and crypto </a> 
+<a href="https://algiamedical.com/guides-reviews-how-tos-read-online-content-with-confidence-77-8/">guides reviews how tos read online content with confidence 7</a> 
 <a href="https://algiamedical.com/guides-reviews-how-tos-read-online-information-better-77-8/">guides reviews how tos read online information better 77 8</a> 
 <a href="https://algiamedical.com/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
 <a href="https://algiamedical.com/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
@@ -797,8 +802,3 @@
 <a href="https://algiamedical.com/web-tech-content-a-sea-breeze-seafood-digital-guide-77-7/">web tech content a sea breeze seafood digital guide 77 7</a> 
 <a href="https://algiamedical.com/web-tech-content-expert-solutions-for-everyday-tech-issues-77-7/">web tech content expert solutions for everyday tech issues 7</a> 
 <a href="https://algiamedical.com/web-tech-content-roundup-lumora-and-sea-breeze-seafood-77-7/">web tech content roundup lumora and sea breeze seafood 77 7</a> 
-<a href="https://algiamedical.com/web-tech-content-your-ultimate-guide-to-online-resources-and-77-7/">web tech content your ultimate guide to online resources and</a> 
-<a href="https://algiamedical.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
-<a href="https://algiamedical.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
-<a href="https://algiamedical.com/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
-<a href="https://algiamedical.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 

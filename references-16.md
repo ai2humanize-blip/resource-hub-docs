@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://casinonutanlicens.xyz/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
+<a href="https://casinonutanlicens.xyz/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
+<a href="https://casinonutanlicens.xyz/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://casinonutanlicens.xyz/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://casinonutanlicens.xyz/how-travel-cards-help-you-avoid-foreign-transaction-fees/">how travel cards help you avoid foreign transaction fees</a> 
+<a href="https://casinonutanlicens.xyz/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
+<a href="https://casinonutanlicens.xyz/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://casinonutanlicens.xyz/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
+<a href="https://casinonutanlicens.xyz/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
 <a href="https://casinonutanlicens.xyz/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
 <a href="https://casinonutanlicens.xyz/making-sense-of-complex-topics-online-and-why-it-matters/">making sense of complex topics online and why it matters</a> 
 <a href="https://casinonutanlicens.xyz/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
@@ -793,12 +802,3 @@
 <a href="https://cbd-stone.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
 <a href="https://cbd-stone.com/what-to-look-for-in-a-good-news-website-the-basics/">what to look for in a good news website the basics</a> 
 <a href="https://cbd-stone.com/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
-<a href="https://cbd-stone.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://cbd-stone.com/why-context-matters-when-reading-online-2/">why context matters when reading online 2</a> 
-<a href="https://cbd-stone.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://cbd-stone.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
-<a href="https://cbd-stone.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
-<a href="https://cbd-stone.com/why-niche-blogs-still-matter-a-quick-guide/">why niche blogs still matter a quick guide</a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-2/">why primary sources matter and how to find them 2</a> 
-<a href="https://cbd-stone.com/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 

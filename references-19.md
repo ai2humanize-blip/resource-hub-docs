@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cmdslot.xyz/media-partnerships-in-the-independent-web/">media partnerships in the independent web</a> 
+<a href="https://cmdslot.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://cmdslot.xyz/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
+<a href="https://cmdslot.xyz/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
+<a href="https://cmdslot.xyz/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
+<a href="https://cmdslot.xyz/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
+<a href="https://cmdslot.xyz/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
+<a href="https://cmdslot.xyz/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
+<a href="https://cmdslot.xyz/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
 <a href="https://cmdslot.xyz/robthecoins-xyz-resource-2/">robthecoins xyz resource 2</a> 
 <a href="https://cmdslot.xyz/seo-fundamentals-and-ai-search-visibility-what-to-know/">seo fundamentals and ai search visibility what to know</a> 
 <a href="https://cmdslot.xyz/simple-habits-of-a-smart-internet-reader-a-quick-guide/">simple habits of a smart internet reader a quick guide</a> 
@@ -793,12 +802,3 @@
 <a href="https://crediblenews24.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://crediblenews24.com/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
 <a href="https://crediblenews24.com/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://crediblenews24.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://crediblenews24.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://crediblenews24.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://crediblenews24.com/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-and-why-2/">a simple framework for researching any topic online and why </a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-and-why-it-matters/">a simple framework for researching any topic online and why </a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
-<a href="https://crediblenews24.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
