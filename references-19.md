@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cbdstent.com/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
+<a href="https://cbdstent.com/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
+<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-2/">what makes an explainer article genuinely useful 2</a> 
+<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://cbdstent.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://cbdstent.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
 <a href="https://cbdstent.com/what-to-know-about-a-simple-framework-for-researching-any-topic-online/">what to know about a simple framework for researching any to</a> 
 <a href="https://cbdstent.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
 <a href="https://cbdstent.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
@@ -793,12 +802,3 @@
 <a href="https://cplemaire.us.org/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
 <a href="https://cplemaire.us.org/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
 <a href="https://cplemaire.us.org/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://cplemaire.us.org/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
-<a href="https://cplemaire.us.org/how-to-keep-clean-auditable-cryptocurrency-transaction-recor/">how to keep clean auditable cryptocurrency transaction recor</a> 
-<a href="https://cplemaire.us.org/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
-<a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
-<a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
-<a href="https://cplemaire.us.org/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
-<a href="https://cplemaire.us.org/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
-<a href="https://cplemaire.us.org/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
-<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 

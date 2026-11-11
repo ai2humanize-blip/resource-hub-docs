@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cplemaire.us.org/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 
+<a href="https://cplemaire.us.org/how-to-keep-clean-auditable-cryptocurrency-transaction-recor/">how to keep clean auditable cryptocurrency transaction recor</a> 
+<a href="https://cplemaire.us.org/how-to-navigate-indonesian-public-services-online/">how to navigate indonesian public services online</a> 
+<a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
+<a href="https://cplemaire.us.org/how-to-organize-the-information-you-find-online-and-why-it-m/">how to organize the information you find online and why it m</a> 
+<a href="https://cplemaire.us.org/how-to-read-choghadiya-and-auspicious-daily-timings/">how to read choghadiya and auspicious daily timings</a> 
+<a href="https://cplemaire.us.org/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
+<a href="https://cplemaire.us.org/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
+<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://cplemaire.us.org/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
 <a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
@@ -302,6 +311,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-resource-roundup-86-4-3/">guides reviews how tos a practical resource roundup 86 4 3</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-resource-roundup-86-4-4/">guides reviews how tos a practical resource roundup 86 4 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-resource-roundup-86-4/">guides reviews how tos a practical resource roundup 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-safer-crypto-starting-point-86-4/">guides reviews how tos a safer crypto starting point 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smart-currencynews-roundup-86-4-2/">guides reviews how tos a smart currencynews roundup 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smart-currencynews-roundup-86-4/">guides reviews how tos a smart currencynews roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-crypto-learning-guide-86-4/">guides reviews how tos a smarter crypto learning guide 86 4</a> 
@@ -310,6 +320,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-crypto-resource-roundup-86-4/">guides reviews how tos a smarter crypto resource roundup 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-learning-roundup-86-4/">guides reviews how tos a smarter learning roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-reader-s-roundup-86-4/">guides reviews how tos a smarter reader s roundup 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-an-essential-reader-s-roadmap-86-4/">guides reviews how tos an essential reader s roadmap 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-betting-crypto-art-and-retirement-86-4/">guides reviews how tos betting crypto art and retirement 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-casinos-crypto-and-mining-86-4/">guides reviews how tos casinos crypto and mining 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-crypto-and-etf-insights-86-4/">guides reviews how tos crypto and etf insights 86 4</a> 
@@ -329,6 +340,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4-4/">guides reviews how tos for smarter crypto decisions 86 4 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4-5/">guides reviews how tos for smarter crypto decisions 86 4 5</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4-6/">guides reviews how tos for smarter crypto decisions 86 4 6</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4-7/">guides reviews how tos for smarter crypto decisions 86 4 7</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4/">guides reviews how tos for smarter crypto decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-market-decisions-86-4/">guides reviews how tos for smarter crypto market decisions 8</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-pr-decisions-86-4/">guides reviews how tos for smarter crypto pr decisions 86 4</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-86-6-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-86-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-fresh/">understanding cryptocurrency bitcoin and blockchain a fresh</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-2/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi-3/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://crediblenews24.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
-<a href="https://crediblenews24.com/understanding-digital-literacy-the-basics-2/">understanding digital literacy the basics 2</a> 
-<a href="https://crediblenews24.com/understanding-digital-literacy/">understanding digital literacy</a> 
-<a href="https://crediblenews24.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
-<a href="https://crediblenews24.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
-<a href="https://crediblenews24.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://crediblenews24.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://crediblenews24.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
