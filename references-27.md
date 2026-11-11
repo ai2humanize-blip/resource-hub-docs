@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://earnmoneyplayinggames.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-surnames-get-their-meanings/">how surnames get their meanings</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list-2/">how to build a personal reading list 2</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list-the-basics/">how to build a personal reading list the basics</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-keep-an-older-laptop-running-smoothly-for-longer/">how to keep an older laptop running smoothly for longer</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-to-organize-the-information-you-find-online-a-practical-guide/">how to organize the information you find online a practical </a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-organize-the-information-you-find-online-a-quick-guid/">how to organize the information you find online a quick guid</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
@@ -190,6 +211,7 @@
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-a-practical-feature-roundup-90-8/">digital tools online resources a practical feature roundup 9</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-a-practical-india-guide-90-8/">digital tools online resources a practical india guide 90 8</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-a-practical-roundup-90-8-10/">digital tools online resources a practical roundup 90 8 10</a> 
+<a href="https://ecomhuntreviews.com/digital-tools-online-resources-a-practical-roundup-90-8-11/">digital tools online resources a practical roundup 90 8 11</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-a-practical-roundup-90-8-2/">digital tools online resources a practical roundup 90 8 2</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-a-practical-roundup-90-8-3/">digital tools online resources a practical roundup 90 8 3</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-a-practical-roundup-90-8-4/">digital tools online resources a practical roundup 90 8 4</a> 
@@ -230,8 +252,10 @@
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-gme-pi-and-crypto-90-8/">digital tools online resources for gme pi and crypto 90 8</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-planning-and-play-90-8/">digital tools online resources for planning and play 90 8</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-research-play-and-travel-90-8/">digital tools online resources for research play and travel </a> 
+<a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-safer-crypto-choices-90-8/">digital tools online resources for safer crypto choices 90 8</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-safer-crypto-decisions-90-8-2/">digital tools online resources for safer crypto decisions 90</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-safer-crypto-decisions-90-8/">digital tools online resources for safer crypto decisions 90</a> 
+<a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-safer-crypto-trading-90-8/">digital tools online resources for safer crypto trading 90 8</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-secure-smarter-workflows-90-8/">digital tools online resources for secure smarter workflows </a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-smarter-crypto-insight-90-8/">digital tools online resources for smarter crypto insight 90</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-smarter-crypto-research-90-8-2/">digital tools online resources for smarter crypto research 9</a> 
@@ -778,27 +802,3 @@
 <a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-8/">web tech content 50 resources worth bookmarking 90 9 8</a> 
 <a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-9/">web tech content 50 resources worth bookmarking 90 9 9</a> 
 <a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9/">web tech content 50 resources worth bookmarking 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-a-practical-guide-to-crypto-safety-90-9/">web tech content a practical guide to crypto safety 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-a-practical-guide-to-safer-android-use-90-9/">web tech content a practical guide to safer android use 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-a-practical-roadmap-to-better-ideas-90-9/">web tech content a practical roadmap to better ideas 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-a-practical-roundup-for-digital-readers-90-9/">web tech content a practical roundup for digital readers 90 </a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-a-practical-roundup-for-modern-readers-90-9-2/">web tech content a practical roundup for modern readers 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-a-practical-roundup-for-modern-readers-90-9/">web tech content a practical roundup for modern readers 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-bitcoin-etfs-pi-network-live-btc-90-9/">web tech content bitcoin etfs pi network live btc 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-casinos-consensus-and-ramps-90-9/">web tech content casinos consensus and ramps 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-crypto-etfs-and-pi-network-guide-90-4/">web tech content crypto etfs and pi network guide 90 4</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-maker-taker-fees-amms-and-audits-90-4/">web tech content maker taker fees amms and audits 90 4</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-roundup-crypto-xrp-casinos-and-reviews-90-9/">web tech content roundup crypto xrp casinos and reviews 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-roundup-hypepresss-com-and-conisec-com-90-9/">web tech content roundup hypepresss com and conisec com 90 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-safer-apps-privacy-and-updates-90-9/">web tech content safer apps privacy and updates 90 9</a> 
-<a href="https://ecomhuntreviews.com/what-a-seed-phrase-is-and-why-it-matters-for-self-custody/">what a seed phrase is and why it matters for self custody</a> 
-<a href="https://ecomhuntreviews.com/what-makes-a-baby-name-feel-timeless-a-practical-guide/">what makes a baby name feel timeless a practical guide</a> 
-<a href="https://ecomhuntreviews.com/what-makes-a-website-easy-and-pleasant-to-read/">what makes a website easy and pleasant to read</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful-2/">what makes an explainer article genuinely useful 2</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://ecomhuntreviews.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://ecomhuntreviews.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
