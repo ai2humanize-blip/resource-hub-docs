@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cbdstent.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://cbdstent.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
+<a href="https://cbdstent.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
+<a href="https://cbdstent.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://cbdstent.com/what-to-know-about-why-primary-sources-matter-and-how-to-fin/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://cbdstent.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://cbdstent.com/what-to-look-for-when-evaluating-a-link-building-service/">what to look for when evaluating a link building service</a> 
+<a href="https://cbdstent.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://cbdstent.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
 <a href="https://cbdstent.com/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
 <a href="https://cbdstent.com/why-context-matters-when-reading-online-the-basics-2/">why context matters when reading online the basics 2</a> 
 <a href="https://cbdstent.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
@@ -793,12 +802,3 @@
 <a href="https://cplemaire.us.org/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
 <a href="https://cplemaire.us.org/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
 <a href="https://cplemaire.us.org/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
-<a href="https://cplemaire.us.org/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
-<a href="https://cplemaire.us.org/licensing-and-player-protections-in-regulated-gambling-marke/">licensing and player protections in regulated gambling marke</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
-<a href="https://cplemaire.us.org/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://cplemaire.us.org/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
