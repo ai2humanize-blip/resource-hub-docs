@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cbdstent.com/what-to-know-about-a-simple-framework-for-researching-any-topic-online/">what to know about a simple framework for researching any to</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-avoid-misinformation-and-hype/">what to know about how to avoid misinformation and hype</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://cbdstent.com/what-to-know-about-how-to-get-the-most-out-of-online-guides/">what to know about how to get the most out of online guides</a> 
+<a href="https://cbdstent.com/what-to-know-about-recognizing-credible-experts-online-2/">what to know about recognizing credible experts online 2</a> 
+<a href="https://cbdstent.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
+<a href="https://cbdstent.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
 <a href="https://cbdstent.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://cbdstent.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
 <a href="https://cbdstent.com/what-to-know-about-why-niche-blogs-still-matter-2/">what to know about why niche blogs still matter 2</a> 
@@ -793,12 +802,3 @@
 <a href="https://cplemaire.us.org/how-to-read-crypto-market-news-without-getting-misled/">how to read crypto market news without getting misled</a> 
 <a href="https://cplemaire.us.org/how-to-read-crypto-news-without-getting-hyped/">how to read crypto news without getting hyped</a> 
 <a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s-2/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://cplemaire.us.org/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
-<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
-<a href="https://cplemaire.us.org/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
-<a href="https://cplemaire.us.org/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://cplemaire.us.org/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://cplemaire.us.org/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://cplemaire.us.org/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 

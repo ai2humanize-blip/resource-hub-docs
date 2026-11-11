@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cplemaire.us.org/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
+<a href="https://cplemaire.us.org/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
+<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
+<a href="https://cplemaire.us.org/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
+<a href="https://cplemaire.us.org/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
+<a href="https://cplemaire.us.org/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
+<a href="https://cplemaire.us.org/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
+<a href="https://cplemaire.us.org/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
+<a href="https://cplemaire.us.org/job-search-and-career-guidance-in-india-what-to-know/">job search and career guidance in india what to know</a> 
 <a href="https://cplemaire.us.org/kerala-lottery-results-and-how-the-draws-work-what-to-know/">kerala lottery results and how the draws work what to know</a> 
 <a href="https://cplemaire.us.org/licensing-and-player-protections-in-regulated-gambling-marke/">licensing and player protections in regulated gambling marke</a> 
 <a href="https://cplemaire.us.org/making-sense-of-complex-topics-online-2/">making sense of complex topics online 2</a> 
@@ -279,6 +288,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-3/">guides reviews how tos 50 resources worth bookmarking 86 4 3</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-4/">guides reviews how tos 50 resources worth bookmarking 86 4 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-5/">guides reviews how tos 50 resources worth bookmarking 86 4 5</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-6/">guides reviews how tos 50 resources worth bookmarking 86 4 6</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4/">guides reviews how tos 50 resources worth bookmarking 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-better-coinnews-de-com-roundup-86-4-2/">guides reviews how tos a better coinnews de com roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-better-coinnews-de-com-roundup-86-4/">guides reviews how tos a better coinnews de com roundup 86 4</a> 
@@ -303,6 +313,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-betting-crypto-art-and-retirement-86-4/">guides reviews how tos betting crypto art and retirement 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-casinos-crypto-and-mining-86-4/">guides reviews how tos casinos crypto and mining 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-crypto-and-etf-insights-86-4/">guides reviews how tos crypto and etf insights 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-crypto-and-stock-market-roundup-86-4/">guides reviews how tos crypto and stock market roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-crypto-news-policy-and-trust-86-4/">guides reviews how tos crypto news policy and trust 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-and-carbon-innovation-86-4/">guides reviews how tos for crypto and carbon innovation 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-mining-and-insurance-86-4/">guides reviews how tos for crypto mining and insurance 86 4</a> 
@@ -328,6 +339,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-practical-insights-that-add-value-86-4/">guides reviews how tos practical insights that add value 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-roundup-crypto-xrp-bitcoin-tv-86-4/">guides reviews how tos roundup crypto xrp bitcoin tv 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-scenefordummies-and-newzcryptos-86-4/">guides reviews how tos scenefordummies and newzcryptos 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-your-practical-crypto-reading-guide-86-4/">guides reviews how tos your practical crypto reading guide 8</a> 
 <a href="https://crediblenews24.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
 <a href="https://crediblenews24.com/how-ai-and-machine-learning-are-transforming-mobile-app-deve/">how ai and machine learning are transforming mobile app deve</a> 
 <a href="https://crediblenews24.com/how-ai-powered-apps-are-revolutionizing-daily-life/">how ai powered apps are revolutionizing daily life</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
 <a href="https://crediblenews24.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
 <a href="https://crediblenews24.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
-<a href="https://crediblenews24.com/understanding-legal-news-a-guide-to-staying-informed-and-mak/">understanding legal news a guide to staying informed and mak</a> 
-<a href="https://crediblenews24.com/understanding-ott-platforms-where-new-shows-and-movies-premi/">understanding ott platforms where new shows and movies premi</a> 
-<a href="https://crediblenews24.com/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://crediblenews24.com/understanding-the-impact-of-current-economic-trends-on-globa/">understanding the impact of current economic trends on globa</a> 
-<a href="https://crediblenews24.com/understanding-the-impact-of-recent-global-events-on-economy/">understanding the impact of recent global events on economy</a> 
-<a href="https://crediblenews24.com/understanding-the-latest-developments-in-ai-and-machine-lear/">understanding the latest developments in ai and machine lear</a> 
-<a href="https://crediblenews24.com/understanding-the-latest-trends-in-cryptocurrency-bitcoin-an/">understanding the latest trends in cryptocurrency bitcoin an</a> 
-<a href="https://crediblenews24.com/understanding-the-latest-trends-in-news-consumption-and-anal-2/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://crediblenews24.com/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://crediblenews24.com/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
-<a href="https://crediblenews24.com/understanding-web-tech-content-a-comprehensive-guide-to-cryp-86-8/">understanding web tech content a comprehensive guide to cryp</a> 
-<a href="https://crediblenews24.com/unlocking-efficiency-the-ultimate-guide-to-digital-tools-onl-86-7/">unlocking efficiency the ultimate guide to digital tools onl</a> 
