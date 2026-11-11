@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cplemaire.us.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right-2/">getting how to spot low quality content online right 2</a> 
+<a href="https://cplemaire.us.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
+<a href="https://cplemaire.us.org/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://cplemaire.us.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://cplemaire.us.org/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://cplemaire.us.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://cplemaire.us.org/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://cplemaire.us.org/home-pest-control-that-actually-works-a-practical-overview/">home pest control that actually works a practical overview</a> 
 <a href="https://cplemaire.us.org/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
 <a href="https://cplemaire.us.org/how-classic-card-games-are-played/">how classic card games are played</a> 
 <a href="https://cplemaire.us.org/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
@@ -357,6 +367,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smart-currencynews-roundup-86-4/">guides reviews how tos a smart currencynews roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-crypto-learning-guide-86-4/">guides reviews how tos a smarter crypto learning guide 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-crypto-learning-roundup-86-4/">guides reviews how tos a smarter crypto learning roundup 86 </a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-crypto-reading-list-86-4/">guides reviews how tos a smarter crypto reading list 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-crypto-reading-roundup-86-4/">guides reviews how tos a smarter crypto reading roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-crypto-resource-roundup-86-4/">guides reviews how tos a smarter crypto resource roundup 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-smarter-learning-roundup-86-4/">guides reviews how tos a smarter learning roundup 86 4</a> 
@@ -379,6 +390,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-xrp-and-casinos-86-4/">guides reviews how tos for crypto xrp and casinos 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-gamestop-pi-and-crypto-86-4/">guides reviews how tos for gamestop pi and crypto 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-poker-slots-and-linux-users-86-4/">guides reviews how tos for poker slots and linux users 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-casino-choices-86-4/">guides reviews how tos for smarter casino choices 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-casino-decisions-86-4/">guides reviews how tos for smarter casino decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-analysis-86-4/">guides reviews how tos for smarter crypto analysis 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-casino-choices-86-4/">guides reviews how tos for smarter crypto casino choices 86 </a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
 <a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://crediblenews24.com/staying-safe-and-responsible-the-latest-trends-in-online-cas/">staying safe and responsible the latest trends in online cas</a> 
-<a href="https://crediblenews24.com/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 
-<a href="https://crediblenews24.com/techvantor-xyz-resource-2-2/">techvantor xyz resource 2 2</a> 
-<a href="https://crediblenews24.com/techvantor-xyz-resource-2/">techvantor xyz resource 2</a> 
-<a href="https://crediblenews24.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
-<a href="https://crediblenews24.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
-<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
-<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
-<a href="https://crediblenews24.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
-<a href="https://crediblenews24.com/the-future-of-ai-in-journalism-trends-and-challenges/">the future of ai in journalism trends and challenges</a> 

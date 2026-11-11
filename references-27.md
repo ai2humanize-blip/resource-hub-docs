@@ -2,6 +2,25 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://earnmoneyplayinggames.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://earnmoneyplayinggames.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
+<a href="https://earnmoneyplayinggames.xyz/crypto-credit-cards-explained-how-they-differ-from-debit-car/">crypto credit cards explained how they differ from debit car</a> 
+<a href="https://earnmoneyplayinggames.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://earnmoneyplayinggames.xyz/diversification-in-investing-what-it-means-and-why-it-matter/">diversification in investing what it means and why it matter</a> 
+<a href="https://earnmoneyplayinggames.xyz/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://earnmoneyplayinggames.xyz/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
+<a href="https://earnmoneyplayinggames.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://earnmoneyplayinggames.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://earnmoneyplayinggames.xyz/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://earnmoneyplayinggames.xyz/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://earnmoneyplayinggames.xyz/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://earnmoneyplayinggames.xyz/getting-your-story-to-the-right-audience-online/">getting your story to the right audience online</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-ai-generated-art-is-made-models-prompts-and-workflows/">how ai generated art is made models prompts and workflows</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-backlink-discovery-and-indexing-actually-work/">how backlink discovery and indexing actually work</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://earnmoneyplayinggames.xyz/how-digital-pr-and-sponsored-content-actually-work/">how digital pr and sponsored content actually work</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-surnames-get-their-meanings/">how surnames get their meanings</a> 
 <a href="https://earnmoneyplayinggames.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -233,6 +252,7 @@
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-better-crypto-research-90-8-3/">digital tools online resources for better crypto research 90</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-better-crypto-research-90-8/">digital tools online resources for better crypto research 90</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-better-digital-decisions-90-8/">digital tools online resources for better digital decisions </a> 
+<a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-better-market-decisions-90-8/">digital tools online resources for better market decisions 9</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-better-money-decisions-90-8-2/">digital tools online resources for better money decisions 90</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-better-money-decisions-90-8/">digital tools online resources for better money decisions 90</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-better-online-decisions-90-8-2/">digital tools online resources for better online decisions 9</a> 
@@ -264,6 +284,7 @@
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-smarter-crypto-research-90-8-5/">digital tools online resources for smarter crypto research 9</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-smarter-crypto-research-90-8-6/">digital tools online resources for smarter crypto research 9</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-smarter-crypto-research-90-8/">digital tools online resources for smarter crypto research 9</a> 
+<a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-smarter-crypto-trading-90-8/">digital tools online resources for smarter crypto trading 90</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-smarter-everyday-choices-90-8/">digital tools online resources for smarter everyday choices </a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-smarter-money-decisions-90-8-2/">digital tools online resources for smarter money decisions 9</a> 
 <a href="https://ecomhuntreviews.com/digital-tools-online-resources-for-smarter-money-decisions-90-8/">digital tools online resources for smarter money decisions 9</a> 
@@ -781,24 +802,3 @@
 <a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-47/">web tech content 50 resources worth bookmarking 90 9 47</a> 
 <a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-48/">web tech content 50 resources worth bookmarking 90 9 48</a> 
 <a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-49/">web tech content 50 resources worth bookmarking 90 9 49</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-5/">web tech content 50 resources worth bookmarking 90 9 5</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-50/">web tech content 50 resources worth bookmarking 90 9 50</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-51/">web tech content 50 resources worth bookmarking 90 9 51</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-52/">web tech content 50 resources worth bookmarking 90 9 52</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-53/">web tech content 50 resources worth bookmarking 90 9 53</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-54/">web tech content 50 resources worth bookmarking 90 9 54</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-55/">web tech content 50 resources worth bookmarking 90 9 55</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-56/">web tech content 50 resources worth bookmarking 90 9 56</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-57/">web tech content 50 resources worth bookmarking 90 9 57</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-58/">web tech content 50 resources worth bookmarking 90 9 58</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-59/">web tech content 50 resources worth bookmarking 90 9 59</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-6/">web tech content 50 resources worth bookmarking 90 9 6</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-60/">web tech content 50 resources worth bookmarking 90 9 60</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-61/">web tech content 50 resources worth bookmarking 90 9 61</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-62/">web tech content 50 resources worth bookmarking 90 9 62</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-63/">web tech content 50 resources worth bookmarking 90 9 63</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-64/">web tech content 50 resources worth bookmarking 90 9 64</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-7/">web tech content 50 resources worth bookmarking 90 9 7</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-8/">web tech content 50 resources worth bookmarking 90 9 8</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9-9/">web tech content 50 resources worth bookmarking 90 9 9</a> 
-<a href="https://ecomhuntreviews.com/web-tech-content-50-resources-worth-bookmarking-90-9/">web tech content 50 resources worth bookmarking 90 9</a> 

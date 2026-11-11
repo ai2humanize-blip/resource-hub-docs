@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwcjsvv2z">3msjxwcjsvv2z</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwivsam2m">3msjxwivsam2m</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwp7zz72n">3msjxwp7zz72n</a> 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxwvlrkc2n">3msjxwvlrkc2n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxx3yian2z">3msjxx3yian2z</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxxcd2pi2h">3msjxxcd2pi2h</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxximto72c">3msjxximto72c</a> 
@@ -798,7 +802,3 @@
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-17/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-18/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-19/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-2/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-20/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-21/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-22/">mastering business finance and productivity a comprehensive </a> 

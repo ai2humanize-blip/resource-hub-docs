@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-13.md) · [‹ prev](references-11.md)
 
+<a href="https://bandemusic.com/navigating-the-evolving-news-landscape-business-finance-and-81-1/">navigating the evolving news landscape business finance and </a> 
+<a href="https://bandemusic.com/navigating-the-future-cryptocurrency-bitcoin-and-blockchain/">navigating the future cryptocurrency bitcoin and blockchain</a> 
 <a href="https://bandemusic.com/navigating-the-future-guides-reviews-and-how-tos-on-global-f-81-9/">navigating the future guides reviews and how tos on global f</a> 
 <a href="https://bandemusic.com/navigating-the-future-how-bitcoin-blockchain-and-productivit-81-1/">navigating the future how bitcoin blockchain and productivit</a> 
 <a href="https://bandemusic.com/navigating-the-future-of-digital-currency-trends-challenges-81-10/">navigating the future of digital currency trends challenges </a> 
@@ -800,5 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/consensus-mechanisms-compared-proof-of-work-proof-a5cd3273/">consensus mechanisms compared proof of work proof a5cd3273</a> 
 <a href="https://boostelearning.mataroa.blog/blog/consensus-mechanisms-compared-proof-of-work-proof/">consensus mechanisms compared proof of work proof</a> 
 <a href="https://boostelearning.mataroa.blog/blog/consider-the-meaning-and-origin-and-why-it-matters/">consider the meaning and origin and why it matters</a> 
-<a href="https://boostelearning.mataroa.blog/blog/contact-us-0794823a/">contact us 0794823a</a> 
-<a href="https://boostelearning.mataroa.blog/blog/contact-us-9dcc5cbb/">contact us 9dcc5cbb</a> 

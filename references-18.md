@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdpuffbars.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
+<a href="https://cbdpuffbars.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
+<a href="https://cbdpuffbars.com/understanding-crypto-media-a-beginner-s-guide-to-staying-inf-84-3/">understanding crypto media a beginner s guide to staying inf</a> 
+<a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-2/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
+<a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://cbdpuffbars.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-14/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -247,6 +255,7 @@
 <a href="https://cbdstent.com/digital-tools-online-resources-for-smarter-crypto-research-85-3-4/">digital tools online resources for smarter crypto research 8</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-smarter-crypto-research-85-3-5/">digital tools online resources for smarter crypto research 8</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-smarter-crypto-research-85-3-6/">digital tools online resources for smarter crypto research 8</a> 
+<a href="https://cbdstent.com/digital-tools-online-resources-for-smarter-crypto-research-85-3-7/">digital tools online resources for smarter crypto research 8</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-smarter-crypto-research-85-3/">digital tools online resources for smarter crypto research 8</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-smarter-crypto-trading-85-3/">digital tools online resources for smarter crypto trading 85</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-smarter-daily-decisions-85-3/">digital tools online resources for smarter daily decisions 8</a> 
@@ -255,6 +264,7 @@
 <a href="https://cbdstent.com/digital-tools-online-resources-for-smarter-online-choices-85-3/">digital tools online resources for smarter online choices 85</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-tracking-bitcoin-etf-flow-85-3/">digital tools online resources for tracking bitcoin etf flow</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-scenefordummies-newzcryptos-85-3/">digital tools online resources scenefordummies newzcryptos 8</a> 
+<a href="https://cbdstent.com/digital-tools-online-resources-smart-choices-safer-use-85-3/">digital tools online resources smart choices safer use 85 3</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-vave-viirelaid-more-85-3/">digital tools online resources vave viirelaid more 85 3</a> 
 <a href="https://cbdstent.com/discover-the-art-of-event-planning-tips-and-activities-for-a/">discover the art of event planning tips and activities for a</a> 
 <a href="https://cbdstent.com/discover-the-best-digital-tools-online-resources-for-enhance-85-3/">discover the best digital tools online resources for enhance</a> 
@@ -792,13 +802,3 @@
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-38/">web tech content 50 resources worth bookmarking 85 4 38</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-39/">web tech content 50 resources worth bookmarking 85 4 39</a> 
 <a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-4/">web tech content 50 resources worth bookmarking 85 4 4</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-40/">web tech content 50 resources worth bookmarking 85 4 40</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-41/">web tech content 50 resources worth bookmarking 85 4 41</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-42/">web tech content 50 resources worth bookmarking 85 4 42</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-43/">web tech content 50 resources worth bookmarking 85 4 43</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-44/">web tech content 50 resources worth bookmarking 85 4 44</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-45/">web tech content 50 resources worth bookmarking 85 4 45</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-46/">web tech content 50 resources worth bookmarking 85 4 46</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-47/">web tech content 50 resources worth bookmarking 85 4 47</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-48/">web tech content 50 resources worth bookmarking 85 4 48</a> 
-<a href="https://cbdstent.com/web-tech-content-50-resources-worth-bookmarking-85-4-49/">web tech content 50 resources worth bookmarking 85 4 49</a> 
