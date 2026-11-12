@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-how-to-tell-if-a-website-is-trustworthy/">a closer look at how to tell if a website is trustworthy</a> 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
+<a href="https://cyberkannadig.it.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://cyberkannadig.it.com/a-exploring-the-best-guides-reviews-how-tos-for-every-enthus-26-4/">a exploring the best guides reviews how tos for every enthus</a> 
+<a href="https://cyberkannadig.it.com/a-practical-guide-to-booking-budget-travel-that-saves-real-m/">a practical guide to booking budget travel that saves real m</a> 
+<a href="https://cyberkannadig.it.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://cyberkannadig.it.com/a-simple-framework-for-researching-any-topic-online-and-why-2/">a simple framework for researching any topic online and why </a> 
 <a href="https://cyberkannadig.it.com/a-simple-framework-for-researching-any-topic-online-and-why/">a simple framework for researching any topic online and why</a> 
 <a href="https://cyberkannadig.it.com/arcenturf-co-resource-1-2/">arcenturf co resource 1 2</a> 
 <a href="https://cyberkannadig.it.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
@@ -790,15 +802,3 @@
 <a href="https://cyberkannadig.it.com/understanding-litigationlawyer-a-practical-guide/">understanding litigationlawyer a practical guide</a> 
 <a href="https://cyberkannadig.it.com/understanding-lotteries-how-to-play-smart-and-stay-informed-26-4/">understanding lotteries how to play smart and stay informed </a> 
 <a href="https://cyberkannadig.it.com/understanding-newsrealtors-a-practical-guide/">understanding newsrealtors a practical guide</a> 
-<a href="https://cyberkannadig.it.com/understanding-optimistindia-a-practical-guide/">understanding optimistindia a practical guide</a> 
-<a href="https://cyberkannadig.it.com/understanding-oxpoll-a-practical-guide/">understanding oxpoll a practical guide</a> 
-<a href="https://cyberkannadig.it.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
-<a href="https://cyberkannadig.it.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
-<a href="https://cyberkannadig.it.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://cyberkannadig.it.com/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://cyberkannadig.it.com/understanding-techvantor-a-practical-guide/">understanding techvantor a practical guide</a> 
-<a href="https://cyberkannadig.it.com/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
-<a href="https://cyberkannadig.it.com/understanding-the-air-quality-index-aqi-how-to-read-it-and-w/">understanding the air quality index aqi how to read it and w</a> 
-<a href="https://cyberkannadig.it.com/understanding-the-impact-of-ai-on-modern-news-consumption/">understanding the impact of ai on modern news consumption</a> 
-<a href="https://cyberkannadig.it.com/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://cyberkannadig.it.com/understanding-the-impact-of-recent-economic-shifts-on-global/">understanding the impact of recent economic shifts on global</a> 
