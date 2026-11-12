@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-10/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-11/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-12/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-13/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -801,4 +802,3 @@
 <a href="https://algiamedical.com/understanding-the-impact-of-current-events-on-global-currenc/">understanding the impact of current events on global currenc</a> 
 <a href="https://algiamedical.com/understanding-the-impact-of-spot-etf-flows-on-bitcoin-supply-77-6/">understanding the impact of spot etf flows on bitcoin supply</a> 
 <a href="https://algiamedical.com/understanding-the-origins-of-baby-names-the-basics/">understanding the origins of baby names the basics</a> 
-<a href="https://algiamedical.com/understanding-today-s-news-landscape-analysis-explainers-and/">understanding today s news landscape analysis explainers and</a> 

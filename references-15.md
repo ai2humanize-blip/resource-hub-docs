@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/mastering-business-finance-a-marketing-strategy-for-financia/">mastering business finance a marketing strategy for financia</a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-10/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-11/">mastering business finance and productivity a comprehensive </a> 
 <a href="https://captainjackinterview.com/mastering-business-finance-and-productivity-a-comprehensive-82-10-12/">mastering business finance and productivity a comprehensive </a> 
@@ -801,4 +802,3 @@
 <a href="https://casinoisloty.xyz/web-resources-tools-directory-62/">web resources tools directory 62</a> 
 <a href="https://casinoisloty.xyz/web-resources-tools-directory-63/">web resources tools directory 63</a> 
 <a href="https://casinoisloty.xyz/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
-<a href="https://casinoisloty.xyz/what-makes-an-explainer-article-genuinely-useful-a-practical-guide/">what makes an explainer article genuinely useful a practical</a> 

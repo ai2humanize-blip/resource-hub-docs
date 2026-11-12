@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxudbtbs2n">3msjxudbtbs2n</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxujly4e2s">3msjxujly4e2s</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxupvt3j2s">3msjxupvt3j2s</a> 
 <a href="https://bsky.app/profile/linkstack98.bsky.social/post/3msjxuwenar2s">3msjxuwenar2s</a> 
@@ -801,4 +802,3 @@
 <a href="https://captainjackinterview.com/master-the-art-of-online-research-guides-reviews-how-tos-82-3/">master the art of online research guides reviews how tos 82 </a> 
 <a href="https://captainjackinterview.com/master-the-digital-age-top-online-resources-tools-for-stayin-82-1/">master the digital age top online resources tools for stayin</a> 
 <a href="https://captainjackinterview.com/mastering-app-organization-boost-productivity-with-smart-dig/">mastering app organization boost productivity with smart dig</a> 
-<a href="https://captainjackinterview.com/mastering-business-finance-a-marketing-strategy-for-financia/">mastering business finance a marketing strategy for financia</a> 

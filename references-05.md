@@ -395,6 +395,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-for-smart-readers-43-1.html">web tech content a practical guide for smart readers 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-reading-43-1.html">web tech content a practical guide to better online reading </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-research-42-2.html">web tech content a practical guide to better research 42 2</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-learning-online-43-1.html">web tech content a practical guide to learning online 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-online-information-43-1.html">web tech content a practical guide to online information 43 </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-online-learning-43-1.html">web tech content a practical guide to online learning 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-reading-online-43-1.html">web tech content a practical guide to reading online 43 1</a> 
@@ -801,4 +802,3 @@
 <a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
 <a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-blockchain-and-the-futur/">demystifying cryptocurrency bitcoin blockchain and the futur</a> 
 <a href="https://algiamedical.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-10/">digital tools online resources 50 resources worth bookmarkin</a> 
