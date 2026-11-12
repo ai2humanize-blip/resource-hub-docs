@@ -2,6 +2,24 @@
 
 [index](README.md) · [next ›](references-30.md) · [‹ prev](references-28.md)
 
+<a href="https://emiamedical.com/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://emiamedical.com/why-professional-certifications-still-matter-for-career-grow/">why professional certifications still matter for career grow</a> 
+<a href="https://emiamedical.com/why-release-dates-change-and-how-to-stay-updated/">why release dates change and how to stay updated</a> 
+<a href="https://emiamedical.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview-2/">zakat al fitr and the lunar calendar a practical overview 2</a> 
+<a href="https://emiamedical.com/zakat-al-fitr-and-the-lunar-calendar-a-practical-overview/">zakat al fitr and the lunar calendar a practical overview</a> 
+<a href="https://enchanting-mochi-1ead5c.netlify.app/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://endearing-truffle-d89cbb.netlify.app/the-elearning-trends-reshaping-how-we-teach-and-learn.html">the elearning trends reshaping how we teach and learn</a> 
+<a href="https://ephemeral-chaja-f9adef.netlify.app/how-to-evaluate-20-minimum-deposit-casinos-before.html">how to evaluate 20 minimum deposit casinos before</a> 
+<a href="https://epicwin1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://epicwin1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://epicwin1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://epicwin1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://epicwin1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://epicwin1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://epicwin1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://epicwin1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://epicwin1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://epicwin1.xyz/hello-world/">hello world</a> 
 <a href="https://epicwin1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://epicwin1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://epicwin1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -784,21 +802,3 @@
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c2ae9d4/about-us.html">about us</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c2c7b64/techvantor.html">techvantor</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c3927be/what-is-satta-matka-history.html">what is satta matka history</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c3b057d/footyntel.html">footyntel</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c3c3834/currencynews.html">currencynews</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c407a4f/building-a-healthy-daily-reading-habit-a-quick-guide.html">building a healthy daily reading habit a quick guide</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c424ced/navigating-the-evolving-landscape-of-news-consumption-in-202.html">navigating the evolving landscape of news consumption in 202</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c46b8d6/newzcryptos.html">newzcryptos</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c52bf24/how-to-get-the-most-out-of-online-guides-a-quick-guide.html">how to get the most out of online guides a quick guide</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c56ec24/panchang-daily.html">panchang daily</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c5aa81a/bitcoin-price-usd-today-live-btc-to-dollar.html">bitcoin price usd today live btc to dollar</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c5e198d/why-context-matters-when-reading-online-a-practical-guide.html">why context matters when reading online a practical guide</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c5e413c/best-time-to-visit-japan.html">best time to visit japan</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c600aa8/crypto-card-hub.html">crypto card hub</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c68ffc5/abcyapi.html">abcyapi</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c6ad560/scenefordummies.html">scenefordummies</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c6f6a9e/what-the-fear-greed-index-can-and-cannot.html">what the fear greed index can and cannot</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c6f9661/mycoinpartner.html">mycoinpartner</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c770dec/what-moves-bitcoin-price-framework.html">what moves bitcoin price framework</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c7a778f/about-us.html">about us</a> 
-<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@c7a89de/trouver-la-qibla.html">trouver la qibla</a> 

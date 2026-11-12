@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/master-online-guides-reviews-how-tos-a-comprehensive-roundup-43-7.html">master online guides reviews how tos a comprehensive roundup</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/master-online-research-guides-reviews-how-tos-for-smart-sear-43-2.html">master online research guides reviews how tos for smart sear</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/master-the-art-of-budget-travel-find-cheap-flights-and-save--43-6.html">master the art of budget travel find cheap flights and save </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/master-the-digital-world-top-tools-strategies-for-online-res-42-1.html">master the digital world top tools strategies for online res</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/mastering-app-mastery-navigating-the-digital-world-with-conf.html">mastering app mastery navigating the digital world with conf</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/mastering-app-organization-boost-productivity-with-smart-dig.html">mastering app organization boost productivity with smart dig</a> 
@@ -389,6 +392,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/voozon.html">voozon</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-15-statscrop-sites-worth-exploring-43-1.html">web tech content 15 statscrop sites worth exploring 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-50-resources-worth-bookmarking-43-1.html">web tech content 50 resources worth bookmarking 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-for-smart-readers-43-1.html">web tech content a practical guide for smart readers 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-reading-43-1.html">web tech content a practical guide to better online reading </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-research-42-2.html">web tech content a practical guide to better research 42 2</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-online-information-43-1.html">web tech content a practical guide to online information 43 </a> 
@@ -798,7 +802,3 @@
 <a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-blockchain-and-the-futur/">demystifying cryptocurrency bitcoin blockchain and the futur</a> 
 <a href="https://algiamedical.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-10/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-11/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-12/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-13/">digital tools online resources 50 resources worth bookmarkin</a> 
-<a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-14/">digital tools online resources 50 resources worth bookmarkin</a> 
