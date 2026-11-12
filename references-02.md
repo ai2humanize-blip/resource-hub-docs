@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/the-rise-of-ai-in-news-reporting-opportunities-and-challenge/">the rise of ai in news reporting opportunities and challenge</a> 
 <a href="https://123angelnumber.com/the-rise-of-ai-powered-apps-transforming-our-digital-experie/">the rise of ai powered apps transforming our digital experie</a> 
 <a href="https://123angelnumber.com/the-truth-about-circulating-aavot-apk-files-2/">the truth about circulating aavot apk files 2</a> 
 <a href="https://123angelnumber.com/the-truth-about-circulating-aavot-apk-files/">the truth about circulating aavot apk files</a> 
@@ -801,4 +802,3 @@
 <a href="https://789jl1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://789jl1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://789jl1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://789jl1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 

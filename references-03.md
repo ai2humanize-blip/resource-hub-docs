@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://789jl1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://789jl1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://789jl1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://789jl1.xyz/hello-world/">hello world</a> 
@@ -539,6 +540,7 @@
 <a href="https://agriculture-lawyer.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://agriculture-lawyer.com/guest-post-sites-list/">guest post sites list</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-1-resources-worth-bookmarking-75-5/">guides reviews how tos 1 resources worth bookmarking 75 5</a> 
+<a href="https://agriculture-lawyer.com/guides-reviews-how-tos-50-resources-worth-bookmarking-75-5-2/">guides reviews how tos 50 resources worth bookmarking 75 5 2</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-50-resources-worth-bookmarking-75-5/">guides reviews how tos 50 resources worth bookmarking 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-for-tutuapp-and-crypto-card-hub-75-5/">guides reviews how tos for tutuapp and crypto card hub 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-haunted-palace-and-crypto-cards-75-5/">guides reviews how tos haunted palace and crypto cards 75 5</a> 
@@ -800,5 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4/">mastering web tech content a comprehensive guide to online l</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-m-75-4/">mastering web tech content a comprehensive guide to online m</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4-2/">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4/">mastering web tech content a comprehensive guide to online r</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-75-4/">mastering web tech content a comprehensive guide to reliable</a> 

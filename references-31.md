@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://esm.sh/ls-how-to-bookmark-and-revisit-useful-resources-explained-simpl-mvjc7yzz@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-a-personal-reading-list-a-quick-guide-mtmnkp2m@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-a-personal-reading-list-explained-simply-mtmm26tt@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-a-personal-reading-list-explained-simply-mtmn9t0m@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-a-personal-reading-list-the-basics-mtmmco7a@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-build-real-digital-skills-with-online-courses-mtiyy1hg@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-buy-your-first-crypto-safely-muz57dr8@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-choose-the-perfect-watch-a-comprehensive-buying-guide-msrhv1ga@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-compare-sources-on-the-same-story-a-quick-guide-mtmnebdu@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-compare-sources-on-the-same-story-a-quick-guide-mvjbxbmn@1.0.0/index.html">index</a> 
+<a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-and-why-i-mtmn2o3b@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-explained-mtmn0qxz@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-mtmo3thh@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-how-to-evaluate-online-reviews-and-recommendations-mvivl2k7@1.0.0/index.html">index</a> 
@@ -791,14 +802,3 @@
 <a href="https://ezoterizm.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
 <a href="https://ezoterizm.com/how-to-spot-trends-in-sports-news-and-use-them-to-your-advan/">how to spot trends in sports news and use them to your advan</a> 
 <a href="https://ezoterizm.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
-<a href="https://ezoterizm.com/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://ezoterizm.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters-2/">how to tell if a website is trustworthy and why it matters 2</a> 
-<a href="https://ezoterizm.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://ezoterizm.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://ezoterizm.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://ezoterizm.com/how-to-watch-a-movie-franchise-in-the-right-order/">how to watch a movie franchise in the right order</a> 
-<a href="https://ezoterizm.com/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
-<a href="https://ezoterizm.com/le-pmu-expliqu-simplement-paris-hippiques-et-fonctionnement/">le pmu expliqu simplement paris hippiques et fonctionnement</a> 
-<a href="https://ezoterizm.com/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
-<a href="https://ezoterizm.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
-<a href="https://ezoterizm.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/casual-puzzle-and-arcade-games-for-all-ages-2/">casual puzzle and arcade games for all ages 2</a> 
+<a href="https://algiamedical.com/casual-puzzle-and-arcade-games-for-all-ages/">casual puzzle and arcade games for all ages</a> 
+<a href="https://algiamedical.com/choosing-the-perfect-timepiece-a-comprehensive-watch-buying/">choosing the perfect timepiece a comprehensive watch buying</a> 
 <a href="https://algiamedical.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
 <a href="https://algiamedical.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-77-8/">comprehensive guides reviews and how tos for every interest </a> 
 <a href="https://algiamedical.com/comprehensive-guides-reviews-and-how-tos-navigating-the-digi-77-8/">comprehensive guides reviews and how tos navigating the digi</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/understanding-quikconsolecom-a-practical-guide/">understanding quikconsolecom a practical guide</a> 
 <a href="https://algiamedical.com/understanding-sabiguide-a-practical-guide/">understanding sabiguide a practical guide</a> 
 <a href="https://algiamedical.com/understanding-serpinsight-a-practical-guide/">understanding serpinsight a practical guide</a> 
-<a href="https://algiamedical.com/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
-<a href="https://algiamedical.com/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre-2/">understanding the impact of ai on modern journalism a compre</a> 

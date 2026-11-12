@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-28.md) · [‹ prev](references-26.md)
 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-difference-between-skimming-and-deep-reading-online-mc">what to know about the difference between skimming and deep </a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-value-of-slow-careful-reading-3im1">what to know about the value of slow careful reading 3im1</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-the-value-of-slow-careful-reading-dhn">what to know about the value of slow careful reading dhn</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-understanding-digital-literacy-3hgp">what to know about understanding digital literacy 3hgp</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-what-makes-an-explainer-article-genuinely-useful-4n87">what to know about what makes an explainer article genuinely</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-why-context-matters-when-reading-online-32h3">what to know about why context matters when reading online 3</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-know-about-why-context-matters-when-reading-online-3ca3">what to know about why context matters when reading online 3</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-look-for-in-a-good-news-website-a-practical-guide-3a35">what to look for in a good news website a practical guide 3a</a> 
+<a href="https://dev.to/ai2humanizeblip/what-to-look-for-in-a-good-news-website-a-quick-guide-1jcp">what to look for in a good news website a quick guide 1jcp</a> 
+<a href="https://dev.to/ai2humanizeblip/why-browser-games-are-perfect-for-a-quick-break-2jd8">why browser games are perfect for a quick break 2jd8</a> 
+<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-2ajp">why niche blogs still matter 2ajp</a> 
 <a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-3p8o">why niche blogs still matter 3p8o</a> 
 <a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-a-deep-dive-into-web-tech-content-276k">why niche blogs still matter a deep dive into web tech conte</a> 
 <a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-a-practical-guide-fbb">why niche blogs still matter a practical guide fbb</a> 
@@ -791,14 +802,3 @@
 <a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-90-10-2/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-90-10-3/">mastering online research guides reviews how tos for smart r</a> 
 <a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smart-r-90-10/">mastering online research guides reviews how tos for smart r</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smarter-90-10-2/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smarter-90-10-3/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smarter-90-10-4/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smarter-90-10-5/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-smarter-90-10/">mastering online research guides reviews how tos for smarter</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-the-sav-90-10-2/">mastering online research guides reviews how tos for the sav</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-research-guides-reviews-how-tos-for-the-sav-90-10/">mastering online research guides reviews how tos for the sav</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-resources-guides-reviews-how-tos-for-smarte-90-10/">mastering online resources guides reviews how tos for smarte</a> 
-<a href="https://ecomhuntreviews.com/mastering-personal-finance-a-business-owner-s-guide-to-finan/">mastering personal finance a business owner s guide to finan</a> 
-<a href="https://ecomhuntreviews.com/mastering-personal-finance-a-strategic-approach-to-business-3/">mastering personal finance a strategic approach to business </a> 
-<a href="https://ecomhuntreviews.com/mastering-personal-finance-a-strategic-approach-to-business-4/">mastering personal finance a strategic approach to business </a> 

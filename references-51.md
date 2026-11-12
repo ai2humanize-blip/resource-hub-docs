@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-52.md) · [‹ prev](references-50.md)
 
+<a href="https://livejournal.micro.blog/2026/09/09/what-to-know-about-recognizing.html">what to know about recognizing</a> 
+<a href="https://livejournal.micro.blog/2026/09/16/font-pairing-resources-worth-bookmarking.html">font pairing resources worth bookmarking</a> 
+<a href="https://livejournal.micro.blog/2026/09/16/the-space-grotesk-and-ibm.html">the space grotesk and ibm</a> 
+<a href="https://livejournal.micro.blog/2026/09/26/instagram-carousel-dimensions-stop-the.html">instagram carousel dimensions stop the</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/061652.html">061652</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/061701.html">061701</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063121.html">063121</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063141.html">063141</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063143.html">063143</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063213.html">063213</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063238.html">063238</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/063406.html">063406</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064457.html">064457</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064537.html">064537</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064546.html">064546</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064548.html">064548</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/064614.html">064614</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/065935.html">065935</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/065946.html">065946</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/070027.html">070027</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/070049.html">070049</a> 
+<a href="https://livejournal.micro.blog/2026/10/07/071448.html">071448</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/071519.html">071519</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/071526.html">071526</a> 
 <a href="https://livejournal.micro.blog/2026/10/07/071607.html">071607</a> 
@@ -780,25 +802,3 @@
 <a href="https://llmseoservices.org/avoid-loan-app-harassment-in-nigeria/">avoid loan app harassment in nigeria</a> 
 <a href="https://llmseoservices.org/baby-name-meanings-guide/">baby name meanings guide</a> 
 <a href="https://llmseoservices.org/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
-<a href="https://llmseoservices.org/blueflamepublishingblog-xyz-resource-2/">blueflamepublishingblog xyz resource 2</a> 
-<a href="https://llmseoservices.org/book-publishing-and-the-business-of-being-an-author-what-to/">book publishing and the business of being an author what to</a> 
-<a href="https://llmseoservices.org/boost-your-business-finance-and-productivity-a-comprehensive-32-10/">boost your business finance and productivity a comprehensive</a> 
-<a href="https://llmseoservices.org/boost-your-business-finance-and-productivity-expert-tips-and-32-10/">boost your business finance and productivity expert tips and</a> 
-<a href="https://llmseoservices.org/boost-your-business-finance-and-productivity-with-these-esse-32-10/">boost your business finance and productivity with these esse</a> 
-<a href="https://llmseoservices.org/boost-your-business-finance-and-productivity-with-these-expe-32-10/">boost your business finance and productivity with these expe</a> 
-<a href="https://llmseoservices.org/boost-your-business-finance-productivity-with-smart-internet-32-10/">boost your business finance productivity with smart internet</a> 
-<a href="https://llmseoservices.org/boosting-business-finance-and-productivity-a-comprehensive-g-32-10-2/">boosting business finance and productivity a comprehensive g</a> 
-<a href="https://llmseoservices.org/boosting-business-finance-and-productivity-a-comprehensive-g-32-10/">boosting business finance and productivity a comprehensive g</a> 
-<a href="https://llmseoservices.org/boosting-business-finance-and-productivity-through-smart-int-32-10/">boosting business finance and productivity through smart int</a> 
-<a href="https://llmseoservices.org/boosting-business-finance-productivity-a-comprehensive-round-32-10/">boosting business finance productivity a comprehensive round</a> 
-<a href="https://llmseoservices.org/boosting-business-finance-productivity-expert-tips-solutions-32-10/">boosting business finance productivity expert tips solutions</a> 
-<a href="https://llmseoservices.org/boosting-your-business-essential-insights-on-finance-product-32-10/">boosting your business essential insights on finance product</a> 
-<a href="https://llmseoservices.org/boosting-your-business-finance-and-productivity-with-ai-and-32-10/">boosting your business finance and productivity with ai and </a> 
-<a href="https://llmseoservices.org/budget-travel-planning-and-finding-flights-what-to-know/">budget travel planning and finding flights what to know</a> 
-<a href="https://llmseoservices.org/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
-<a href="https://llmseoservices.org/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
-<a href="https://llmseoservices.org/business-finance-productivity-a-practical-resource-roundup-32-5/">business finance productivity a practical resource roundup 3</a> 
-<a href="https://llmseoservices.org/business-finance-productivity-essential-independent-websites-32-10/">business finance productivity essential independent websites</a> 
-<a href="https://llmseoservices.org/business-finance-productivity-essential-resources-for-2026-32-10/">business finance productivity essential resources for 2026 3</a> 
-<a href="https://llmseoservices.org/business-finance-productivity-essential-resources-for-succes-32-10/">business finance productivity essential resources for succes</a> 
-<a href="https://llmseoservices.org/casino-utan-spelpaus-allt-svenska-spelare-beh-ver-veta/">casino utan spelpaus allt svenska spelare beh ver veta</a> 
