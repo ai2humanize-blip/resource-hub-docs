@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://courageous-chimera-a7f939.netlify.app/teckjb.html">teckjb</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes-2/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill-2/">a closer look at how to use the web to learn a new skill 2</a> 
+<a href="https://cplemaire.us.org/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
 <a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online-2/">a closer look at recognizing credible experts online 2</a> 
 <a href="https://cplemaire.us.org/a-closer-look-at-recognizing-credible-experts-online/">a closer look at recognizing credible experts online</a> 
 <a href="https://cplemaire.us.org/a-closer-look-at-why-niche-blogs-still-matter/">a closer look at why niche blogs still matter</a> 
@@ -385,6 +394,8 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-11/">guides reviews how tos 50 resources worth bookmarking 86 4 1</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-12/">guides reviews how tos 50 resources worth bookmarking 86 4 1</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-13/">guides reviews how tos 50 resources worth bookmarking 86 4 1</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-14/">guides reviews how tos 50 resources worth bookmarking 86 4 1</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-15/">guides reviews how tos 50 resources worth bookmarking 86 4 1</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-2/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-3/">guides reviews how tos 50 resources worth bookmarking 86 4 3</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-4/">guides reviews how tos 50 resources worth bookmarking 86 4 4</a> 
@@ -428,6 +439,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-better-financial-decisions-86-4/">guides reviews how tos for better financial decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-bitcoin-and-web3-decisions-86-4/">guides reviews how tos for bitcoin and web3 decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-casinos-and-bitcoin-readers-86-4/">guides reviews how tos for casinos and bitcoin readers 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-for-clearer-smarter-decisions-86-4/">guides reviews how tos for clearer smarter decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-and-carbon-innovation-86-4/">guides reviews how tos for crypto and carbon innovation 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-casinos-explained-86-4/">guides reviews how tos for crypto casinos explained 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-markets-and-news-86-4/">guides reviews how tos for crypto markets and news 86 4</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-a-comprehensive-gui-86-6-2/">navigating business finance productivity a comprehensive gui</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-a-comprehensive-gui-86-6-3/">navigating business finance productivity a comprehensive gui</a> 
 <a href="https://crediblenews24.com/navigating-business-finance-productivity-a-comprehensive-gui-86-6/">navigating business finance productivity a comprehensive gui</a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-curated-guide-to-86-6-2/">navigating business finance productivity a curated guide to </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-curated-guide-to-86-6-3/">navigating business finance productivity a curated guide to </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-curated-guide-to-86-6/">navigating business finance productivity a curated guide to </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-guide-to-trustwor-86-6/">navigating business finance productivity a guide to trustwor</a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-practical-guide-t-86-6-2/">navigating business finance productivity a practical guide t</a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-a-practical-guide-t-86-6/">navigating business finance productivity a practical guide t</a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-in-the-digital-age-86-6-2/">navigating business finance productivity in the digital age </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-in-the-digital-age-86-6-3/">navigating business finance productivity in the digital age </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-in-the-digital-age-86-6/">navigating business finance productivity in the digital age </a> 
-<a href="https://crediblenews24.com/navigating-business-finance-productivity-top-online-resource-86-6/">navigating business finance productivity top online resource</a> 
-<a href="https://crediblenews24.com/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
-<a href="https://crediblenews24.com/navigating-online-casino-news-cryptocurrency-and-productivit-86-6/">navigating online casino news cryptocurrency and productivit</a> 

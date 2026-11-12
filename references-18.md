@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-19.md) · [‹ prev](references-17.md)
 
+<a href="https://cbdpuffbars.com/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
+<a href="https://cbdpuffbars.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
+<a href="https://cbdpuffbars.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://cbdpuffbars.com/the-difference-between-skimming-and-deep-reading-online/">the difference between skimming and deep reading online</a> 
+<a href="https://cbdpuffbars.com/the-future-of-apps-how-ai-and-personalization-are-transformi/">the future of apps how ai and personalization are transformi</a> 
+<a href="https://cbdpuffbars.com/the-future-of-news-ai-algorithms-and-the-role-of-human-journ/">the future of news ai algorithms and the role of human journ</a> 
 <a href="https://cbdpuffbars.com/the-future-of-news-how-ai-and-technology-are-transforming-jo/">the future of news how ai and technology are transforming jo</a> 
 <a href="https://cbdpuffbars.com/the-history-and-cultural-context-of-number-games-in-india/">the history and cultural context of number games in india</a> 
 <a href="https://cbdpuffbars.com/the-practical-guide-to-ai-art-prompt-generators-web-tech-con-84-5/">the practical guide to ai art prompt generators web tech con</a> 
@@ -216,6 +222,8 @@
 <a href="https://cbdstent.com/digital-tools-and-online-resources-for-safer-crypto-use-85-3/">digital tools and online resources for safer crypto use 85 3</a> 
 <a href="https://cbdstent.com/digital-tools-and-online-resources-for-smarter-ecommerce-85-3/">digital tools and online resources for smarter ecommerce 85 </a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-50-resources-worth-bookmarkin-85-3-10/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://cbdstent.com/digital-tools-online-resources-50-resources-worth-bookmarkin-85-3-11/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://cbdstent.com/digital-tools-online-resources-50-resources-worth-bookmarkin-85-3-12/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-50-resources-worth-bookmarkin-85-3-2/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-50-resources-worth-bookmarkin-85-3-3/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-50-resources-worth-bookmarkin-85-3-4/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -280,6 +288,7 @@
 <a href="https://cbdstent.com/digital-tools-online-resources-for-crypto-tv-fans-85-3/">digital tools online resources for crypto tv fans 85 3</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-gaming-and-crypto-85-3/">digital tools online resources for gaming and crypto 85 3</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-gme-pi-and-crypto-85-3/">digital tools online resources for gme pi and crypto 85 3</a> 
+<a href="https://cbdstent.com/digital-tools-online-resources-for-parties-events-and-gaming-85-3/">digital tools online resources for parties events and gaming</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-planning-and-play-85-3/">digital tools online resources for planning and play 85 3</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-safer-crypto-choices-85-3/">digital tools online resources for safer crypto choices 85 3</a> 
 <a href="https://cbdstent.com/digital-tools-online-resources-for-safer-crypto-decisions-85-3-2/">digital tools online resources for safer crypto decisions 85</a> 
@@ -793,12 +802,3 @@
 <a href="https://cbdstent.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-practi/">understanding cryptocurrency bitcoin and blockchain a practi</a> 
 <a href="https://cbdstent.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
 <a href="https://cbdstent.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
-<a href="https://cbdstent.com/understanding-football-statistics-points-goal-difference-and/">understanding football statistics points goal difference and</a> 
-<a href="https://cbdstent.com/understanding-how-india-s-public-institutions-actually-work/">understanding how india s public institutions actually work</a> 
-<a href="https://cbdstent.com/understanding-how-search-engines-rank-pages-the-basics/">understanding how search engines rank pages the basics</a> 
-<a href="https://cbdstent.com/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
-<a href="https://cbdstent.com/understanding-legal-news-how-to-stay-informed-and-make-sense/">understanding legal news how to stay informed and make sense</a> 
-<a href="https://cbdstent.com/understanding-ott-platforms-where-new-shows-and-movies-premi/">understanding ott platforms where new shows and movies premi</a> 
-<a href="https://cbdstent.com/understanding-the-latest-trends-in-news-consumption-and-anal/">understanding the latest trends in news consumption and anal</a> 
-<a href="https://cbdstent.com/understanding-visa-and-entry-requirements-before-an-internat/">understanding visa and entry requirements before an internat</a> 
-<a href="https://cbdstent.com/unlocking-creativity-how-ai-powered-tools-revolutionize-digi/">unlocking creativity how ai powered tools revolutionize digi</a> 
