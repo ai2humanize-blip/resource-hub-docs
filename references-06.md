@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
+<a href="https://algiamedical.com/comprehensive-guides-reviews-and-how-tos-for-every-interest-77-8/">comprehensive guides reviews and how tos for every interest </a> 
+<a href="https://algiamedical.com/comprehensive-guides-reviews-and-how-tos-navigating-the-digi-77-8/">comprehensive guides reviews and how tos navigating the digi</a> 
+<a href="https://algiamedical.com/comprehensive-guides-reviews-and-how-tos-your-ultimate-resou-77-8/">comprehensive guides reviews and how tos your ultimate resou</a> 
+<a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-beginne/">demystifying cryptocurrency bitcoin and blockchain a beginne</a> 
+<a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-77-7/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://algiamedical.com/demystifying-cryptocurrency-bitcoin-blockchain-and-the-futur/">demystifying cryptocurrency bitcoin blockchain and the futur</a> 
+<a href="https://algiamedical.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-10/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-11/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://algiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-77-6-12/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -439,6 +448,7 @@
 <a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-explained-simply/">how to tell explainer journalism from opinion explained simp</a> 
 <a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
 <a href="https://algiamedical.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
+<a href="https://algiamedical.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters-2/">how to tell if a website is trustworthy and why it matters 2</a> 
 <a href="https://algiamedical.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
 <a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
 <a href="https://algiamedical.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
@@ -792,13 +802,3 @@
 <a href="https://algiamedical.com/understanding-staycluedup-a-practical-guide/">understanding staycluedup a practical guide</a> 
 <a href="https://algiamedical.com/understanding-the-air-quality-index-aqi-and-what-it-measures/">understanding the air quality index aqi and what it measures</a> 
 <a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre-2/">understanding the impact of ai on modern journalism a compre</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-journalism-a-compre/">understanding the impact of ai on modern journalism a compre</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-journalism-a-deep-d/">understanding the impact of ai on modern journalism a deep d</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-journalism-opportun-2/">understanding the impact of ai on modern journalism opportun</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-journalism-opportun/">understanding the impact of ai on modern journalism opportun</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-news-reporting-a-co/">understanding the impact of ai on modern news reporting a co</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-news-reporting-and/">understanding the impact of ai on modern news reporting and</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-ai-on-modern-news-reporting-tren/">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-current-events-on-global-currenc/">understanding the impact of current events on global currenc</a> 
-<a href="https://algiamedical.com/understanding-the-impact-of-spot-etf-flows-on-bitcoin-supply-77-6/">understanding the impact of spot etf flows on bitcoin supply</a> 
-<a href="https://algiamedical.com/understanding-the-origins-of-baby-names-the-basics/">understanding the origins of baby names the basics</a> 

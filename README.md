@@ -159,6 +159,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://dltutuapp.com/">dltutuapp.com</a> 
 <a href="https://inewshuman.com/">inewshuman.com</a> 
 <a href="https://seethelightshine.com/">seethelightshine.com</a> 
+<a href="https://itechleez.com/">itechleez.com</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -241,8 +242,9 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 78](references-78.md)
 - [Reference set 79](references-79.md)
 - [Reference set 80](references-80.md)
+- [Reference set 81](references-81.md)
 
-_63,935 curated references across 80 sets._
+_64,115 curated references across 81 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)

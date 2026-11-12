@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://789jl1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://789jl1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://789jl1.xyz/hello-world/">hello world</a> 
 <a href="https://789jl1.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://789jl1.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://789jl1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -159,6 +162,7 @@
 <a href="https://agenciainmobiliaria.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://agenciainmobiliaria.xyz/how-to-keep-an-older-laptop-running-smoothly-for-longer/">how to keep an older laptop running smoothly for longer</a> 
 <a href="https://agenciainmobiliaria.xyz/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://agenciainmobiliaria.xyz/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
 <a href="https://agenciainmobiliaria.xyz/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
 <a href="https://agenciainmobiliaria.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
 <a href="https://agenciainmobiliaria.xyz/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
@@ -590,6 +594,7 @@
 <a href="https://agriculture-lawyer.com/how-to-safeguard-your-privacy-in-the-digital-age-essential-a/">how to safeguard your privacy in the digital age essential a</a> 
 <a href="https://agriculture-lawyer.com/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
 <a href="https://agriculture-lawyer.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
+<a href="https://agriculture-lawyer.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
 <a href="https://agriculture-lawyer.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide-2/">how to tell if a website is trustworthy a practical guide 2</a> 
 <a href="https://agriculture-lawyer.com/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
 <a href="https://agriculture-lawyer.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
@@ -797,8 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4-2/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4/">mastering web tech content a comprehensive guide to online r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-reliable-75-4/">mastering web tech content a comprehensive guide to reliable</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-75-4-2/">mastering web tech content a comprehensive guide to smart on</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-75-4-3/">mastering web tech content a comprehensive guide to smart on</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smart-on-75-4/">mastering web tech content a comprehensive guide to smart on</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-smarter-75-9/">mastering web tech content a comprehensive guide to smarter </a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-roundup-75-4/">mastering web tech content a comprehensive roundup 75 4</a> 
