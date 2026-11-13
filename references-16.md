@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://casinoisloty.xyz/how-small-publishers-keep-advertising-transparent/">how small publishers keep advertising transparent</a> 
 <a href="https://casinoisloty.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://casinoisloty.xyz/how-to-bookmark-and-revisit-useful-resources-and-why-it-matt/">how to bookmark and revisit useful resources and why it matt</a> 
 <a href="https://casinoisloty.xyz/how-to-compare-sources-on-the-same-story-a-practical-guide/">how to compare sources on the same story a practical guide</a> 
@@ -311,6 +312,7 @@
 <a href="https://cbd-stone.com/criptano/">criptano</a> 
 <a href="https://cbd-stone.com/crypto-cards-vs-bank-cards-a-comprehensive-guide-to-choosing-83-2/">crypto cards vs bank cards a comprehensive guide to choosing</a> 
 <a href="https://cbd-stone.com/crypto-guides-reviews-how-tos-bridges-layers-fintech-83-2/">crypto guides reviews how tos bridges layers fintech 83 2</a> 
+<a href="https://cbd-stone.com/crypto-guides-reviews-how-tos-read-the-market-clearly-83-2/">crypto guides reviews how tos read the market clearly 83 2</a> 
 <a href="https://cbd-stone.com/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
 <a href="https://cbd-stone.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-83-3/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
 <a href="https://cbd-stone.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
@@ -800,5 +802,3 @@
 <a href="https://cbd-stone.com/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://cbd-stone.com/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
 <a href="https://cbd-stone.com/staying-safe-from-online-scams-in-india-a-2026-guide-for-bus-83-4/">staying safe from online scams in india a 2026 guide for bus</a> 
-<a href="https://cbd-stone.com/staying-safe-while-playing-the-latest-online-casino-and-gamb/">staying safe while playing the latest online casino and gamb</a> 
-<a href="https://cbd-stone.com/streaming-release-windows-explained-theaters-digital-and-sub/">streaming release windows explained theaters digital and sub</a> 

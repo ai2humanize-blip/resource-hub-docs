@@ -430,6 +430,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-to-explore-43-1.html">web tech content roundup 15 useful sites to explore 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-worth-exploring-43-1.html">web tech content roundup 15 useful sites worth exploring 43 </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-essential-tools-and-insights-43-1.html">web tech content roundup essential tools and insights 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-useful-online-resources-worth-bookmarking-43-1.html">web tech content useful online resources worth bookmarking 4</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-are-reproducible-builds.html">what are reproducible builds</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-bitcoin-btc-how-it-works.html">what is bitcoin btc how it works</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-is-crypto-wallet-how-to-keep.html">what is crypto wallet how to keep</a> 
@@ -801,4 +802,3 @@
 <a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
 <a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
-<a href="https://algiamedical.com/air-quality-in-bengaluru-how-it-compares-and-what-to-watch/">air quality in bengaluru how it compares and what to watch</a> 

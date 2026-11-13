@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid-3/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
@@ -801,4 +802,3 @@
 <a href="https://app.zentrack.net/mastering-personal-finance-business-and-marketing-a-comprehe-25-2/">mastering personal finance business and marketing a comprehe</a> 
 <a href="https://app.zentrack.net/mastering-the-art-of-business-finance-and-productivity-a-com-25-2/">mastering the art of business finance and productivity a com</a> 
 <a href="https://app.zentrack.net/mastering-the-art-of-business-personal-finance-and-marketing-25-2/">mastering the art of business personal finance and marketing</a> 
-<a href="https://app.zentrack.net/mastering-the-art-of-keyword-research-a-comprehensive-guide/">mastering the art of keyword research a comprehensive guide</a> 
