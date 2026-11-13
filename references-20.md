@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://competitorscreenshots.com/how-to-avoid-misinformation-and-hype-a-practical-guide/">how to avoid misinformation and hype a practical guide</a> 
+<a href="https://competitorscreenshots.com/how-to-avoid-misinformation-and-hype-and-why-it-matters/">how to avoid misinformation and hype and why it matters</a> 
+<a href="https://competitorscreenshots.com/how-to-avoid-misinformation-and-hype-the-basics/">how to avoid misinformation and hype the basics</a> 
+<a href="https://competitorscreenshots.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://competitorscreenshots.com/how-to-bookmark-and-revisit-useful-resources-the-basics/">how to bookmark and revisit useful resources the basics</a> 
+<a href="https://competitorscreenshots.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://competitorscreenshots.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://competitorscreenshots.com/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
+<a href="https://competitorscreenshots.com/how-to-buy-a-laptop-that-lasts/">how to buy a laptop that lasts</a> 
 <a href="https://competitorscreenshots.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
 <a href="https://competitorscreenshots.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
 <a href="https://competitorscreenshots.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
@@ -600,6 +609,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-prices-etfs-and-pi-86-4/">guides reviews how tos for crypto prices etfs and pi 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-security-and-value-86-4/">guides reviews how tos for crypto security and value 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-crypto-xrp-and-casinos-86-4/">guides reviews how tos for crypto xrp and casinos 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-for-finding-the-right-baby-name-86-4/">guides reviews how tos for finding the right baby name 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-gamestop-pi-and-crypto-86-4/">guides reviews how tos for gamestop pi and crypto 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-parties-events-and-casinos-86-4/">guides reviews how tos for parties events and casinos 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-poker-slots-and-linux-users-86-4/">guides reviews how tos for poker slots and linux users 86 4</a> 
@@ -623,6 +633,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-money-decisions-86-4/">guides reviews how tos for smarter money decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-online-decisions-86-4/">guides reviews how tos for smarter online decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-online-play-86-4/">guides reviews how tos for smarter online play 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-safer-travel-86-4/">guides reviews how tos for smarter safer travel 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-xrp-crypto-casinos-and-tsam-86-4/">guides reviews how tos for xrp crypto casinos and tsam 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-pour-les-courses-hippiques-pmu-86-4/">guides reviews how tos pour les courses hippiques pmu 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-practical-insights-that-add-value-86-4/">guides reviews how tos practical insights that add value 86 </a> 
@@ -791,14 +802,3 @@
 <a href="https://crediblenews24.com/master-business-finance-productivity-top-online-resources-to-86-6/">master business finance productivity top online resources to</a> 
 <a href="https://crediblenews24.com/master-digital-tools-online-resources-a-comprehensive-guide-86-7-2/">master digital tools online resources a comprehensive guide </a> 
 <a href="https://crediblenews24.com/master-digital-tools-online-resources-a-comprehensive-guide-86-7/">master digital tools online resources a comprehensive guide </a> 
-<a href="https://crediblenews24.com/master-the-art-of-budget-travel-find-cheap-flights-and-save-86-8/">master the art of budget travel find cheap flights and save </a> 
-<a href="https://crediblenews24.com/mastering-app-mastery-navigating-the-digital-world-with-conf/">mastering app mastery navigating the digital world with conf</a> 
-<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-10/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-11/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-12/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-2/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-3/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-4/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-5/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-6/">mastering business finance and productivity a comprehensive </a> 
-<a href="https://crediblenews24.com/mastering-business-finance-and-productivity-a-comprehensive-86-6-7/">mastering business finance and productivity a comprehensive </a> 
