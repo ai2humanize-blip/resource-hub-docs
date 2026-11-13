@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://789jl1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://789jl1.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://789jl1.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://789jl1.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://789jl1.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
@@ -544,6 +546,7 @@
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-50-resources-worth-bookmarking-75-5/">guides reviews how tos 50 resources worth bookmarking 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-for-tutuapp-and-crypto-card-hub-75-5/">guides reviews how tos for tutuapp and crypto card hub 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-haunted-palace-and-crypto-cards-75-5/">guides reviews how tos haunted palace and crypto cards 75 5</a> 
+<a href="https://agriculture-lawyer.com/guides-reviews-how-tos-smarter-ai-tools-and-workflows-75-5/">guides reviews how tos smarter ai tools and workflows 75 5</a> 
 <a href="https://agriculture-lawyer.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://agriculture-lawyer.com/how-ai-is-revolutionizing-news-consumption-trends-tools-and/">how ai is revolutionizing news consumption trends tools and</a> 
 <a href="https://agriculture-lawyer.com/how-ai-powered-apps-are-revolutionizing-our-digital-lives/">how ai powered apps are revolutionizing our digital lives</a> 
@@ -799,6 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-75-4/">mastering web tech content a comprehensive guide to navigati</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-e-75-4/">mastering web tech content a comprehensive guide to online e</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4-2/">mastering web tech content a comprehensive guide to online l</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-l-75-4/">mastering web tech content a comprehensive guide to online l</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-m-75-4/">mastering web tech content a comprehensive guide to online m</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-online-r-75-4-2/">mastering web tech content a comprehensive guide to online r</a> 
