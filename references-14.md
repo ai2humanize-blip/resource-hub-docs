@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/why-attention-is-the-scarce-resource/">why attention is the scarce resource</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-niche-blogs-still-matter-535a3066/">why niche blogs still matter 535a3066</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-niche-blogs-still-matter/">why niche blogs still matter</a> 
+<a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-a-practical-guide/">why primary sources matter and how to find them a practical </a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters-80f567df/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-and-why-it-matters/">why primary sources matter and how to find them and why it m</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
@@ -793,12 +802,3 @@
 <a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
 <a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
 <a href="https://captainjackinterview.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
-<a href="https://captainjackinterview.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
-<a href="https://captainjackinterview.com/how-to-evaluate-online-reviews-and-recommendations-the-basics/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://captainjackinterview.com/how-to-fact-check-something-in-five-minutes/">how to fact check something in five minutes</a> 
-<a href="https://captainjackinterview.com/how-to-find-balanced-coverage-of-a-topic-the-basics/">how to find balanced coverage of a topic the basics</a> 
-<a href="https://captainjackinterview.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://captainjackinterview.com/how-to-find-genuinely-cheap-flights-without-falling-for-fake/">how to find genuinely cheap flights without falling for fake</a> 
-<a href="https://captainjackinterview.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
-<a href="https://captainjackinterview.com/how-to-find-reliable-how-to-guides-a-quick-guide-2/">how to find reliable how to guides a quick guide 2</a> 
-<a href="https://captainjackinterview.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
