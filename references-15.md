@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/how-to-get-the-most-out-of-online-guides-explained-simply-2/">how to get the most out of online guides explained simply 2</a> 
 <a href="https://captainjackinterview.com/how-to-get-the-most-out-of-online-guides-explained-simply/">how to get the most out of online guides explained simply</a> 
 <a href="https://captainjackinterview.com/how-to-get-the-most-out-of-online-guides-the-basics/">how to get the most out of online guides the basics</a> 
 <a href="https://captainjackinterview.com/how-to-optimize-your-website-for-voice-search-and-boost-seo/">how to optimize your website for voice search and boost seo</a> 
@@ -472,6 +473,7 @@
 <a href="https://captainjackinterview.com/web-tech-content-50-resources-worth-bookmarking-82-2-2/">web tech content 50 resources worth bookmarking 82 2 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-50-resources-worth-bookmarking-82-2-3/">web tech content 50 resources worth bookmarking 82 2 3</a> 
 <a href="https://captainjackinterview.com/web-tech-content-50-resources-worth-bookmarking-82-2/">web tech content 50 resources worth bookmarking 82 2</a> 
+<a href="https://captainjackinterview.com/web-tech-content-9-resources-worth-bookmarking-82-2/">web tech content 9 resources worth bookmarking 82 2</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-for-everyday-users-82-2/">web tech content a comprehensive guide for everyday users 82</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-comprehensive-guide-to-navigating-the-dig-82-2/">web tech content a comprehensive guide to navigating the dig</a> 
 <a href="https://captainjackinterview.com/web-tech-content-a-practical-guide-to-smarter-research-82-2/">web tech content a practical guide to smarter research 82 2</a> 
@@ -800,5 +802,3 @@
 <a href="https://casinoisloty.xyz/how-to-get-the-most-out-of-online-guides-a-quick-guide/">how to get the most out of online guides a quick guide</a> 
 <a href="https://casinoisloty.xyz/how-to-guides-for-bangladeshi-government-services-and-docume/">how to guides for bangladeshi government services and docume</a> 
 <a href="https://casinoisloty.xyz/how-to-guides-for-nigerian-government-services-ids-and-permi/">how to guides for nigerian government services ids and permi</a> 
-<a href="https://casinoisloty.xyz/how-to-guides-for-philippine-government-ids-and-public-servi/">how to guides for philippine government ids and public servi</a> 
-<a href="https://casinoisloty.xyz/how-to-guides-for-south-african-ids-grants-and-services-what/">how to guides for south african ids grants and services what</a> 

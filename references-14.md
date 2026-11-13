@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/why-primary-sources-matter-and-how-to-find-them-explained-simply/">why primary sources matter and how to find them explained si</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-professional-certifications-still-matter-for-career-growth/">why professional certifications still matter for career grow</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-6ab3c4bf/">why washington not charts is driving crypto 6ab3c4bf</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-washington-not-charts-is-driving-crypto-6d6600ff/">why washington not charts is driving crypto 6d6600ff</a> 
@@ -801,4 +802,3 @@
 <a href="https://captainjackinterview.com/how-to-find-reliable-how-to-guides-a-quick-guide/">how to find reliable how to guides a quick guide</a> 
 <a href="https://captainjackinterview.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
 <a href="https://captainjackinterview.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://captainjackinterview.com/how-to-get-the-most-out-of-online-guides-explained-simply-2/">how to get the most out of online guides explained simply 2</a> 

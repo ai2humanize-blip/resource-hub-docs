@@ -418,6 +418,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-smarter-browsing-43-1.html">web tech content a practical guide to smarter browsing 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-the-useful-web-43-1.html">web tech content a practical guide to the useful web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-statscrop-site-roundup-43-1.html">web tech content a practical statscrop site roundup 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-reader-s-map-to-the-useful-web-43-1.html">web tech content a reader s map to the useful web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-information-43-1.html">web tech content a smarter guide to online information 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-research-43-1.html">web tech content a smarter guide to online research 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-safer-guide-to-the-web-43-1.html">web tech content a smarter safer guide to the web 43 1</a> 
@@ -801,4 +802,3 @@
 <a href="https://algiamedical.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://algiamedical.com/blind-and-seen-in-teen-patti-2/">blind and seen in teen patti 2</a> 
 <a href="https://algiamedical.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://algiamedical.com/boosting-your-business-and-personal-finances-a-marketing-per/">boosting your business and personal finances a marketing per</a> 

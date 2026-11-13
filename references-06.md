@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/boosting-your-business-and-personal-finances-a-marketing-per/">boosting your business and personal finances a marketing per</a> 
 <a href="https://algiamedical.com/breaking-down-today-s-top-news-stories-analysis-and-insights/">breaking down today s top news stories analysis and insights</a> 
 <a href="https://algiamedical.com/building-a-daily-reading-habit-with-short-explainers/">building a daily reading habit with short explainers</a> 
 <a href="https://algiamedical.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
@@ -801,4 +802,3 @@
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://algiamedical.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
-<a href="https://algiamedical.com/understanding-legal-news-a-guide-to-staying-informed-and-emp/">understanding legal news a guide to staying informed and emp</a> 
