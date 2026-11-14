@@ -140,6 +140,7 @@
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-online-83-1/">web tech content a practical guide to reading online 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1-2/">web tech content a practical guide to reading smarter 83 1 2</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1-3/">web tech content a practical guide to reading smarter 83 1 3</a> 
+<a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1-4/">web tech content a practical guide to reading smarter 83 1 4</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1/">web tech content a practical guide to reading smarter 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-smarter-reading-83-1-2/">web tech content a practical guide to smarter reading 83 1 2</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-smarter-reading-83-1/">web tech content a practical guide to smarter reading 83 1</a> 
@@ -155,7 +156,9 @@
 <a href="https://cbd-stone.com/web-tech-content-a-practical-safari-roundup-for-you-83-1/">web tech content a practical safari roundup for you 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-satsspin-de-com-roundup-83-1/">web tech content a practical satsspin de com roundup 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-safer-guide-to-crypto-and-market-news-83-1/">web tech content a safer guide to crypto and market news 83 </a> 
+<a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-news-search-skills-83-1/">web tech content a smarter guide to news search skills 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-online-decisions-83-1/">web tech content a smarter guide to online decisions 83 1</a> 
+<a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-reading-online-well-83-1/">web tech content a smarter guide to reading online well 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-researching-online-83-1/">web tech content a smarter guide to researching online 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-tokenpr-guide-to-crypto-safety-83-1/">web tech content a tokenpr guide to crypto safety 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-ai-art-online-safety-and-privacy-83-1/">web tech content ai art online safety and privacy 83 1</a> 
@@ -685,6 +688,7 @@
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-for-app-developers-84-2/">marketing seo growth a practical guide for app developers 84</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-content-84-2/">marketing seo growth a practical guide to better content 84 </a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-decisions-84-2/">marketing seo growth a practical guide to better decisions 8</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-online-read-84-2-2/">marketing seo growth a practical guide to better online read</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-online-read-84-2/">marketing seo growth a practical guide to better online read</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-results-84-2/">marketing seo growth a practical guide to better results 84 </a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-crypto-topics-84-2/">marketing seo growth a practical guide to crypto topics 84 2</a> 
@@ -723,7 +727,9 @@
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-roundup-of-content-that-ranks-84-2/">marketing seo growth a roundup of content that ranks 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smart-roundup-of-crypto-signals-84-2/">marketing seo growth a smart roundup of crypto signals 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-crypto-beginner-s-roadmap-84-2/">marketing seo growth a smarter crypto beginner s roadmap 84 </a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-daily-reading-guide-84-2/">marketing seo growth a smarter daily reading guide 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-guide-to-online-research-84-2-2/">marketing seo growth a smarter guide to online research 84 2</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-guide-to-online-research-84-2-3/">marketing seo growth a smarter guide to online research 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-guide-to-online-research-84-2/">marketing seo growth a smarter guide to online research 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-online-research-guide-84-2/">marketing seo growth a smarter online research guide 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-strategic-crypto-content-roundup-84-2/">marketing seo growth a strategic crypto content roundup 84 2</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbdpuffbars.com/mastering-crypto-essential-terms-news-reading-and-wallet-saf-84-9/">mastering crypto essential terms news reading and wallet saf</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-literacy-essential-tools-resources-for-the-84-9/">mastering digital literacy essential tools resources for the</a> 
 <a href="https://cbdpuffbars.com/mastering-digital-literacy-guides-reviews-and-how-tos-for-th-84-6/">mastering digital literacy guides reviews and how tos for th</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-skills-guides-reviews-how-tos-for-online-l-84-6/">mastering digital skills guides reviews how tos for online l</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-10/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-11/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-12/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-13/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://cbdpuffbars.com/mastering-digital-tools-online-resources-a-comprehensive-gui-84-4-14/">mastering digital tools online resources a comprehensive gui</a> 
