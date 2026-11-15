@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cochesdeocasion.xyz/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://cochesdeocasion.xyz/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
+<a href="https://cochesdeocasion.xyz/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
+<a href="https://cochesdeocasion.xyz/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
+<a href="https://cochesdeocasion.xyz/making-sense-of-complex-topics-online-a-practical-guide/">making sense of complex topics online a practical guide</a> 
+<a href="https://cochesdeocasion.xyz/making-sense-of-complex-topics-online-a-quick-guide/">making sense of complex topics online a quick guide</a> 
+<a href="https://cochesdeocasion.xyz/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://cochesdeocasion.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
+<a href="https://cochesdeocasion.xyz/media-partnerships-in-the-independent-web/">media partnerships in the independent web</a> 
 <a href="https://cochesdeocasion.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://cochesdeocasion.xyz/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
 <a href="https://cochesdeocasion.xyz/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
@@ -539,6 +548,7 @@
 <a href="https://crediblenews24.com/arcenturf-co-resource-2/">arcenturf co resource 2</a> 
 <a href="https://crediblenews24.com/baginda168-uk/">baginda168 uk</a> 
 <a href="https://crediblenews24.com/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
+<a href="https://crediblenews24.com/blogsternation-guides-reviews-how-tos-a-practical-roundup-86-4/">blogsternation guides reviews how tos a practical roundup 86</a> 
 <a href="https://crediblenews24.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://crediblenews24.com/boost-your-business-with-productivity-finance-tips-and-top-w-86-6/">boost your business with productivity finance tips and top w</a> 
 <a href="https://crediblenews24.com/boosting-business-finance-and-productivity-expert-tips-and-s-86-6/">boosting business finance and productivity expert tips and s</a> 
@@ -699,6 +709,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-26/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-27/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-28/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-29/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-3/">guides reviews how tos 50 resources worth bookmarking 86 4 3</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-4/">guides reviews how tos 50 resources worth bookmarking 86 4 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-5/">guides reviews how tos 50 resources worth bookmarking 86 4 5</a> 
@@ -791,14 +802,3 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4-8/">guides reviews how tos for smarter crypto decisions 86 4 8</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-decisions-86-4/">guides reviews how tos for smarter crypto decisions 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-market-decisions-86-4/">guides reviews how tos for smarter crypto market decisions 8</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-crypto-pr-decisions-86-4/">guides reviews how tos for smarter crypto pr decisions 86 4</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-everyday-choices-86-4/">guides reviews how tos for smarter everyday choices 86 4</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-everyday-decisions-86-4-2/">guides reviews how tos for smarter everyday decisions 86 4 2</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-everyday-decisions-86-4/">guides reviews how tos for smarter everyday decisions 86 4</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-internet-reading-86-4/">guides reviews how tos for smarter internet reading 86 4</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-internet-research-86-4/">guides reviews how tos for smarter internet research 86 4</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-money-decisions-86-4/">guides reviews how tos for smarter money decisions 86 4</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-more-focused-reading-86-4/">guides reviews how tos for smarter more focused reading 86 4</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-online-decisions-86-4-2/">guides reviews how tos for smarter online decisions 86 4 2</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-online-decisions-86-4-3/">guides reviews how tos for smarter online decisions 86 4 3</a> 
-<a href="https://crediblenews24.com/guides-reviews-how-tos-for-smarter-online-decisions-86-4/">guides reviews how tos for smarter online decisions 86 4</a> 
