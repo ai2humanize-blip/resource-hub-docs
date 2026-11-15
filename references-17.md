@@ -115,6 +115,7 @@
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-28/">web tech content 50 resources worth bookmarking 83 1 28</a> 
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-29/">web tech content 50 resources worth bookmarking 83 1 29</a> 
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-3/">web tech content 50 resources worth bookmarking 83 1 3</a> 
+<a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-30/">web tech content 50 resources worth bookmarking 83 1 30</a> 
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-4/">web tech content 50 resources worth bookmarking 83 1 4</a> 
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-5/">web tech content 50 resources worth bookmarking 83 1 5</a> 
 <a href="https://cbd-stone.com/web-tech-content-50-resources-worth-bookmarking-83-1-6/">web tech content 50 resources worth bookmarking 83 1 6</a> 
@@ -152,6 +153,7 @@
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1/">web tech content a practical guide to reading smarter 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-smarter-reading-83-1-2/">web tech content a practical guide to smarter reading 83 1 2</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-smarter-reading-83-1/">web tech content a practical guide to smarter reading 83 1</a> 
+<a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-smarter-research-83-1/">web tech content a practical guide to smarter research 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-tech-and-media-83-1/">web tech content a practical guide to tech and media 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-three-resources-83-1/">web tech content a practical guide to three resources 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-token-times-83-1/">web tech content a practical guide to token times 83 1</a> 
@@ -168,6 +170,7 @@
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-news-online-83-1/">web tech content a smarter guide to news online 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-news-search-skills-83-1/">web tech content a smarter guide to news search skills 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-online-decisions-83-1/">web tech content a smarter guide to online decisions 83 1</a> 
+<a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-online-research-83-1/">web tech content a smarter guide to online research 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-reading-online-83-1-2/">web tech content a smarter guide to reading online 83 1 2</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-reading-online-83-1/">web tech content a smarter guide to reading online 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-reading-online-well-83-1/">web tech content a smarter guide to reading online well 83 1</a> 
@@ -660,6 +663,8 @@
 <a href="https://cbdpuffbars.com/marketing-seo-growth-50-resources-worth-bookmarking-84-2-19/">marketing seo growth 50 resources worth bookmarking 84 2 19</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-50-resources-worth-bookmarking-84-2-2/">marketing seo growth 50 resources worth bookmarking 84 2 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-50-resources-worth-bookmarking-84-2-20/">marketing seo growth 50 resources worth bookmarking 84 2 20</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-50-resources-worth-bookmarking-84-2-21/">marketing seo growth 50 resources worth bookmarking 84 2 21</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-50-resources-worth-bookmarking-84-2-22/">marketing seo growth 50 resources worth bookmarking 84 2 22</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-50-resources-worth-bookmarking-84-2-3/">marketing seo growth 50 resources worth bookmarking 84 2 3</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-50-resources-worth-bookmarking-84-2-4/">marketing seo growth 50 resources worth bookmarking 84 2 4</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-50-resources-worth-bookmarking-84-2-5/">marketing seo growth 50 resources worth bookmarking 84 2 5</a> 
@@ -714,6 +719,7 @@
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-online-trust-84-2-2/">marketing seo growth a practical guide to online trust 84 2 </a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-online-trust-84-2/">marketing seo growth a practical guide to online trust 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-signals-and-trust-84-2/">marketing seo growth a practical guide to signals and trust </a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-smart-reading-84-2/">marketing seo growth a practical guide to smart reading 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-smarter-research-84-2/">marketing seo growth a practical guide to smarter research 8</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-knowledge-roundup-84-2/">marketing seo growth a practical knowledge roundup 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-personal-finance-guide-84-2/">marketing seo growth a practical personal finance guide 84 2</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbdpuffbars.com/marketing-seo-growth-travel-trust-links-and-criptano-84-2/">marketing seo growth travel trust links and criptano 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-turf-digital-and-crypto-insights-84-2/">marketing seo growth turf digital and crypto insights 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-turn-content-into-visible-results-84-2/">marketing seo growth turn content into visible results 84 2</a> 
-<a href="https://cbdpuffbars.com/marketing-seo-growth-what-these-headlines-teach-marketers-84-2/">marketing seo growth what these headlines teach marketers 84</a> 
-<a href="https://cbdpuffbars.com/master-digital-tools-online-resources-a-comprehensive-guide-84-4/">master digital tools online resources a comprehensive guide </a> 
-<a href="https://cbdpuffbars.com/master-digital-tools-online-resources-for-smarter-browsing-a-84-4/">master digital tools online resources for smarter browsing a</a> 
-<a href="https://cbdpuffbars.com/master-event-planning-your-ultimate-guide-to-organizing-memo/">master event planning your ultimate guide to organizing memo</a> 
-<a href="https://cbdpuffbars.com/master-the-digital-world-essential-tools-resources-for-smart-84-4/">master the digital world essential tools resources for smart</a> 
-<a href="https://cbdpuffbars.com/master-the-web-a-comprehensive-guide-to-essential-digital-to-84-4/">master the web a comprehensive guide to essential digital to</a> 
