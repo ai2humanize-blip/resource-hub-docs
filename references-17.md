@@ -147,12 +147,14 @@
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-privacy-and-publishing-83-1/">web tech content a practical guide to privacy and publishing</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-online-83-1-2/">web tech content a practical guide to reading online 83 1 2</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-online-83-1-3/">web tech content a practical guide to reading online 83 1 3</a> 
+<a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-online-83-1-4/">web tech content a practical guide to reading online 83 1 4</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-online-83-1/">web tech content a practical guide to reading online 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1-2/">web tech content a practical guide to reading smarter 83 1 2</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1-3/">web tech content a practical guide to reading smarter 83 1 3</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1-4/">web tech content a practical guide to reading smarter 83 1 4</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1-5/">web tech content a practical guide to reading smarter 83 1 5</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-reading-smarter-83-1/">web tech content a practical guide to reading smarter 83 1</a> 
+<a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-researching-smarter-83-1/">web tech content a practical guide to researching smarter 83</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-smarter-reading-83-1-2/">web tech content a practical guide to smarter reading 83 1 2</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-smarter-reading-83-1/">web tech content a practical guide to smarter reading 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-practical-guide-to-smarter-research-83-1/">web tech content a practical guide to smarter research 83 1</a> 
@@ -175,6 +177,7 @@
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-online-decisions-83-1/">web tech content a smarter guide to online decisions 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-online-research-83-1/">web tech content a smarter guide to online research 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-reading-online-83-1-2/">web tech content a smarter guide to reading online 83 1 2</a> 
+<a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-reading-online-83-1-3/">web tech content a smarter guide to reading online 83 1 3</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-reading-online-83-1/">web tech content a smarter guide to reading online 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-reading-online-well-83-1/">web tech content a smarter guide to reading online well 83 1</a> 
 <a href="https://cbd-stone.com/web-tech-content-a-smarter-guide-to-researching-online-83-1/">web tech content a smarter guide to researching online 83 1</a> 
@@ -715,6 +718,7 @@
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-decisions-84-2/">marketing seo growth a practical guide to better decisions 8</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-online-read-84-2-2/">marketing seo growth a practical guide to better online read</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-online-read-84-2/">marketing seo growth a practical guide to better online read</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-reading-84-2/">marketing seo growth a practical guide to better reading 84 </a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-research-84-2-2/">marketing seo growth a practical guide to better research 84</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-research-84-2/">marketing seo growth a practical guide to better research 84</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-practical-guide-to-better-results-84-2/">marketing seo growth a practical guide to better results 84 </a> 
@@ -758,8 +762,10 @@
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-research-guide-to-better-decisions-84-2/">marketing seo growth a research guide to better decisions 84</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-roundup-of-content-that-ranks-84-2/">marketing seo growth a roundup of content that ranks 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smart-roundup-of-crypto-signals-84-2/">marketing seo growth a smart roundup of crypto signals 84 2</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-celebrity-bio-roundup-84-2/">marketing seo growth a smarter celebrity bio roundup 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-crypto-beginner-s-roadmap-84-2/">marketing seo growth a smarter crypto beginner s roadmap 84 </a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-daily-reading-guide-84-2/">marketing seo growth a smarter daily reading guide 84 2</a> 
+<a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-digital-literacy-guide-84-2/">marketing seo growth a smarter digital literacy guide 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-guide-to-online-research-84-2-2/">marketing seo growth a smarter guide to online research 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-guide-to-online-research-84-2-3/">marketing seo growth a smarter guide to online research 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-a-smarter-guide-to-online-research-84-2-4/">marketing seo growth a smarter guide to online research 84 2</a> 
@@ -796,9 +802,3 @@
 <a href="https://cbdpuffbars.com/marketing-seo-growth-lessons-from-crypto-risk-topics-84-2/">marketing seo growth lessons from crypto risk topics 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-lessons-from-trading-and-tokens-84-2/">marketing seo growth lessons from trading and tokens 84 2</a> 
 <a href="https://cbdpuffbars.com/marketing-seo-growth-practical-ideas-for-better-results-84-2/">marketing seo growth practical ideas for better results 84 2</a> 
-<a href="https://cbdpuffbars.com/marketing-seo-growth-ranking-risks-and-air-quality-84-2/">marketing seo growth ranking risks and air quality 84 2</a> 
-<a href="https://cbdpuffbars.com/marketing-seo-growth-read-smarter-grow-better-online-84-2/">marketing seo growth read smarter grow better online 84 2</a> 
-<a href="https://cbdpuffbars.com/marketing-seo-growth-reading-skills-that-drive-results-84-2/">marketing seo growth reading skills that drive results 84 2</a> 
-<a href="https://cbdpuffbars.com/marketing-seo-growth-roundup-for-casino-hospitality-brands-84-2/">marketing seo growth roundup for casino hospitality brands 8</a> 
-<a href="https://cbdpuffbars.com/marketing-seo-growth-signals-shaping-digital-strategy-84-2/">marketing seo growth signals shaping digital strategy 84 2</a> 
-<a href="https://cbdpuffbars.com/marketing-seo-growth-strategies-for-sustainable-growth-84-2/">marketing seo growth strategies for sustainable growth 84 2</a> 
