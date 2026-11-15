@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cochesdeocasion.xyz/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
+<a href="https://comforting-alfajores-af12f3.netlify.app/consensus-mechanisms-compared-proof-of-work-proof.html">consensus mechanisms compared proof of work proof</a> 
+<a href="https://comfy-puppy-8bcdd1.netlify.app/navigating-the-shifting-tides-of-2023-news-in-depth-analysis.html">navigating the shifting tides of 2023 news in depth analysis</a> 
+<a href="https://competitorscreenshots.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-a-guide-to-names-that-mean-moon-star-and-su/">a closer look at a guide to names that mean moon star and su</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-avoid-misinformation-and-hype-2/">a closer look at how to avoid misinformation and hype 2</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-avoid-misinformation-and-hype/">a closer look at how to avoid misinformation and hype</a> 
+<a href="https://competitorscreenshots.com/a-closer-look-at-how-to-build-a-personal-reading-list-2/">a closer look at how to build a personal reading list 2</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-how-to-build-a-personal-reading-list-3/">a closer look at how to build a personal reading list 3</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
 <a href="https://competitorscreenshots.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
@@ -629,6 +638,8 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-2/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-20/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-21/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-22/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-23/">guides reviews how tos 50 resources worth bookmarking 86 4 2</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-3/">guides reviews how tos 50 resources worth bookmarking 86 4 3</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-4/">guides reviews how tos 50 resources worth bookmarking 86 4 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-5/">guides reviews how tos 50 resources worth bookmarking 86 4 5</a> 
@@ -732,6 +743,7 @@
 <a href="https://crediblenews24.com/guides-reviews-how-tos-pour-les-courses-hippiques-pmu-86-4/">guides reviews how tos pour les courses hippiques pmu 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-practical-insights-that-add-value-86-4/">guides reviews how tos practical insights that add value 86 </a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-practical-resources-for-readers-86-4/">guides reviews how tos practical resources for readers 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-read-online-content-better-86-4/">guides reviews how tos read online content better 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-roundup-crypto-xrp-bitcoin-tv-86-4/">guides reviews how tos roundup crypto xrp bitcoin tv 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-scenefordummies-and-newzcryptos-86-4/">guides reviews how tos scenefordummies and newzcryptos 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-your-practical-crypto-reading-guide-86-4/">guides reviews how tos your practical crypto reading guide 8</a> 
@@ -790,15 +802,3 @@
 <a href="https://crediblenews24.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
 <a href="https://crediblenews24.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
 <a href="https://crediblenews24.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
-<a href="https://crediblenews24.com/how-to-tell-if-a-website-is-trustworthy-and-why-it-matters/">how to tell if a website is trustworthy and why it matters</a> 
-<a href="https://crediblenews24.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
-<a href="https://crediblenews24.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
-<a href="https://crediblenews24.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://crediblenews24.com/how-to-use-the-web-to-learn-a-new-skill/">how to use the web to learn a new skill</a> 
-<a href="https://crediblenews24.com/how-travel-cards-help-you-avoid-foreign-transaction-fees/">how travel cards help you avoid foreign transaction fees</a> 
-<a href="https://crediblenews24.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated-2/">how zakat on gold cash and savings is commonly calculated 2</a> 
-<a href="https://crediblenews24.com/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
-<a href="https://crediblenews24.com/idiominsider-net-resource-2/">idiominsider net resource 2</a> 
-<a href="https://crediblenews24.com/indian-legal-news-and-plain-language-law-explainers-what-to/">indian legal news and plain language law explainers what to</a> 
-<a href="https://crediblenews24.com/informational-reference-about-number-games-and-their-history/">informational reference about number games and their history</a> 
-<a href="https://crediblenews24.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
