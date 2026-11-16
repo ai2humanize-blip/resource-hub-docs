@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://77jili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
+<a href="https://789jl1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://789jl1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://789jl1.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://789jl1.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://789jl1.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -203,6 +206,7 @@
 <a href="https://agenciainmobiliaria.xyz/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-daily-result-charts-and-staying-up-to-date/">understanding daily result charts and staying up to date</a> 
+<a href="https://agenciainmobiliaria.xyz/understanding-digital-literacy-2/">understanding digital literacy 2</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
 <a href="https://agenciainmobiliaria.xyz/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
@@ -541,6 +545,7 @@
 <a href="https://agriculture-lawyer.com/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
 <a href="https://agriculture-lawyer.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://agriculture-lawyer.com/getting-recognizing-credible-experts-online-right/">getting recognizing credible experts online right</a> 
+<a href="https://agriculture-lawyer.com/getting-the-difference-between-skimming-and-deep-reading-onl-2/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://agriculture-lawyer.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://agriculture-lawyer.com/guest-post-sites-list/">guest post sites list</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-1-resources-worth-bookmarking-75-5/">guides reviews how tos 1 resources worth bookmarking 75 5</a> 
@@ -797,8 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-75-4/">mastering web tech content a comprehensive guide for smart r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-75-4/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-building-75-4/">mastering web tech content a comprehensive guide to building</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-crypto-a-75-4/">mastering web tech content a comprehensive guide to crypto a</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4-2/">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4-3/">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-75-4/">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-75-4-2/">mastering web tech content a comprehensive guide to navigati</a> 

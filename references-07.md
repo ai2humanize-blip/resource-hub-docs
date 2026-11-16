@@ -2,11 +2,20 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
+<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply-2/">understanding digital literacy explained simply 2</a> 
+<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
+<a href="https://algiamedical.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
+<a href="https://algiamedical.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 
 <a href="https://algiamedical.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
 <a href="https://algiamedical.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid-2/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid-3/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
+<a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://algiamedical.com/understanding-janibd-a-practical-guide/">understanding janibd a practical guide</a> 
@@ -175,6 +184,7 @@
 <a href="https://app.zentrack.net/business-finance-productivity-1-resources-worth-bookmarking-25-2/">business finance productivity 1 resources worth bookmarking </a> 
 <a href="https://app.zentrack.net/business-finance-productivity-4-resources-worth-bookmarking-25-2/">business finance productivity 4 resources worth bookmarking </a> 
 <a href="https://app.zentrack.net/business-finance-productivity-45-resources-worth-bookmarking-25-17/">business finance productivity 45 resources worth bookmarking</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-48-resources-worth-bookmarking-25-2/">business finance productivity 48 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-5-celebrity-life-lessons-25-2/">business finance productivity 5 celebrity life lessons 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-10/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-50-resources-worth-bookmarking-25-2-11/">business finance productivity 50 resources worth bookmarking</a> 
@@ -484,6 +494,7 @@
 <a href="https://app.zentrack.net/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://app.zentrack.net/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
 <a href="https://app.zentrack.net/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://app.zentrack.net/getting-the-difference-between-skimming-and-deep-reading-onl-2/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://app.zentrack.net/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://app.zentrack.net/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
 <a href="https://app.zentrack.net/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
@@ -791,14 +802,3 @@
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-5/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-6/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-7/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-8/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-9/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-for-everyday-life-25-3/">mastering digital tools online resources for everyday life 2</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-for-smarter-reading-25-3/">mastering digital tools online resources for smarter reading</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-for-smarter-researc-25-3/">mastering digital tools online resources for smarter researc</a> 
-<a href="https://app.zentrack.net/mastering-local-seo-a-comprehensive-guide-for-small-business/">mastering local seo a comprehensive guide for small business</a> 
-<a href="https://app.zentrack.net/mastering-local-seo-a-comprehensive-guide-to-boosting-your-b/">mastering local seo a comprehensive guide to boosting your b</a> 
-<a href="https://app.zentrack.net/mastering-marketing-seo-growth-strategies-for-success-in-the-25-1/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://app.zentrack.net/mastering-modern-life-business-finance-and-productivity-esse-25-2/">mastering modern life business finance and productivity esse</a> 
-<a href="https://app.zentrack.net/mastering-movie-franchises-release-tracking-and-streaming-wi-25-2/">mastering movie franchises release tracking and streaming wi</a> 

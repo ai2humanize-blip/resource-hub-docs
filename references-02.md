@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-03.md) · [‹ prev](references-01.md)
 
+<a href="https://123angelnumber.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
 <a href="https://123angelnumber.com/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
 <a href="https://123angelnumber.com/the-basics-of-staying-safe-while-browsing/">the basics of staying safe while browsing</a> 
 <a href="https://123angelnumber.com/the-future-of-sports-news-and-analysis-emerging-trends-and-t/">the future of sports news and analysis emerging trends and t</a> 
@@ -461,6 +462,7 @@
 <a href="https://5starsstocks.it.com/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
 <a href="https://5starsstocks.it.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
 <a href="https://5starsstocks.it.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://5starsstocks.it.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
 <a href="https://5starsstocks.it.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://5starsstocks.it.com/how-air-quality-affects-daily-life-and-simple-ways-to-reduce/">how air quality affects daily life and simple ways to reduce</a> 
 <a href="https://5starsstocks.it.com/how-classic-card-games-are-played/">how classic card games are played</a> 
@@ -688,6 +690,7 @@
 <a href="https://666game.com.im/blog/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
 <a href="https://666game.com.im/blog/idiominsider-net-resource-3/">idiominsider net resource 3</a> 
 <a href="https://666game.com.im/blog/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://666game.com.im/blog/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
 <a href="https://666game.com.im/blog/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
 <a href="https://666game.com.im/blog/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
 <a href="https://666game.com.im/blog/oxpoll-cc-resource-3-2/">oxpoll cc resource 3 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://77jili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://77jili1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://77jili1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://77jili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://789jl1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://789jl1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 

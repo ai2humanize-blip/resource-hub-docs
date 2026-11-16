@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
+<a href="https://algiamedical.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://algiamedical.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://algiamedical.com/a-navigating-the-modern-job-market-essential-career-advice-f/">a navigating the modern job market essential career advice f</a> 
+<a href="https://algiamedical.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://algiamedical.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://algiamedical.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://algiamedical.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
 <a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
 <a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
@@ -794,11 +802,3 @@
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
-<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply-2/">understanding digital literacy explained simply 2</a> 
-<a href="https://algiamedical.com/understanding-digital-literacy-explained-simply/">understanding digital literacy explained simply</a> 
-<a href="https://algiamedical.com/understanding-getgabay-a-practical-guide/">understanding getgabay a practical guide</a> 
-<a href="https://algiamedical.com/understanding-getjobsnews-a-practical-guide/">understanding getjobsnews a practical guide</a> 

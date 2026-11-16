@@ -160,6 +160,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 <a href="https://inewshuman.com/">inewshuman.com</a> 
 <a href="https://seethelightshine.com/">seethelightshine.com</a> 
 <a href="https://itechleez.com/">itechleez.com</a> 
+<a href="https://mixtvnowcom.org/">mixtvnowcom.org</a> 
 
 ### Reference sets
 - [Reference set 1](references-01.md)
@@ -245,7 +246,7 @@ A directory of trusted resources and references across news, cryptocurrency, tec
 - [Reference set 81](references-81.md)
 - [Reference set 82](references-82.md)
 
-_65,026 curated references across 82 sets._
+_65,208 curated references across 82 sets._
 
 ### New & recently launched sites
 [New resources →](new-sites.md)

@@ -2,6 +2,13 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/litigationlawyer.html">litigationlawyer</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/lumora.html">lumora</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/major-crypto-exchanges-cancel-tokenized-spacex-ipo-allocatio.html">major crypto exchanges cancel tokenized spacex ipo allocatio</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/making-sense-of-complex-topics-online-and-why-it-matters.html">making sense of complex topics online and why it matters</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/making-sense-of-complex-topics-online-the-basics.html">making sense of complex topics online the basics</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/making-sense-of-the-news-economy-policy-and-everyday-life.html">making sense of the news economy policy and everyday life</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/marketcapitalize-com.html">marketcapitalize com</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/marketing-seo-growth-50-resources-worth-bookmarking-42-4.html">marketing seo growth 50 resources worth bookmarking 42 4</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/marketing-seo-growth-50-resources-worth-bookmarking-43-3.html">marketing seo growth 50 resources worth bookmarking 43 3</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/marketing-seo-growth-a-better-online-research-playbook-42-4.html">marketing seo growth a better online research playbook 42 4</a> 
@@ -774,6 +781,7 @@
 <a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
 <a href="https://alcobar85.xyz/why-a-toilet-keeps-running-and-the-simple-parts-behind-it.htm">why a toilet keeps running and the simple parts behind it</a> 
 <a href="https://alcobar85.xyz/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-and-why-it-matters-2.htm">why context matters when reading online and why it matters 2</a> 
 <a href="https://alcobar85.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
 <a href="https://alcobar85.xyz/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
 <a href="https://alcobar85.xyz/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
@@ -794,11 +802,3 @@
 <a href="https://algiamedical.com/a-closer-look-at-how-to-find-reliable-how-to-guides/">a closer look at how to find reliable how to guides</a> 
 <a href="https://algiamedical.com/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
 <a href="https://algiamedical.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://algiamedical.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
-<a href="https://algiamedical.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
-<a href="https://algiamedical.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://algiamedical.com/a-navigating-the-modern-job-market-essential-career-advice-f/">a navigating the modern job market essential career advice f</a> 
-<a href="https://algiamedical.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
-<a href="https://algiamedical.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://algiamedical.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://algiamedical.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
