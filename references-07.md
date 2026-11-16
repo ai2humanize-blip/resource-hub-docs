@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/understanding-gpsiteslist-a-practical-guide/">understanding gpsiteslist a practical guide</a> 
+<a href="https://algiamedical.com/understanding-hogatoga-a-practical-guide/">understanding hogatoga a practical guide</a> 
+<a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid-2/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid-3/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-a-practical-guid/">understanding how search engines rank pages a practical guid</a> 
 <a href="https://algiamedical.com/understanding-how-search-engines-rank-pages-and-why-it-matte/">understanding how search engines rank pages and why it matte</a> 
@@ -56,6 +59,7 @@
 <a href="https://algiamedical.com/web-tech-content-a-sea-breeze-seafood-digital-guide-77-7/">web tech content a sea breeze seafood digital guide 77 7</a> 
 <a href="https://algiamedical.com/web-tech-content-best-ai-tools-and-practical-guides-77-7/">web tech content best ai tools and practical guides 77 7</a> 
 <a href="https://algiamedical.com/web-tech-content-expert-solutions-for-everyday-tech-issues-77-7/">web tech content expert solutions for everyday tech issues 7</a> 
+<a href="https://algiamedical.com/web-tech-content-roundup-15-links-to-explore-responsibly-77-7/">web tech content roundup 15 links to explore responsibly 77 </a> 
 <a href="https://algiamedical.com/web-tech-content-roundup-lumora-and-sea-breeze-seafood-77-7/">web tech content roundup lumora and sea breeze seafood 77 7</a> 
 <a href="https://algiamedical.com/web-tech-content-roundup-tools-sites-and-insights-77-7/">web tech content roundup tools sites and insights 77 7</a> 
 <a href="https://algiamedical.com/web-tech-content-your-ultimate-guide-to-online-resources-and-77-7/">web tech content your ultimate guide to online resources and</a> 
@@ -269,6 +273,7 @@
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-roundup-25-2-2/">business finance productivity a practical roundup 25 2 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-roundup-25-2/">business finance productivity a practical roundup 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-roundup-guide-25-2/">business finance productivity a practical roundup guide 25 2</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-a-practical-site-roundup-25-2/">business finance productivity a practical site roundup 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-roundup-of-useful-sites-25-2/">business finance productivity a roundup of useful sites 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-smart-reading-playbook-25-2/">business finance productivity a smart reading playbook 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-smarter-digital-guide-25-2/">business finance productivity a smarter digital guide 25 2</a> 
@@ -797,8 +802,3 @@
 <a href="https://app.zentrack.net/mastering-marketing-seo-growth-strategies-for-success-in-the-25-1/">mastering marketing seo growth strategies for success in the</a> 
 <a href="https://app.zentrack.net/mastering-modern-life-business-finance-and-productivity-esse-25-2/">mastering modern life business finance and productivity esse</a> 
 <a href="https://app.zentrack.net/mastering-movie-franchises-release-tracking-and-streaming-wi-25-2/">mastering movie franchises release tracking and streaming wi</a> 
-<a href="https://app.zentrack.net/mastering-personal-finance-a-business-and-marketing-perspect/">mastering personal finance a business and marketing perspect</a> 
-<a href="https://app.zentrack.net/mastering-personal-finance-a-strategic-approach-to-business/">mastering personal finance a strategic approach to business</a> 
-<a href="https://app.zentrack.net/mastering-personal-finance-business-and-marketing-a-comprehe-25-2/">mastering personal finance business and marketing a comprehe</a> 
-<a href="https://app.zentrack.net/mastering-the-art-of-business-finance-and-productivity-a-com-25-2/">mastering the art of business finance and productivity a com</a> 
-<a href="https://app.zentrack.net/mastering-the-art-of-business-personal-finance-and-marketing-25-2/">mastering the art of business personal finance and marketing</a> 

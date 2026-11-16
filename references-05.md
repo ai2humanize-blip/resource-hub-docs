@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-06.md) · [‹ prev](references-04.md)
 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/marketing-seo-growth-50-resources-worth-bookmarking-42-4.html">marketing seo growth 50 resources worth bookmarking 42 4</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/marketing-seo-growth-50-resources-worth-bookmarking-43-3.html">marketing seo growth 50 resources worth bookmarking 43 3</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/marketing-seo-growth-a-better-online-research-playbook-42-4.html">marketing seo growth a better online research playbook 42 4</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/marketing-seo-growth-a-digital-literacy-field-guide-42-9.html">marketing seo growth a digital literacy field guide 42 9</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/marketing-seo-growth-a-digital-literacy-roadmap-42-4.html">marketing seo growth a digital literacy roadmap 42 4</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/marketing-seo-growth-a-practical-digital-literacy-guide-42-4.html">marketing seo growth a practical digital literacy guide 42 4</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://algiamedical.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://algiamedical.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi-2/">a simple framework for researching any topic online the basi</a> 
-<a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
-<a href="https://algiamedical.com/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 

@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-47.md) · [‹ prev](references-45.md)
 
+<a href="https://jiurui9.com/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
+<a href="https://jiurui9.com/how-to-read-the-news-without-getting-overwhelmed-a-practical/">how to read the news without getting overwhelmed a practical</a> 
+<a href="https://jiurui9.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
+<a href="https://jiurui9.com/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://jiurui9.com/how-to-tell-explainer-journalism-from-opinion-a-quick-guide/">how to tell explainer journalism from opinion a quick guide</a> 
+<a href="https://jiurui9.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://jiurui9.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://jiurui9.com/is-there-an-official-aavot-app-to-download-yet/">is there an official aavot app to download yet</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online-the-basics/">making sense of complex topics online the basics</a> 
+<a href="https://jiurui9.com/making-sense-of-complex-topics-online/">making sense of complex topics online</a> 
+<a href="https://jiurui9.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
+<a href="https://jiurui9.com/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
+<a href="https://jiurui9.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
+<a href="https://jiurui9.com/the-basics-of-staying-safe-while-browsing-explained-simply/">the basics of staying safe while browsing explained simply</a> 
+<a href="https://jiurui9.com/the-crypto-terms-every-beginner-should-learn-first/">the crypto terms every beginner should learn first</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-pr/">the difference between skimming and deep reading online a pr</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-a-qu/">the difference between skimming and deep reading online a qu</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-expl/">the difference between skimming and deep reading online expl</a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the-2/">the difference between skimming and deep reading online the </a> 
+<a href="https://jiurui9.com/the-difference-between-skimming-and-deep-reading-online-the/">the difference between skimming and deep reading online the</a> 
+<a href="https://jiurui9.com/the-value-of-slow-careful-reading-explained-simply/">the value of slow careful reading explained simply</a> 
+<a href="https://jiurui9.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
 <a href="https://jiurui9.com/understanding-digital-literacy-the-basics/">understanding digital literacy the basics</a> 
 <a href="https://jiurui9.com/understanding-how-search-engines-rank-pages-explained-simply/">understanding how search engines rank pages explained simply</a> 
 <a href="https://jiurui9.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
@@ -779,26 +802,3 @@
 <a href="https://landscape-paintings.net/navigating-the-latest-trends-in-news-consumption-expert-anal-105-6/">navigating the latest trends in news consumption expert anal</a> 
 <a href="https://landscape-paintings.net/navigating-the-modern-world-business-finance-productivity-ai-105-7/">navigating the modern world business finance productivity ai</a> 
 <a href="https://landscape-paintings.net/navigating-the-shifting-landscape-of-global-news-consumption/">navigating the shifting landscape of global news consumption</a> 
-<a href="https://landscape-paintings.net/navigating-the-shifting-landscape-of-news-consumption-in-202/">navigating the shifting landscape of news consumption in 202</a> 
-<a href="https://landscape-paintings.net/navigating-the-world-of-cryptocurrency-latest-news-trends-an/">navigating the world of cryptocurrency latest news trends an</a> 
-<a href="https://landscape-paintings.net/navigating-today-s-news-landscape-a-comprehensive-guide-to-c-105-6/">navigating today s news landscape a comprehensive guide to c</a> 
-<a href="https://landscape-paintings.net/navigating-today-s-news-landscape-in-depth-analysis-and-expe/">navigating today s news landscape in depth analysis and expe</a> 
-<a href="https://landscape-paintings.net/new-movies-and-shows-how-to-keep-track-of-what-s-coming/">new movies and shows how to keep track of what s coming</a> 
-<a href="https://landscape-paintings.net/newsrealtors-india-following-the-stories-that-matter/">newsrealtors india following the stories that matter</a> 
-<a href="https://landscape-paintings.net/no-kyc-and-prepaid-crypto-cards-what-to-understand-first/">no kyc and prepaid crypto cards what to understand first</a> 
-<a href="https://landscape-paintings.net/oxpoll-cc-resource-2/">oxpoll cc resource 2</a> 
-<a href="https://landscape-paintings.net/phonespeakerclean-com-resource-2/">phonespeakerclean com resource 2</a> 
-<a href="https://landscape-paintings.net/positive-solutions-focused-news-and-stories-what-to-know/">positive solutions focused news and stories what to know</a> 
-<a href="https://landscape-paintings.net/quikconsolecom-net-resource-2/">quikconsolecom net resource 2</a> 
-<a href="https://landscape-paintings.net/recognizing-credible-experts-online-a-practical-guide/">recognizing credible experts online a practical guide</a> 
-<a href="https://landscape-paintings.net/recognizing-credible-experts-online-and-why-it-matters/">recognizing credible experts online and why it matters</a> 
-<a href="https://landscape-paintings.net/recognizing-credible-experts-online-explained-simply-2/">recognizing credible experts online explained simply 2</a> 
-<a href="https://landscape-paintings.net/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://landscape-paintings.net/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://landscape-paintings.net/revolutionizing-creativity-how-ai-powered-apps-are-transform/">revolutionizing creativity how ai powered apps are transform</a> 
-<a href="https://landscape-paintings.net/revolutionizing-creativity-how-ai-powered-tools-transform-ma-105-6/">revolutionizing creativity how ai powered tools transform ma</a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-ai-powered-apps-digital-wellness-105-5/">revolutionizing daily life ai powered apps digital wellness </a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform-2/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform-3/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform-4/">revolutionizing daily life how ai powered apps are transform</a> 
-<a href="https://landscape-paintings.net/revolutionizing-daily-life-how-ai-powered-apps-are-transform/">revolutionizing daily life how ai powered apps are transform</a> 

@@ -2,6 +2,14 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them-6a13a6ec/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-know-about-why-primary-sources-matter-and-how-to-find-them/">what to know about why primary sources matter and how to fin</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-practical-guide-6b5f531c/">what to look for in a good news website a practical guide 6b</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
+<a href="https://boostelearning.mataroa.blog/blog/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
 <a href="https://boostelearning.mataroa.blog/blog/where-the-jobs-are-india-growing-sectors/">where the jobs are india growing sectors</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-attention-is-the-scarce-resource/">why attention is the scarce resource</a> 
 <a href="https://boostelearning.mataroa.blog/blog/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
@@ -595,6 +603,7 @@
 <a href="https://captainjackinterview.com/digital-tools-online-resources-50-resources-worth-bookmarkin-82-1-2/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-50-resources-worth-bookmarkin-82-1/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-a-practical-site-roundup-82-1/">digital tools online resources a practical site roundup 82 1</a> 
+<a href="https://captainjackinterview.com/digital-tools-online-resources-a-smarter-browsing-roundup-82-1/">digital tools online resources a smarter browsing roundup 82</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-for-daily-prayer-and-social-m-82-1/">digital tools online resources for daily prayer and social m</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-for-safer-smarter-browsing-82-1/">digital tools online resources for safer smarter browsing 82</a> 
 <a href="https://captainjackinterview.com/digital-tools-online-resources-for-smarter-browsing-82-6/">digital tools online resources for smarter browsing 82 6</a> 
@@ -793,12 +802,3 @@
 <a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources-a-practical-gui/">how to bookmark and revisit useful resources a practical gui</a> 
 <a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
 <a href="https://captainjackinterview.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
-<a href="https://captainjackinterview.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
-<a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply-2/">how to build a personal reading list explained simply 2</a> 
-<a href="https://captainjackinterview.com/how-to-build-a-personal-reading-list-explained-simply/">how to build a personal reading list explained simply</a> 
-<a href="https://captainjackinterview.com/how-to-build-a-weekly-cleaning-routine-that-actually-sticks/">how to build a weekly cleaning routine that actually sticks</a> 
-<a href="https://captainjackinterview.com/how-to-build-real-digital-skills-with-online-courses/">how to build real digital skills with online courses</a> 
-<a href="https://captainjackinterview.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
-<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-a-quick-guide/">how to compare sources on the same story a quick guide</a> 
-<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
-<a href="https://captainjackinterview.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
