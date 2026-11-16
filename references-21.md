@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4-9/">guides reviews how tos 50 resources worth bookmarking 86 4 9</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-50-resources-worth-bookmarking-86-4/">guides reviews how tos 50 resources worth bookmarking 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-better-coinnews-de-com-roundup-86-4-2/">guides reviews how tos a better coinnews de com roundup 86 4</a> 
+<a href="https://crediblenews24.com/guides-reviews-how-tos-a-better-coinnews-de-com-roundup-86-4/">guides reviews how tos a better coinnews de com roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-better-way-to-research-online-86-4/">guides reviews how tos a better way to research online 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-bitcointalk-roundup-86-4/">guides reviews how tos a practical bitcointalk roundup 86 4</a> 
 <a href="https://crediblenews24.com/guides-reviews-how-tos-a-practical-crypto-card-hub-86-4/">guides reviews how tos a practical crypto card hub 86 4</a> 
@@ -798,7 +802,3 @@
 <a href="https://croyale88.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://croyale88.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://croyale88.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://croyale88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://croyale88.xyz/hello-world/">hello world</a> 

@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://algiamedical.com/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
 <a href="https://algiamedical.com/a-closer-look-at-understanding-how-search-engines-rank-pages/">a closer look at understanding how search engines rank pages</a> 
 <a href="https://algiamedical.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
 <a href="https://algiamedical.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
@@ -801,4 +802,3 @@
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 

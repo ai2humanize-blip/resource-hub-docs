@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://croyale88.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://croyale88.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://croyale88.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://croyale88.xyz/hello-world/">hello world</a> 
 <a href="https://croyale88.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://croyale88.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://croyale88.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
@@ -798,7 +802,3 @@
 <a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
 <a href="https://cyberkannadig.it.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
 <a href="https://cyberkannadig.it.com/how-to-get-the-most-out-of-online-guides-and-why-it-matters/">how to get the most out of online guides and why it matters</a> 
-<a href="https://cyberkannadig.it.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://cyberkannadig.it.com/how-to-identify-and-avoid-common-online-scams-a-comprehensiv/">how to identify and avoid common online scams a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/how-to-leverage-the-latest-apps-for-a-more-productive-digita/">how to leverage the latest apps for a more productive digita</a> 
-<a href="https://cyberkannadig.it.com/how-to-navigate-casinos-without-gamstop-a-practical-guide/">how to navigate casinos without gamstop a practical guide</a> 

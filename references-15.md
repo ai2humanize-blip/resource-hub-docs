@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-a-practical-lumora-roundup-82-3/">guides reviews how tos a practical lumora roundup 82 3</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-a-smarter-guide-to-reading-online-82-8/">guides reviews how tos a smarter guide to reading online 82 </a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-for-better-online-decisions-82-3/">guides reviews how tos for better online decisions 82 3</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-for-facts-trivia-and-social-growth-82-3/">guides reviews how tos for facts trivia and social growth 82</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-for-smarter-online-reading-82-3/">guides reviews how tos for smarter online reading 82 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-for-smarter-online-research-today-82-8/">guides reviews how tos for smarter online research today 82 </a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-that-help-you-see-the-light-shine-82-3/">guides reviews how tos that help you see the light shine 82 </a> 
@@ -798,7 +802,3 @@
 <a href="https://casinoisloty.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://casinoisloty.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
 <a href="https://casinoisloty.xyz/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 
-<a href="https://casinoisloty.xyz/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
-<a href="https://casinoisloty.xyz/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
-<a href="https://casinoisloty.xyz/air-quality-in-pune-what-affects-the-air-you-breathe/">air quality in pune what affects the air you breathe</a> 
-<a href="https://casinoisloty.xyz/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 

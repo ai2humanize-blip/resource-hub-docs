@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -277,6 +278,7 @@
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-guide-to-growth-25-2-2/">business finance productivity a practical guide to growth 25</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-guide-to-growth-25-2/">business finance productivity a practical guide to growth 25</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-idea-roundup-25-2/">business finance productivity a practical idea roundup 25 2</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-a-practical-operations-guide-25-2/">business finance productivity a practical operations guide 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-playbook-25-2/">business finance productivity a practical playbook 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-resource-roundup-25-2/">business finance productivity a practical resource roundup 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-roadmap-to-growth-25-2/">business finance productivity a practical roadmap to growth </a> 
@@ -286,6 +288,7 @@
 <a href="https://app.zentrack.net/business-finance-productivity-a-practical-site-roundup-25-2/">business finance productivity a practical site roundup 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-roundup-of-useful-sites-25-2/">business finance productivity a roundup of useful sites 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-smart-reading-playbook-25-2/">business finance productivity a smart reading playbook 25 2</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-a-smarter-daily-system-25-2/">business finance productivity a smarter daily system 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-smarter-digital-guide-25-2/">business finance productivity a smarter digital guide 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-smarter-growth-roundup-25-2/">business finance productivity a smarter growth roundup 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-a-smarter-media-guide-25-2/">business finance productivity a smarter media guide 25 2</a> 
@@ -300,6 +303,7 @@
 <a href="https://app.zentrack.net/business-finance-productivity-navigating-news-trends-and-res-25-2/">business finance productivity navigating news trends and res</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-practical-wins-for-every-week-25-2/">business finance productivity practical wins for every week </a> 
 <a href="https://app.zentrack.net/business-finance-productivity-see-the-light-shine-25-2/">business finance productivity see the light shine 25 2</a> 
+<a href="https://app.zentrack.net/business-finance-productivity-smarter-everyday-decisions-25-2/">business finance productivity smarter everyday decisions 25 </a> 
 <a href="https://app.zentrack.net/business-finance-productivity-strategies-for-success-in-a-dy-25-2/">business finance productivity strategies for success in a dy</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-the-essential-roundup-25-2/">business finance productivity the essential roundup 25 2</a> 
 <a href="https://app.zentrack.net/business-finance-productivity-the-haunted-palace-field-guide-25-2/">business finance productivity the haunted palace field guide</a> 
@@ -798,7 +802,3 @@
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-43/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-44/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-45/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-46/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-5/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-6/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-7/">mastering digital tools online resources a comprehensive gui</a> 
