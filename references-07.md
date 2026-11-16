@@ -2,6 +2,16 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-17/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-4/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-6/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-5/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7-2/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
+<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7-3/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-77-7/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-8/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-9/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
@@ -60,6 +70,7 @@
 <a href="https://algiamedical.com/web-tech-content-1-resources-worth-bookmarking-77-7/">web tech content 1 resources worth bookmarking 77 7</a> 
 <a href="https://algiamedical.com/web-tech-content-50-resources-worth-bookmarking-77-7-2/">web tech content 50 resources worth bookmarking 77 7 2</a> 
 <a href="https://algiamedical.com/web-tech-content-50-resources-worth-bookmarking-77-7-3/">web tech content 50 resources worth bookmarking 77 7 3</a> 
+<a href="https://algiamedical.com/web-tech-content-50-resources-worth-bookmarking-77-7-4/">web tech content 50 resources worth bookmarking 77 7 4</a> 
 <a href="https://algiamedical.com/web-tech-content-50-resources-worth-bookmarking-77-7/">web tech content 50 resources worth bookmarking 77 7</a> 
 <a href="https://algiamedical.com/web-tech-content-a-comprehensive-guide-to-cryptocurrency-onl-77-7/">web tech content a comprehensive guide to cryptocurrency onl</a> 
 <a href="https://algiamedical.com/web-tech-content-a-comprehensive-guide-to-staying-informed-a-77-7/">web tech content a comprehensive guide to staying informed a</a> 
@@ -791,14 +802,3 @@
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-33/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-34/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-35/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-36/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-37/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-38/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-39/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-4/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-40/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-41/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-42/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-43/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-44/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-45/">mastering digital tools online resources a comprehensive gui</a> 

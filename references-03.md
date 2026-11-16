@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://77jili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
+<a href="https://77jili1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://77jili1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://77jili1.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://789jl1.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://789jl1.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
@@ -552,6 +555,7 @@
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-50-resources-worth-bookmarking-75-5-2/">guides reviews how tos 50 resources worth bookmarking 75 5 2</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-50-resources-worth-bookmarking-75-5/">guides reviews how tos 50 resources worth bookmarking 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-essential-resources-for-readers-75-5/">guides reviews how tos essential resources for readers 75 5</a> 
+<a href="https://agriculture-lawyer.com/guides-reviews-how-tos-for-smarter-online-decisions-75-5/">guides reviews how tos for smarter online decisions 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-for-tutuapp-and-crypto-card-hub-75-5/">guides reviews how tos for tutuapp and crypto card hub 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-haunted-palace-and-crypto-cards-75-5/">guides reviews how tos haunted palace and crypto cards 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-smart-resources-worth-exploring-75-5/">guides reviews how tos smart resources worth exploring 75 5</a> 
@@ -798,7 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-75-4/">mastering web tech content a comprehensive guide for modern </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-75-4/">mastering web tech content a comprehensive guide for savvy r</a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-75-4-2/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-75-4-3/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-75-4/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-75-4/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-to-building-75-4/">mastering web tech content a comprehensive guide to building</a> 

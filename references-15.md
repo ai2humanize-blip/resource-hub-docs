@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/exploring-web-tech-content-a-comprehensive-roundup-82-2/">exploring web tech content a comprehensive roundup 82 2</a> 
+<a href="https://captainjackinterview.com/exploring-web-tech-content-a-comprehensive-roundup-82-7/">exploring web tech content a comprehensive roundup 82 7</a> 
+<a href="https://captainjackinterview.com/exploring-web-tech-content-a-comprehensive-roundup-for-knowl-82-7/">exploring web tech content a comprehensive roundup for knowl</a> 
+<a href="https://captainjackinterview.com/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://captainjackinterview.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://captainjackinterview.com/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
+<a href="https://captainjackinterview.com/getting-how-to-build-a-personal-reading-list-right/">getting how to build a personal reading list right</a> 
+<a href="https://captainjackinterview.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://captainjackinterview.com/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
+<a href="https://captainjackinterview.com/getting-how-to-use-the-web-to-learn-a-new-skill-right-2/">getting how to use the web to learn a new skill right 2</a> 
+<a href="https://captainjackinterview.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://captainjackinterview.com/getting-rid-of-cockroaches-what-works-and-what-doesn-t/">getting rid of cockroaches what works and what doesn t</a> 
+<a href="https://captainjackinterview.com/getting-simple-habits-of-a-smart-internet-reader-right/">getting simple habits of a smart internet reader right</a> 
+<a href="https://captainjackinterview.com/getting-understanding-digital-literacy-right-2/">getting understanding digital literacy right 2</a> 
+<a href="https://captainjackinterview.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://captainjackinterview.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
+<a href="https://captainjackinterview.com/getting-why-context-matters-when-reading-online-right/">getting why context matters when reading online right</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-3-2/">guides reviews how tos 50 resources worth bookmarking 82 3 2</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-3/">guides reviews how tos 50 resources worth bookmarking 82 3</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-2/">guides reviews how tos 50 resources worth bookmarking 82 8 2</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8-3/">guides reviews how tos 50 resources worth bookmarking 82 8 3</a> 
+<a href="https://captainjackinterview.com/guides-reviews-how-tos-50-resources-worth-bookmarking-82-8/">guides reviews how tos 50 resources worth bookmarking 82 8</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-a-practical-lumora-roundup-82-3/">guides reviews how tos a practical lumora roundup 82 3</a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-a-smarter-guide-to-reading-online-82-8/">guides reviews how tos a smarter guide to reading online 82 </a> 
 <a href="https://captainjackinterview.com/guides-reviews-how-tos-for-better-online-decisions-82-3/">guides reviews how tos for better online decisions 82 3</a> 
@@ -780,25 +802,3 @@
 <a href="https://casacours.uk.com/why-phone-speakers-sound-muffled-and-how-to-fix-it/">why phone speakers sound muffled and how to fix it</a> 
 <a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid-2/">why primary sources matter and how to find them a quick guid</a> 
 <a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
-<a href="https://casacours.uk.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://casinoeinnlakewales.com/gindex.html">gindex</a> 
-<a href="https://casinoeinnlakewales.com/picks.html">picks</a> 
-<a href="https://casinoisloty.xyz/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
-<a href="https://casinoisloty.xyz/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
-<a href="https://casinoisloty.xyz/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
-<a href="https://casinoisloty.xyz/a-closer-look-at-how-to-organize-the-information-you-find-online/">a closer look at how to organize the information you find on</a> 
-<a href="https://casinoisloty.xyz/a-closer-look-at-how-to-research-a-name-s-history-and-meanin/">a closer look at how to research a name s history and meanin</a> 
-<a href="https://casinoisloty.xyz/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
-<a href="https://casinoisloty.xyz/a-closer-look-at-understanding-digital-literacy/">a closer look at understanding digital literacy</a> 
-<a href="https://casinoisloty.xyz/a-closer-look-at-what-to-look-for-in-a-good-news-website/">a closer look at what to look for in a good news website</a> 
-<a href="https://casinoisloty.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://casinoisloty.xyz/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
-<a href="https://casinoisloty.xyz/a-guide-to-guest-contributing-and-press-outreach/">a guide to guest contributing and press outreach</a> 
-<a href="https://casinoisloty.xyz/a-practical-guide-to-following-daily-results-and-live-update/">a practical guide to following daily results and live update</a> 
-<a href="https://casinoisloty.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://casinoisloty.xyz/a-practical-guide-to-working-with-independent-publishers/">a practical guide to working with independent publishers</a> 
-<a href="https://casinoisloty.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://casinoisloty.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://casinoisloty.xyz/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
-<a href="https://casinoisloty.xyz/a-simple-framework-for-researching-any-topic-online-a-practi/">a simple framework for researching any topic online a practi</a> 

@@ -2,6 +2,28 @@
 
 [index](README.md) · [next ›](references-66.md) · [‹ prev](references-64.md)
 
+<a href="https://palacsintarecept.hu.net/a-closer-look-at-how-surnames-get-their-meanings/">a closer look at how surnames get their meanings</a> 
+<a href="https://palacsintarecept.hu.net/a-closer-look-at-how-to-build-a-personal-reading-list/">a closer look at how to build a personal reading list</a> 
+<a href="https://palacsintarecept.hu.net/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
+<a href="https://palacsintarecept.hu.net/a-closer-look-at-how-to-use-the-web-to-learn-a-new-skill/">a closer look at how to use the web to learn a new skill</a> 
+<a href="https://palacsintarecept.hu.net/a-closer-look-at-simple-habits-of-a-smart-internet-reader/">a closer look at simple habits of a smart internet reader</a> 
+<a href="https://palacsintarecept.hu.net/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://palacsintarecept.hu.net/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://palacsintarecept.hu.net/a-closer-look-at-why-primary-sources-matter-and-how-to-find-2/">a closer look at why primary sources matter and how to find </a> 
+<a href="https://palacsintarecept.hu.net/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://palacsintarecept.hu.net/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://palacsintarecept.hu.net/a-french-horse-racing-directory-and-race-information-what-to/">a french horse racing directory and race information what to</a> 
+<a href="https://palacsintarecept.hu.net/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://palacsintarecept.hu.net/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://palacsintarecept.hu.net/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://palacsintarecept.hu.net/a-short-introduction-to-urdu-poetry-and-its-major-poets/">a short introduction to urdu poetry and its major poets</a> 
+<a href="https://palacsintarecept.hu.net/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://palacsintarecept.hu.net/a-simple-framework-for-researching-any-topic-online/">a simple framework for researching any topic online</a> 
+<a href="https://palacsintarecept.hu.net/a-simple-guide-to-the-five-daily-prayers-and-their-timings/">a simple guide to the five daily prayers and their timings</a> 
+<a href="https://palacsintarecept.hu.net/ai-art-prompt-ideas-and-how-to-write-them-what-to-know/">ai art prompt ideas and how to write them what to know</a> 
+<a href="https://palacsintarecept.hu.net/air-quality-in-hyderabad-understanding-the-daily-readings/">air quality in hyderabad understanding the daily readings</a> 
+<a href="https://palacsintarecept.hu.net/alap-palacsintateszta-recept/">alap palacsintateszta recept</a> 
+<a href="https://palacsintarecept.hu.net/android-app-safety-and-everyday-mobile-tips-what-to-know/">android app safety and everyday mobile tips what to know</a> 
 <a href="https://palacsintarecept.hu.net/arcenturf-co-resource-2-2/">arcenturf co resource 2 2</a> 
 <a href="https://palacsintarecept.hu.net/bettingagescom-net-resource-2/">bettingagescom net resource 2</a> 
 <a href="https://palacsintarecept.hu.net/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
@@ -780,25 +802,3 @@
 <a href="https://pharmacoplus.com/what-to-know-about-why-niche-blogs-still-matter/">what to know about why niche blogs still matter</a> 
 <a href="https://pharmacoplus.com/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://pharmacoplus.com/what-to-look-for-in-a-good-news-website-a-quick-guide-2/">what to look for in a good news website a quick guide 2</a> 
-<a href="https://pharmacoplus.com/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://pharmacoplus.com/what-to-look-for-in-a-good-news-website-and-why-it-matters-2/">what to look for in a good news website and why it matters 2</a> 
-<a href="https://pharmacoplus.com/what-to-look-for-in-a-good-news-website-and-why-it-matters/">what to look for in a good news website and why it matters</a> 
-<a href="https://pharmacoplus.com/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://pharmacoplus.com/what-to-look-for-in-a-good-news-website/">what to look for in a good news website</a> 
-<a href="https://pharmacoplus.com/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
-<a href="https://pharmacoplus.com/why-context-matters-when-reading-online-a-practical-guide/">why context matters when reading online a practical guide</a> 
-<a href="https://pharmacoplus.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
-<a href="https://pharmacoplus.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
-<a href="https://pharmacoplus.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
-<a href="https://pharmacoplus.com/why-niche-blogs-still-matter-and-why-it-matters-2/">why niche blogs still matter and why it matters 2</a> 
-<a href="https://pharmacoplus.com/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
-<a href="https://pharmacoplus.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
-<a href="https://pharmacoplus.com/why-primary-sources-matter-and-how-to-find-them-a-quick-guid/">why primary sources matter and how to find them a quick guid</a> 
-<a href="https://pharmacoplus.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://pharmacoplus.com/why-you-should-avoid-unofficial-apk-downloads/">why you should avoid unofficial apk downloads</a> 
-<a href="https://phbetlogin.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://phbetlogin.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://phbetlogin.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://phbetlogin.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://phbetlogin.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://phbetlogin.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
