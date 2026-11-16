@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
+<a href="https://alcobar85.xyz/why-niche-blogs-still-matter.htm">why niche blogs still matter</a> 
+<a href="https://alcobar85.xyz/why-primary-sources-matter-and-how-to-find-them-a-practical-2/">why primary sources matter and how to find them a practical </a> 
+<a href="https://alcobar85.xyz/why-primary-sources-matter-and-how-to-find-them-a-practical/">why primary sources matter and how to find them a practical</a> 
+<a href="https://alcobar85.xyz/why-primary-sources-matter-and-how-to-find-them-and-why-it-m.htm">why primary sources matter and how to find them and why it m</a> 
+<a href="https://alcobar85.xyz/why-primary-sources-matter-and-how-to-find-them-explained-si/">why primary sources matter and how to find them explained si</a> 
 <a href="https://alcobar85.xyz/why-primary-sources-matter-and-how-to-find-them/">why primary sources matter and how to find them</a> 
 <a href="https://algiamedical.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
 <a href="https://algiamedical.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
@@ -796,9 +802,3 @@
 <a href="https://algiamedical.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
 <a href="https://algiamedical.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 
 <a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-3/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-beginn-4/">understanding cryptocurrency bitcoin and blockchain a beginn</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-10/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-11/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-12/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-13/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
-<a href="https://algiamedical.com/understanding-cryptocurrency-bitcoin-and-blockchain-a-compre-16/">understanding cryptocurrency bitcoin and blockchain a compre</a> 
