@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://casacours.uk.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
 <a href="https://casacours.uk.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://casacours.uk.com/why-niche-blogs-still-matter-2/">why niche blogs still matter 2</a> 
 <a href="https://casacours.uk.com/why-niche-blogs-still-matter-the-basics/">why niche blogs still matter the basics</a> 
@@ -528,8 +529,10 @@
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-smarter-crypto-decisions-83-2/">guides reviews how tos for smarter crypto decisions 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-smarter-crypto-pr-decisions-83-2/">guides reviews how tos for smarter crypto pr decisions 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-smarter-everyday-decisions-83-2/">guides reviews how tos for smarter everyday decisions 83 2</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-for-smarter-online-research-83-2/">guides reviews how tos for smarter online research 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-for-tech-crypto-and-xrp-83-2/">guides reviews how tos for tech crypto and xrp 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-lumora-tutuapp-and-crypto-83-2/">guides reviews how tos lumora tutuapp and crypto 83 2</a> 
+<a href="https://cbd-stone.com/guides-reviews-how-tos-that-help-you-see-the-light-shine-83-2/">guides reviews how tos that help you see the light shine 83 </a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-the-ideas-worth-knowing-83-2/">guides reviews how tos the ideas worth knowing 83 2</a> 
 <a href="https://cbd-stone.com/guides-reviews-how-tos-voozon-ai-and-security-83-2/">guides reviews how tos voozon ai and security 83 2</a> 
 <a href="https://cbd-stone.com/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-the-art-of-business-personal-finance-and-marketing/">mastering the art of business personal finance and marketing</a> 
 <a href="https://cbd-stone.com/mastering-the-digital-landscape-essential-tools-resources-fo-83-5/">mastering the digital landscape essential tools resources fo</a> 
 <a href="https://cbd-stone.com/mastering-your-digital-life-top-apps-for-productivity-and-le/">mastering your digital life top apps for productivity and le</a> 
-<a href="https://cbd-stone.com/mastering-your-digital-life-top-apps-for-productivity-and-or-2/">mastering your digital life top apps for productivity and or</a> 
-<a href="https://cbd-stone.com/mastering-your-digital-life-top-apps-for-productivity-and-or/">mastering your digital life top apps for productivity and or</a> 
-<a href="https://cbd-stone.com/maximizing-business-and-personal-success-with-digital-tools-83-5/">maximizing business and personal success with digital tools </a> 

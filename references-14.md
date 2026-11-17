@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-15.md) · [‹ prev](references-13.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/verificacion-de-hechos-d3514c79/">verificacion de hechos d3514c79</a> 
 <a href="https://boostelearning.mataroa.blog/blog/verificacion-de-hechos/">verificacion de hechos</a> 
 <a href="https://boostelearning.mataroa.blog/blog/viirelaid-empire-bigwater-transform-viirelaid-into-carbon-negative-3cb4a8c4/">viirelaid empire bigwater transform viirelaid into carbon ne</a> 
 <a href="https://boostelearning.mataroa.blog/blog/viirelaid-empire-bigwater-transform-viirelaid-into-carbon-negative-7b299783/">viirelaid empire bigwater transform viirelaid into carbon ne</a> 
@@ -801,4 +802,3 @@
 <a href="https://captainjackinterview.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-82-2-2/">exploring the synergy of web tech content a comprehensive ro</a> 
 <a href="https://captainjackinterview.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-82-2-3/">exploring the synergy of web tech content a comprehensive ro</a> 
 <a href="https://captainjackinterview.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-82-2/">exploring the synergy of web tech content a comprehensive ro</a> 
-<a href="https://captainjackinterview.com/exploring-the-top-digital-tools-online-resources-for-crypto-82-1/">exploring the top digital tools online resources for crypto </a> 
