@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
+<a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
+<a href="https://croginalcats.xyz/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
+<a href="https://croginalcats.xyz/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
+<a href="https://croginalcats.xyz/how-to-use-the-web-to-learn-a-new-skill-a-quick-guide/">how to use the web to learn a new skill a quick guide</a> 
 <a href="https://croginalcats.xyz/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
 <a href="https://croginalcats.xyz/how-zakat-on-gold-cash-and-savings-is-commonly-calculated/">how zakat on gold cash and savings is commonly calculated</a> 
 <a href="https://croginalcats.xyz/identifying-fonts-and-understanding-font-licensing-what-to-k/">identifying fonts and understanding font licensing what to k</a> 
@@ -797,8 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-web-tech-and-content-a-deep-dive-into-cryptocu-26-3/">exploring the web tech and content a deep dive into cryptocu</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-web-tech-and-content-landscape-a-comprehensive-26-3/">exploring the web tech and content landscape a comprehensive</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-web-tech-content-landscape-a-comprehensive-gui-26-3/">exploring the web tech content landscape a comprehensive gui</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-world-of-guides-reviews-and-how-tos-a-comprehe-26-4/">exploring the world of guides reviews and how tos a comprehe</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-world-of-guides-reviews-and-how-tos-your-ultim-26-4/">exploring the world of guides reviews and how tos your ultim</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-world-of-online-casinos-web-tech-and-content-i-26-3/">exploring the world of online casinos web tech and content i</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-world-of-web-tech-and-content-a-comprehensive-26-3-2/">exploring the world of web tech and content a comprehensive </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-world-of-web-tech-and-content-a-comprehensive-26-3/">exploring the world of web tech and content a comprehensive </a> 
