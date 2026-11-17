@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
+<a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online-and-why-it-matters-2/">how to spot low quality content online and why it matters 2</a> 
 <a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
 <a href="https://croginalcats.xyz/how-to-spot-low-quality-content-online/">how to spot low quality content online</a> 
 <a href="https://croginalcats.xyz/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
@@ -800,5 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-in-the-digital-age-26-3/">exploring the synergy of web tech content in the digital age</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-vibrant-world-of-asianpinay-culture-and-trends/">exploring the vibrant world of asianpinay culture and trends</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-web-tech-and-content-a-deep-dive-into-cryptocu-26-3/">exploring the web tech and content a deep dive into cryptocu</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-web-tech-and-content-landscape-a-comprehensive-26-3/">exploring the web tech and content landscape a comprehensive</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-web-tech-content-landscape-a-comprehensive-gui-26-3/">exploring the web tech content landscape a comprehensive gui</a> 
