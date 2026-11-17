@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://dinxsh.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
+<a href="https://dinxsh.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://dinxsh.xyz/where-to-turn-for-reliable-online-information/">where to turn for reliable online information</a> 
 <a href="https://docs.google.com/document/d/e/2PACX-1vSDSa_NYUlW-I8JNaAh_Ty7JpB-3xWuCxpd4BeJ9_rLoa-P4SRwpxfNVR_zGlDaqnJUm1f5p6dDfBF9/pub">pub</a> 
 <a href="https://domain.glass/2forksevents.com">2forksevents.com</a> 
@@ -314,6 +316,8 @@
 <a href="https://ecomhuntreviews.com/building-a-healthy-daily-reading-habit-and-why-it-matters/">building a healthy daily reading habit and why it matters</a> 
 <a href="https://ecomhuntreviews.com/building-a-healthy-daily-reading-habit-explained-simply/">building a healthy daily reading habit explained simply</a> 
 <a href="https://ecomhuntreviews.com/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://ecomhuntreviews.com/business-finance-productivity-50-resources-worth-bookmarking-90-2/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://ecomhuntreviews.com/business-finance-productivity-a-practical-playbook-90-2/">business finance productivity a practical playbook 90 2</a> 
 <a href="https://ecomhuntreviews.com/business-finance-productivity-a-practical-roundup-90-7/">business finance productivity a practical roundup 90 7</a> 
 <a href="https://ecomhuntreviews.com/business-finance-productivity-crypto-insights-that-matter-90-7/">business finance productivity crypto insights that matter 90</a> 
 <a href="https://ecomhuntreviews.com/business-finance-productivity-essential-independent-websites-90-2/">business finance productivity essential independent websites</a> 
@@ -697,6 +701,7 @@
 <a href="https://ecomhuntreviews.com/marketing-seo-growth-a-practical-crypto-card-hub-roundup-90-6/">marketing seo growth a practical crypto card hub roundup 90 </a> 
 <a href="https://ecomhuntreviews.com/marketing-seo-growth-a-practical-haunted-palace-guide-90-6/">marketing seo growth a practical haunted palace guide 90 6</a> 
 <a href="https://ecomhuntreviews.com/marketing-seo-growth-essential-strategies-for-business-succe-90-1/">marketing seo growth essential strategies for business succe</a> 
+<a href="https://ecomhuntreviews.com/marketing-seo-growth-haunted-palace-and-palette-press-90-1/">marketing seo growth haunted palace and palette press 90 1</a> 
 <a href="https://ecomhuntreviews.com/marketing-seo-growth-navigating-the-digital-landscape-for-su-90-6/">marketing seo growth navigating the digital landscape for su</a> 
 <a href="https://ecomhuntreviews.com/marketing-seo-growth-strategies-for-success-in-the-digital-a-90-6/">marketing seo growth strategies for success in the digital a</a> 
 <a href="https://ecomhuntreviews.com/master-business-finance-productivity-top-online-resources-to-90-2/">master business finance productivity top online resources to</a> 
@@ -797,8 +802,3 @@
 <a href="https://ecomhuntreviews.com/mastering-online-information-guides-reviews-and-how-tos-expl-90-10/">mastering online information guides reviews and how tos expl</a> 
 <a href="https://ecomhuntreviews.com/mastering-online-information-guides-reviews-and-how-tos-for-90-10-2/">mastering online information guides reviews and how tos for </a> 
 <a href="https://ecomhuntreviews.com/mastering-online-information-guides-reviews-and-how-tos-for-90-10-3/">mastering online information guides reviews and how tos for </a> 
-<a href="https://ecomhuntreviews.com/mastering-online-information-guides-reviews-and-how-tos-for-90-10-4/">mastering online information guides reviews and how tos for </a> 
-<a href="https://ecomhuntreviews.com/mastering-online-information-guides-reviews-and-how-tos-for-90-10/">mastering online information guides reviews and how tos for </a> 
-<a href="https://ecomhuntreviews.com/mastering-online-information-guides-reviews-how-tos-for-savv-90-10-10/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-information-guides-reviews-how-tos-for-savv-90-10-11/">mastering online information guides reviews how tos for savv</a> 
-<a href="https://ecomhuntreviews.com/mastering-online-information-guides-reviews-how-tos-for-savv-90-10-12/">mastering online information guides reviews how tos for savv</a> 
