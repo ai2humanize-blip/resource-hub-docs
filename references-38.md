@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://forotesis.com/how-crypto-cards-work-spending-digital-assets-in-everyday-li/">how crypto cards work spending digital assets in everyday li</a> 
+<a href="https://forotesis.com/how-crypto-debit-cards-work-and-what-the-fees-really-are/">how crypto debit cards work and what the fees really are</a> 
+<a href="https://forotesis.com/how-daily-prayer-times-are-calculated/">how daily prayer times are calculated</a> 
+<a href="https://forotesis.com/how-daily-result-updates-work-and-where-to-check-them-online/">how daily result updates work and where to check them online</a> 
+<a href="https://forotesis.com/how-football-league-projections-and-season-simulations-work/">how football league projections and season simulations work</a> 
+<a href="https://forotesis.com/how-html5-made-browser-games-good-again/">how html5 made browser games good again</a> 
+<a href="https://forotesis.com/how-live-cryptocurrency-prices-are-tracked-and-reported/">how live cryptocurrency prices are tracked and reported</a> 
+<a href="https://forotesis.com/how-lottery-style-result-charts-are-organized-and-read/">how lottery style result charts are organized and read</a> 
+<a href="https://forotesis.com/how-online-urdu-english-dictionaries-and-translation-tools-w/">how online urdu english dictionaries and translation tools w</a> 
+<a href="https://forotesis.com/how-recent-developments-in-ai-are-reshaping-the-news-landsca/">how recent developments in ai are reshaping the news landsca</a> 
+<a href="https://forotesis.com/how-smart-apps-are-transforming-daily-life-a-deep-dive-into/">how smart apps are transforming daily life a deep dive into</a> 
+<a href="https://forotesis.com/how-streaming-and-ott-release-dates-are-announced-and-tracke/">how streaming and ott release dates are announced and tracke</a> 
 <a href="https://forotesis.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
 <a href="https://forotesis.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://forotesis.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
@@ -469,8 +481,11 @@
 <a href="https://getolive.org/business-finance-productivity-a-practical-reader-s-web-guide-97-5/">business finance productivity a practical reader s web guide</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-roundup-97-10/">business finance productivity a practical roundup 97 10</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-source-roundup-97-10/">business finance productivity a practical source roundup 97 </a> 
+<a href="https://getolive.org/business-finance-productivity-a-reader-s-map-online-97-5/">business finance productivity a reader s map online 97 5</a> 
+<a href="https://getolive.org/business-finance-productivity-a-reader-s-web-guide-97-5/">business finance productivity a reader s web guide 97 5</a> 
 <a href="https://getolive.org/business-finance-productivity-a-smarter-decision-roundup-97-10/">business finance productivity a smarter decision roundup 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-a-useful-ideas-roundup-97-10/">business finance productivity a useful ideas roundup 97 10</a> 
+<a href="https://getolive.org/business-finance-productivity-useful-online-tools-guides-97-5/">business finance productivity useful online tools guides 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-your-practical-web-toolkit-97-5/">business finance productivity your practical web toolkit 97 </a> 
 <a href="https://getolive.org/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
 <a href="https://getolive.org/cloudstacklinks/">cloudstacklinks</a> 
@@ -787,18 +802,3 @@
 <a href="https://getolive.org/newsrealtors-independent-coverage-of-india-and-world-news/">newsrealtors independent coverage of india and world news</a> 
 <a href="https://getolive.org/oxpoll-cc-resource-1/">oxpoll cc resource 1</a> 
 <a href="https://getolive.org/phonespeakerclean-com-resource-1/">phonespeakerclean com resource 1</a> 
-<a href="https://getolive.org/quikconsolecom-net-resource-1/">quikconsolecom net resource 1</a> 
-<a href="https://getolive.org/recognizing-credible-experts-online-explained-simply-2/">recognizing credible experts online explained simply 2</a> 
-<a href="https://getolive.org/recognizing-credible-experts-online-explained-simply/">recognizing credible experts online explained simply</a> 
-<a href="https://getolive.org/recognizing-credible-experts-online-the-basics-2/">recognizing credible experts online the basics 2</a> 
-<a href="https://getolive.org/recognizing-credible-experts-online-the-basics/">recognizing credible experts online the basics</a> 
-<a href="https://getolive.org/revolutionizing-business-finance-productivity-the-ai-driven-97-10/">revolutionizing business finance productivity the ai driven </a> 
-<a href="https://getolive.org/revolutionizing-daily-life-how-ai-driven-apps-are-transformi/">revolutionizing daily life how ai driven apps are transformi</a> 
-<a href="https://getolive.org/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
-<a href="https://getolive.org/simple-habits-of-a-smart-internet-reader-and-why-it-matters-2/">simple habits of a smart internet reader and why it matters </a> 
-<a href="https://getolive.org/simple-habits-of-a-smart-internet-reader-and-why-it-matters-3/">simple habits of a smart internet reader and why it matters </a> 
-<a href="https://getolive.org/simple-habits-of-a-smart-internet-reader-and-why-it-matters/">simple habits of a smart internet reader and why it matters</a> 
-<a href="https://getolive.org/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
-<a href="https://getolive.org/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
-<a href="https://getolive.org/staying-informed-and-ahead-the-ultimate-guide-to-sports-news-97-8/">staying informed and ahead the ultimate guide to sports news</a> 
-<a href="https://getolive.org/staying-informed-comprehensive-guides-reviews-and-how-tos-fo-97-8/">staying informed comprehensive guides reviews and how tos fo</a> 

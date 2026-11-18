@@ -493,7 +493,10 @@
 <a href="https://emiamedical.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-92-1/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-50-resources-worth-bookmarkin-92-6/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://emiamedical.com/digital-tools-online-resources-a-practical-guide-92-1/">digital tools online resources a practical guide 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smart-reader-s-guide-92-1/">digital tools online resources a smart reader s guide 92 1</a> 
+<a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-research-guide-92-1/">digital tools online resources a smarter research guide 92 1</a> 
+<a href="https://emiamedical.com/digital-tools-online-resources-for-smarter-internet-reading-92-1/">digital tools online resources for smarter internet reading </a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-smart-picks-for-real-life-92-6/">digital tools online resources smart picks for real life 92 </a> 
 <a href="https://emiamedical.com/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
 <a href="https://emiamedical.com/discover-the-best-digital-tools-online-resources-for-every-n-92-1-2/">discover the best digital tools online resources for every n</a> 
@@ -799,6 +802,3 @@
 <a href="https://emiamedical.com/marketing-seo-growth-bitcoin-crypto-and-retirement-92-9/">marketing seo growth bitcoin crypto and retirement 92 9</a> 
 <a href="https://emiamedical.com/marketing-seo-growth-bitcoin-etf-and-xrp-market-guide-92-9/">marketing seo growth bitcoin etf and xrp market guide 92 9</a> 
 <a href="https://emiamedical.com/marketing-seo-growth-casino-content-roundup-guide-92-9/">marketing seo growth casino content roundup guide 92 9</a> 
-<a href="https://emiamedical.com/marketing-seo-growth-casino-content-strategy-roundup-92-9/">marketing seo growth casino content strategy roundup 92 9</a> 
-<a href="https://emiamedical.com/marketing-seo-growth-casino-content-that-builds-trust-92-9/">marketing seo growth casino content that builds trust 92 9</a> 
-<a href="https://emiamedical.com/marketing-seo-growth-casino-privacy-bitcoin-guide-92-9/">marketing seo growth casino privacy bitcoin guide 92 9</a> 
