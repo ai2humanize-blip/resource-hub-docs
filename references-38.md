@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://forotesis.com/how-streaming-premiere-dates-are-decided/">how streaming premiere dates are decided</a> 
+<a href="https://forotesis.com/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://forotesis.com/how-to-avoid-misinformation-and-hype-explained-simply/">how to avoid misinformation and hype explained simply</a> 
+<a href="https://forotesis.com/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://forotesis.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://forotesis.com/how-to-bookmark-and-revisit-useful-resources/">how to bookmark and revisit useful resources</a> 
+<a href="https://forotesis.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
+<a href="https://forotesis.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
+<a href="https://forotesis.com/how-to-build-a-weekly-cleaning-routine-that-actually-sticks/">how to build a weekly cleaning routine that actually sticks</a> 
+<a href="https://forotesis.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://forotesis.com/how-to-choose-the-perfect-watch-a-comprehensive-buying-guide/">how to choose the perfect watch a comprehensive buying guide</a> 
+<a href="https://forotesis.com/how-to-compare-sources-on-the-same-story-2/">how to compare sources on the same story 2</a> 
 <a href="https://forotesis.com/how-to-compare-sources-on-the-same-story-3/">how to compare sources on the same story 3</a> 
 <a href="https://forotesis.com/how-to-compare-sources-on-the-same-story-the-basics/">how to compare sources on the same story the basics</a> 
 <a href="https://forotesis.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
@@ -58,6 +70,7 @@
 <a href="https://forotesis.com/marketing-seo-growth-a-bookmark-worthy-reader-s-map-96-5/">marketing seo growth a bookmark worthy reader s map 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-bookmark-worthy-web-roundup-96-5/">marketing seo growth a bookmark worthy web roundup 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-15-site-roundup-96-10/">marketing seo growth a practical 15 site roundup 96 10</a> 
+<a href="https://forotesis.com/marketing-seo-growth-a-practical-map-of-the-useful-web-96-5-2/">marketing seo growth a practical map of the useful web 96 5 </a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-map-of-the-useful-web-96-5/">marketing seo growth a practical map of the useful web 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-map-of-useful-web-resources-96-5/">marketing seo growth a practical map of useful web resources</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-roundup-of-online-resources-96-10/">marketing seo growth a practical roundup of online resources</a> 
@@ -453,10 +466,12 @@
 <a href="https://getolive.org/building-a-healthy-daily-reading-habit-the-basics/">building a healthy daily reading habit the basics</a> 
 <a href="https://getolive.org/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
 <a href="https://getolive.org/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://getolive.org/business-finance-productivity-a-practical-reader-s-web-guide-97-5/">business finance productivity a practical reader s web guide</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-roundup-97-10/">business finance productivity a practical roundup 97 10</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-source-roundup-97-10/">business finance productivity a practical source roundup 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-a-smarter-decision-roundup-97-10/">business finance productivity a smarter decision roundup 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-a-useful-ideas-roundup-97-10/">business finance productivity a useful ideas roundup 97 10</a> 
+<a href="https://getolive.org/business-finance-productivity-your-practical-web-toolkit-97-5/">business finance productivity your practical web toolkit 97 </a> 
 <a href="https://getolive.org/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
 <a href="https://getolive.org/cloudstacklinks/">cloudstacklinks</a> 
 <a href="https://getolive.org/comprehensive-guides-reviews-and-how-tos-for-tech-crypto-and-97-8/">comprehensive guides reviews and how tos for tech crypto and</a> 
@@ -477,6 +492,7 @@
 <a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6-6/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://getolive.org/digital-tools-online-resources-a-practical-roundup-guide-97-6/">digital tools online resources a practical roundup guide 97 </a> 
+<a href="https://getolive.org/digital-tools-online-resources-a-reader-s-map-of-the-web-97-6/">digital tools online resources a reader s map of the web 97 </a> 
 <a href="https://getolive.org/digital-tools-online-resources-for-smarter-online-learning-97-6/">digital tools online resources for smarter online learning 9</a> 
 <a href="https://getolive.org/digital-tools-online-resources-for-smarter-safer-browsing-97-6/">digital tools online resources for smarter safer browsing 97</a> 
 <a href="https://getolive.org/discover-the-best-digital-tools-online-resources-for-every-n-97-6/">discover the best digital tools online resources for every n</a> 
@@ -786,19 +802,3 @@
 <a href="https://getolive.org/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://getolive.org/staying-informed-and-ahead-the-ultimate-guide-to-sports-news-97-8/">staying informed and ahead the ultimate guide to sports news</a> 
 <a href="https://getolive.org/staying-informed-comprehensive-guides-reviews-and-how-tos-fo-97-8/">staying informed comprehensive guides reviews and how tos fo</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-in-online-casino-and-ga/">staying safe and informed the latest in online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-online-casino-and-gambl/">staying safe and informed the latest online casino and gambl</a> 
-<a href="https://getolive.org/staying-safe-and-informed-the-latest-trends-in-online-casino-97-7/">staying safe and informed the latest trends in online casino</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-2/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-3/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-4/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga-5/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/staying-safe-and-responsible-the-latest-online-casino-and-ga/">staying safe and responsible the latest online casino and ga</a> 
-<a href="https://getolive.org/techvantor-xyz-resource-1-2/">techvantor xyz resource 1 2</a> 
-<a href="https://getolive.org/techvantor-xyz-resource-1/">techvantor xyz resource 1</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-a-practical-guide/">the basics of staying safe while browsing a practical guide</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-and-why-it-matters-2/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-and-why-it-matters/">the basics of staying safe while browsing and why it matters</a> 
-<a href="https://getolive.org/the-basics-of-staying-safe-while-browsing-the-basics/">the basics of staying safe while browsing the basics</a> 
-<a href="https://getolive.org/the-best-free-browser-games-to-play-instantly/">the best free browser games to play instantly</a> 
-<a href="https://getolive.org/the-difference-between-skimming-and-deep-reading-online-2/">the difference between skimming and deep reading online 2</a> 
