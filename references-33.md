@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://ezoterizm.com/digital-tools-and-online-resources-a-practical-roundup-93-10/">digital tools and online resources a practical roundup 93 10</a> 
+<a href="https://ezoterizm.com/digital-tools-and-online-resources-for-number-games-a-guide-93-10/">digital tools and online resources for number games a guide </a> 
+<a href="https://ezoterizm.com/digital-tools-online-resources-50-resources-worth-bookmarkin-93-10-10/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://ezoterizm.com/digital-tools-online-resources-50-resources-worth-bookmarkin-93-10-11/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://ezoterizm.com/digital-tools-online-resources-50-resources-worth-bookmarkin-93-10-12/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://ezoterizm.com/digital-tools-online-resources-50-resources-worth-bookmarkin-93-10-13/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://ezoterizm.com/digital-tools-online-resources-50-resources-worth-bookmarkin-93-10-14/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -215,8 +219,10 @@
 <a href="https://ezoterizm.com/guides-reviews-how-tos-a-practical-resource-roundup-93-7/">guides reviews how tos a practical resource roundup 93 7</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-a-smarter-learning-resource-roundup-93-7/">guides reviews how tos a smarter learning resource roundup 9</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-crypto-news-policy-and-context-93-2/">guides reviews how tos crypto news policy and context 93 2</a> 
+<a href="https://ezoterizm.com/guides-reviews-how-tos-crypto-retirement-and-casinos-93-2/">guides reviews how tos crypto retirement and casinos 93 2</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-for-crypto-and-hedera-readers-93-7/">guides reviews how tos for crypto and hedera readers 93 7</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-for-smarter-crypto-decisions-93-2-2/">guides reviews how tos for smarter crypto decisions 93 2 2</a> 
+<a href="https://ezoterizm.com/guides-reviews-how-tos-for-smarter-crypto-decisions-93-2-3/">guides reviews how tos for smarter crypto decisions 93 2 3</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-for-smarter-crypto-decisions-93-2/">guides reviews how tos for smarter crypto decisions 93 2</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-for-smarter-money-decisions-93-2/">guides reviews how tos for smarter money decisions 93 2</a> 
 <a href="https://ezoterizm.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabbusinesssolutions.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
 <a href="https://fabbusinesssolutions.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
 <a href="https://fabbusinesssolutions.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
-<a href="https://fabbusinesssolutions.com/how-to-tell-explainer-journalism-from-opinion-the-basics-3/">how to tell explainer journalism from opinion the basics 3</a> 
-<a href="https://fabbusinesssolutions.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://fabbusinesssolutions.com/how-to-tell-explainer-journalism-from-opinion/">how to tell explainer journalism from opinion</a> 
-<a href="https://fabbusinesssolutions.com/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
-<a href="https://fabbusinesssolutions.com/how-to-use-the-web-to-learn-a-new-skill-2/">how to use the web to learn a new skill 2</a> 
-<a href="https://fabbusinesssolutions.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
