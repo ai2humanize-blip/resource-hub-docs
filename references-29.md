@@ -500,8 +500,11 @@
 <a href="https://emiamedical.com/digital-tools-online-resources-a-practical-guide-92-1-2/">digital tools online resources a practical guide 92 1 2</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-practical-guide-92-1/">digital tools online resources a practical guide 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-practical-news-guide-92-1/">digital tools online resources a practical news guide 92 1</a> 
+<a href="https://emiamedical.com/digital-tools-online-resources-a-practical-research-guide-92-1/">digital tools online resources a practical research guide 92</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-practical-roundup-92-1/">digital tools online resources a practical roundup 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smart-reader-s-guide-92-1/">digital tools online resources a smart reader s guide 92 1</a> 
+<a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-online-guide-92-1/">digital tools online resources a smarter online guide 92 1</a> 
+<a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-reading-guide-92-1/">digital tools online resources a smarter reading guide 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-research-guide-92-1-2/">digital tools online resources a smarter research guide 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-research-guide-92-1/">digital tools online resources a smarter research guide 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-way-to-learn-92-1/">digital tools online resources a smarter way to learn 92 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://emiamedical.com/marketing-seo-growth-a-smart-guide-to-crypto-and-gme-92-9/">marketing seo growth a smart guide to crypto and gme 92 9</a> 
 <a href="https://emiamedical.com/marketing-seo-growth-a-smarter-audience-polling-playbook-92-9/">marketing seo growth a smarter audience polling playbook 92 </a> 
 <a href="https://emiamedical.com/marketing-seo-growth-a-smarter-blockchain-content-roundup-92-9/">marketing seo growth a smarter blockchain content roundup 92</a> 
-<a href="https://emiamedical.com/marketing-seo-growth-a-smarter-crypto-content-playbook-92-9/">marketing seo growth a smarter crypto content playbook 92 9</a> 
-<a href="https://emiamedical.com/marketing-seo-growth-a-smarter-crypto-content-roadmap-92-9-2/">marketing seo growth a smarter crypto content roadmap 92 9 2</a> 
-<a href="https://emiamedical.com/marketing-seo-growth-a-smarter-crypto-content-roadmap-92-9/">marketing seo growth a smarter crypto content roadmap 92 9</a> 

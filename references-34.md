@@ -2,6 +2,12 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://fabbusinesssolutions.com/how-to-compare-sources-on-the-same-story-and-why-it-matters/">how to compare sources on the same story and why it matters</a> 
+<a href="https://fabbusinesssolutions.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://fabbusinesssolutions.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
+<a href="https://fabbusinesssolutions.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
+<a href="https://fabbusinesssolutions.com/how-to-fact-check-something-in-five-minutes-explained-simply-2/">how to fact check something in five minutes explained simply</a> 
+<a href="https://fabbusinesssolutions.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://fabbusinesssolutions.com/how-to-find-balanced-coverage-of-a-topic-explained-simply/">how to find balanced coverage of a topic explained simply</a> 
 <a href="https://fabbusinesssolutions.com/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://fabbusinesssolutions.com/how-to-find-reliable-how-to-guides/">how to find reliable how to guides</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-comprehensive-roun-27-5/">mastering business finance productivity a comprehensive roun</a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-a-deep-dive-into-hin-27-5/">mastering business finance productivity a deep dive into hin</a> 
 <a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-guides-and-27-5/">mastering business finance productivity essential guides and</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-habits-and-27-5/">mastering business finance productivity essential habits and</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-online-rea-27-5/">mastering business finance productivity essential online rea</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-online-ski-27-5/">mastering business finance productivity essential online ski</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-online-str-27-5-2/">mastering business finance productivity essential online str</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-online-str-27-5-3/">mastering business finance productivity essential online str</a> 
-<a href="https://fabulouspoetry.it.com/mastering-business-finance-productivity-essential-online-str-27-5-4/">mastering business finance productivity essential online str</a> 

@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://forotesis.com/essential-business-finance-and-productivity-tips-for-the-mod-96-6/">essential business finance and productivity tips for the mod</a> 
+<a href="https://forotesis.com/essential-digital-tools-online-resources-for-everyday-life-96-7/">essential digital tools online resources for everyday life 9</a> 
+<a href="https://forotesis.com/essential-digital-tools-online-resources-for-informed-living-96-7/">essential digital tools online resources for informed living</a> 
+<a href="https://forotesis.com/essential-digital-tools-online-resources-for-modern-crypto-i-96-7/">essential digital tools online resources for modern crypto i</a> 
+<a href="https://forotesis.com/essential-digital-tools-online-resources-for-modern-living-96-7/">essential digital tools online resources for modern living 9</a> 
+<a href="https://forotesis.com/essential-digital-tools-online-resources-for-staying-informe-96-7/">essential digital tools online resources for staying informe</a> 
+<a href="https://forotesis.com/everyday-consumer-technology-explained-simply/">everyday consumer technology explained simply</a> 
+<a href="https://forotesis.com/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://forotesis.com/expert-guides-reviews-and-how-tos-transform-your-life-with-i-96-9/">expert guides reviews and how tos transform your life with i</a> 
 <a href="https://forotesis.com/expert-insights-guides-reviews-how-tos-for-choosing-a-virtua-96-4/">expert insights guides reviews how tos for choosing a virtua</a> 
 <a href="https://forotesis.com/exploring-digital-tools-online-resources-transforming-sports-96-7/">exploring digital tools online resources transforming sports</a> 
 <a href="https://forotesis.com/exploring-essential-digital-tools-online-resources-for-moder-96-2/">exploring essential digital tools online resources for moder</a> 
@@ -32,6 +41,7 @@
 <a href="https://forotesis.com/guides-reviews-how-tos-a-15-site-statscrop-roundup-96-9/">guides reviews how tos a 15 site statscrop roundup 96 9</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-map-of-useful-web-resources-96-4/">guides reviews how tos a map of useful web resources 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-practical-crypto-resource-roundup-96-9/">guides reviews how tos a practical crypto resource roundup 9</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-a-practical-digital-decision-guide-96-4/">guides reviews how tos a practical digital decision guide 96</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-practical-map-of-the-useful-web-96-4/">guides reviews how tos a practical map of the useful web 96 </a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-practical-reader-s-map-of-the-web-96-4/">guides reviews how tos a practical reader s map of the web 9</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-reader-s-map-of-the-useful-web-96-4/">guides reviews how tos a reader s map of the useful web 96 4</a> 
@@ -39,11 +49,13 @@
 <a href="https://forotesis.com/guides-reviews-how-tos-a-smarter-tech-decision-roundup-96-4/">guides reviews how tos a smarter tech decision roundup 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-clear-answers-for-everyday-life-96-4/">guides reviews how tos clear answers for everyday life 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-for-finding-better-web-resources-96-4/">guides reviews how tos for finding better web resources 96 4</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-for-fonts-licensing-news-96-4/">guides reviews how tos for fonts licensing news 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-for-nigerian-government-services-96-4/">guides reviews how tos for nigerian government services 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-for-polls-games-and-common-faqs-96-4/">guides reviews how tos for polls games and common faqs 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-for-smarter-everyday-decisions-96-4/">guides reviews how tos for smarter everyday decisions 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-for-smarter-safer-decisions-96-4/">guides reviews how tos for smarter safer decisions 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-smarter-consumer-tech-choices-96-4/">guides reviews how tos smarter consumer tech choices 96 4</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-smarter-ways-to-learn-and-choose-96-4/">guides reviews how tos smarter ways to learn and choose 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-the-essential-reader-s-roundup-96-9/">guides reviews how tos the essential reader s roundup 96 9</a> 
 <a href="https://forotesis.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://forotesis.com/how-ai-driven-apps-are-transforming-everyday-life-and-work/">how ai driven apps are transforming everyday life and work</a> 
@@ -530,8 +542,10 @@
 <a href="https://getolive.org/business-finance-productivity-50-resources-worth-bookmarking-97-5-3/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://getolive.org/business-finance-productivity-50-resources-worth-bookmarking-97-5-4/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://getolive.org/business-finance-productivity-50-resources-worth-bookmarking-97-5-5/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://getolive.org/business-finance-productivity-50-resources-worth-bookmarking-97-5-6/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://getolive.org/business-finance-productivity-50-resources-worth-bookmarking-97-5/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-beginner-roundup-97-5/">business finance productivity a practical beginner roundup 9</a> 
+<a href="https://getolive.org/business-finance-productivity-a-practical-browser-guide-97-5/">business finance productivity a practical browser guide 97 5</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-decision-guide-97-5/">business finance productivity a practical decision guide 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-nigerian-guide-97-5/">business finance productivity a practical nigerian guide 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-reader-s-web-guide-97-5/">business finance productivity a practical reader s web guide</a> 
@@ -545,6 +559,7 @@
 <a href="https://getolive.org/business-finance-productivity-a-reader-s-web-toolkit-97-5/">business finance productivity a reader s web toolkit 97 5</a> 
 <a href="https://getolive.org/business-finance-productivity-a-smarter-decision-roundup-97-10/">business finance productivity a smarter decision roundup 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-a-useful-ideas-roundup-97-10/">business finance productivity a useful ideas roundup 97 10</a> 
+<a href="https://getolive.org/business-finance-productivity-budget-travel-and-flight-guide-97-5/">business finance productivity budget travel and flight guide</a> 
 <a href="https://getolive.org/business-finance-productivity-useful-online-tools-guides-97-5/">business finance productivity useful online tools guides 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-your-practical-web-toolkit-97-5/">business finance productivity your practical web toolkit 97 </a> 
 <a href="https://getolive.org/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
@@ -787,18 +802,3 @@
 <a href="https://getolive.org/mastering-the-digital-landscape-essential-tools-and-online-r-97-6/">mastering the digital landscape essential tools and online r</a> 
 <a href="https://getolive.org/mastering-the-digital-landscape-essential-tools-online-resou-97-6-2/">mastering the digital landscape essential tools online resou</a> 
 <a href="https://getolive.org/mastering-the-digital-landscape-essential-tools-online-resou-97-6/">mastering the digital landscape essential tools online resou</a> 
-<a href="https://getolive.org/mastering-the-digital-landscape-essential-tools-resources-fo-97-6-2/">mastering the digital landscape essential tools resources fo</a> 
-<a href="https://getolive.org/mastering-the-digital-landscape-essential-tools-resources-fo-97-6-3/">mastering the digital landscape essential tools resources fo</a> 
-<a href="https://getolive.org/mastering-the-digital-landscape-essential-tools-resources-fo-97-6-4/">mastering the digital landscape essential tools resources fo</a> 
-<a href="https://getolive.org/mastering-the-digital-landscape-essential-tools-resources-fo-97-6/">mastering the digital landscape essential tools resources fo</a> 
-<a href="https://getolive.org/mastering-the-digital-world-essential-tools-online-resources-97-6/">mastering the digital world essential tools online resources</a> 
-<a href="https://getolive.org/mastering-the-digital-world-essential-tools-resources-for-ev-97-6/">mastering the digital world essential tools resources for ev</a> 
-<a href="https://getolive.org/mastering-the-digital-world-essential-tools-resources-for-on-97-6/">mastering the digital world essential tools resources for on</a> 
-<a href="https://getolive.org/mastering-turf-betting-guides-reviews-and-how-tos-for-succes-97-3/">mastering turf betting guides reviews and how tos for succes</a> 
-<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-97-7/">mastering web tech content a comprehensive guide 97 7</a> 
-<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-97-7/">mastering web tech content a comprehensive guide for savvy r</a> 
-<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-97-7-2/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-97-7-3/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-97-7/">mastering web tech content a comprehensive guide for smart r</a> 
-<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-97-7-2/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://getolive.org/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-97-7-3/">mastering web tech content a comprehensive guide for the mod</a> 
