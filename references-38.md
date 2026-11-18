@@ -2,11 +2,23 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://forotesis.com/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://forotesis.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://forotesis.com/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
+<a href="https://forotesis.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://forotesis.com/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-15-resources-readers-can-explore-96-9/">guides reviews how tos 15 resources readers can explore 96 9</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-50-resources-worth-bookmarking-96-4/">guides reviews how tos 50 resources worth bookmarking 96 4</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-a-15-site-statscrop-roundup-96-9/">guides reviews how tos a 15 site statscrop roundup 96 9</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-a-map-of-useful-web-resources-96-4/">guides reviews how tos a map of useful web resources 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-practical-crypto-resource-roundup-96-9/">guides reviews how tos a practical crypto resource roundup 9</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-practical-map-of-the-useful-web-96-4/">guides reviews how tos a practical map of the useful web 96 </a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-practical-reader-s-map-of-the-web-96-4/">guides reviews how tos a practical reader s map of the web 9</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-reader-s-map-of-the-useful-web-96-4/">guides reviews how tos a reader s map of the useful web 96 4</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-a-roundup-for-smarter-decisions-96-4/">guides reviews how tos a roundup for smarter decisions 96 4</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-a-smarter-tech-decision-roundup-96-4/">guides reviews how tos a smarter tech decision roundup 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-for-finding-better-web-resources-96-4/">guides reviews how tos for finding better web resources 96 4</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-for-nigerian-government-services-96-4/">guides reviews how tos for nigerian government services 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-for-smarter-safer-decisions-96-4/">guides reviews how tos for smarter safer decisions 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-the-essential-reader-s-roundup-96-9/">guides reviews how tos the essential reader s roundup 96 9</a> 
 <a href="https://forotesis.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
@@ -491,10 +503,13 @@
 <a href="https://getolive.org/building-a-healthy-daily-reading-habit/">building a healthy daily reading habit</a> 
 <a href="https://getolive.org/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://getolive.org/business-finance-productivity-50-resources-worth-bookmarking-97-5-2/">business finance productivity 50 resources worth bookmarking</a> 
+<a href="https://getolive.org/business-finance-productivity-50-resources-worth-bookmarking-97-5-3/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://getolive.org/business-finance-productivity-50-resources-worth-bookmarking-97-5/">business finance productivity 50 resources worth bookmarking</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-reader-s-web-guide-97-5/">business finance productivity a practical reader s web guide</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-roundup-97-10/">business finance productivity a practical roundup 97 10</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-source-roundup-97-10/">business finance productivity a practical source roundup 97 </a> 
+<a href="https://getolive.org/business-finance-productivity-a-practical-web-roundup-97-5/">business finance productivity a practical web roundup 97 5</a> 
+<a href="https://getolive.org/business-finance-productivity-a-reader-s-map-of-the-web-97-5/">business finance productivity a reader s map of the web 97 5</a> 
 <a href="https://getolive.org/business-finance-productivity-a-reader-s-map-online-97-5/">business finance productivity a reader s map online 97 5</a> 
 <a href="https://getolive.org/business-finance-productivity-a-reader-s-web-guide-97-5/">business finance productivity a reader s web guide 97 5</a> 
 <a href="https://getolive.org/business-finance-productivity-a-reader-s-web-toolkit-97-5/">business finance productivity a reader s web toolkit 97 5</a> 
@@ -787,18 +802,3 @@
 <a href="https://getolive.org/navigating-the-digital-news-landscape-ai-trends-and-insights-97-6/">navigating the digital news landscape ai trends and insights</a> 
 <a href="https://getolive.org/navigating-the-digital-world-a-comprehensive-guide-to-web-te-97-7/">navigating the digital world a comprehensive guide to web te</a> 
 <a href="https://getolive.org/navigating-the-digital-world-essential-tools-and-strategies-97-6/">navigating the digital world essential tools and strategies </a> 
-<a href="https://getolive.org/navigating-the-digital-world-how-ai-powered-apps-are-transfo-97-9/">navigating the digital world how ai powered apps are transfo</a> 
-<a href="https://getolive.org/navigating-the-digital-world-tools-and-tips-for-smart-online-97-6/">navigating the digital world tools and tips for smart online</a> 
-<a href="https://getolive.org/navigating-the-future-bitcoin-blockchain-and-the-latest-cryp/">navigating the future bitcoin blockchain and the latest cryp</a> 
-<a href="https://getolive.org/navigating-the-future-how-ai-driven-apps-are-transforming-ou/">navigating the future how ai driven apps are transforming ou</a> 
-<a href="https://getolive.org/navigating-the-future-how-bitcoin-and-blockchain-are-transfo/">navigating the future how bitcoin and blockchain are transfo</a> 
-<a href="https://getolive.org/navigating-the-future-of-ai-current-developments-and-their-i/">navigating the future of ai current developments and their i</a> 
-<a href="https://getolive.org/navigating-the-future-of-digital-currencies-key-trends-and-d/">navigating the future of digital currencies key trends and d</a> 
-<a href="https://getolive.org/navigating-the-future-of-finance-understanding-crypto-bitcoi/">navigating the future of finance understanding crypto bitcoi</a> 
-<a href="https://getolive.org/navigating-the-future-of-media-trends-ai-impact-and-expert-a-97-7/">navigating the future of media trends ai impact and expert a</a> 
-<a href="https://getolive.org/navigating-the-future-of-virginia-childhood-education-2026-i-97-7/">navigating the future of virginia childhood education 2026 i</a> 
-<a href="https://getolive.org/navigating-the-intersection-of-marketing-seo-growth-for-busi-97-9/">navigating the intersection of marketing seo growth for busi</a> 
-<a href="https://getolive.org/navigating-the-intersection-of-marketing-seo-growth-in-2023-97-9/">navigating the intersection of marketing seo growth in 2023 </a> 
-<a href="https://getolive.org/navigating-the-latest-news-trends-a-comprehensive-guide-to-s/">navigating the latest news trends a comprehensive guide to s</a> 
-<a href="https://getolive.org/navigating-the-modern-news-landscape-ai-trends-and-reliable-97-7/">navigating the modern news landscape ai trends and reliable </a> 
-<a href="https://getolive.org/navigating-the-modern-news-landscape-insights-on-business-fi-97-10/">navigating the modern news landscape insights on business fi</a> 

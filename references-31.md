@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@65c6a2c/tashbazzi.html">tashbazzi</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@66b6e15/the-case-for-boring-software.html">the case for boring software</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@66d3825/methods.html">methods</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@66fb8ee/privacy-policy.html">privacy policy</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@6749b9e/micannamarketing.html">micannamarketing</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@677d343/what-moves-bitcoin-price-framework.html">what moves bitcoin price framework</a> 
@@ -799,6 +802,3 @@
 <a href="https://esm.sh/ls-cara-daftar-npwp-online-muxjw7zf@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-cara-daftar-npwp-online-muxjwt8d@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-cara-daftar-npwp-online-muxjxb0f@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-cara-daftar-npwp-online-muxjxzz5@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-cara-daftar-npwp-online-muxjyu61@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-carmannews-muyz7nb3@1.0.0/index.html">index</a> 

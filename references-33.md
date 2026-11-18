@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-34.md) · [‹ prev](references-32.md)
 
+<a href="https://ezoterizm.com/decoding-today-s-news-in-depth-analysis-and-expert-opinions/">decoding today s news in depth analysis and expert opinions</a> 
+<a href="https://ezoterizm.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-93-2/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
+<a href="https://ezoterizm.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
 <a href="https://ezoterizm.com/digital-tools-and-online-resources-a-practical-roundup-93-10/">digital tools and online resources a practical roundup 93 10</a> 
 <a href="https://ezoterizm.com/digital-tools-and-online-resources-for-number-games-a-guide-93-10/">digital tools and online resources for number games a guide </a> 
 <a href="https://ezoterizm.com/digital-tools-online-resources-50-resources-worth-bookmarkin-93-10-10/">digital tools online resources 50 resources worth bookmarkin</a> 
@@ -220,10 +223,13 @@
 <a href="https://ezoterizm.com/guides-reviews-how-tos-a-smarter-learning-resource-roundup-93-7/">guides reviews how tos a smarter learning resource roundup 9</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-crypto-news-policy-and-context-93-2/">guides reviews how tos crypto news policy and context 93 2</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-crypto-retirement-and-casinos-93-2/">guides reviews how tos crypto retirement and casinos 93 2</a> 
+<a href="https://ezoterizm.com/guides-reviews-how-tos-crypto-trends-explained-93-2/">guides reviews how tos crypto trends explained 93 2</a> 
+<a href="https://ezoterizm.com/guides-reviews-how-tos-essential-crypto-reading-roundup-93-2/">guides reviews how tos essential crypto reading roundup 93 2</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-for-crypto-and-hedera-readers-93-7/">guides reviews how tos for crypto and hedera readers 93 7</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-for-smarter-crypto-decisions-93-2-2/">guides reviews how tos for smarter crypto decisions 93 2 2</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-for-smarter-crypto-decisions-93-2-3/">guides reviews how tos for smarter crypto decisions 93 2 3</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-for-smarter-crypto-decisions-93-2/">guides reviews how tos for smarter crypto decisions 93 2</a> 
+<a href="https://ezoterizm.com/guides-reviews-how-tos-for-smarter-crypto-market-decisions-93-2/">guides reviews how tos for smarter crypto market decisions 9</a> 
 <a href="https://ezoterizm.com/guides-reviews-how-tos-for-smarter-money-decisions-93-2/">guides reviews how tos for smarter money decisions 93 2</a> 
 <a href="https://ezoterizm.com/how-ai-and-machine-learning-are-transforming-everyday-apps/">how ai and machine learning are transforming everyday apps</a> 
 <a href="https://ezoterizm.com/how-ai-driven-apps-are-transforming-our-daily-digital-experi/">how ai driven apps are transforming our daily digital experi</a> 
@@ -796,9 +802,3 @@
 <a href="https://fabbusinesssolutions.com/how-to-read-the-news-without-getting-overwhelmed-2/">how to read the news without getting overwhelmed 2</a> 
 <a href="https://fabbusinesssolutions.com/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
 <a href="https://fabbusinesssolutions.com/how-to-read-the-news-without-getting-overwhelmed-and-why-it/">how to read the news without getting overwhelmed and why it</a> 
-<a href="https://fabbusinesssolutions.com/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
-<a href="https://fabbusinesssolutions.com/how-to-spot-a-genuinely-useful-blog-article/">how to spot a genuinely useful blog article</a> 
-<a href="https://fabbusinesssolutions.com/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://fabbusinesssolutions.com/how-to-spot-low-quality-content-online-the-basics/">how to spot low quality content online the basics</a> 
-<a href="https://fabbusinesssolutions.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
-<a href="https://fabbusinesssolutions.com/how-to-tell-explainer-journalism-from-opinion-the-basics-2/">how to tell explainer journalism from opinion the basics 2</a> 
