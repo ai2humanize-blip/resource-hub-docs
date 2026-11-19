@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-96-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
+<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic-96-5/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-practic/">demystifying cryptocurrency bitcoin and blockchain a practic</a> 
+<a href="https://forotesis.com/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://forotesis.com/digital-tools-online-resources-50-resources-worth-bookmarkin-96-2/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://forotesis.com/digital-tools-online-resources-a-comprehensive-roundup-for-m-96-7/">digital tools online resources a comprehensive roundup for m</a> 
+<a href="https://forotesis.com/digital-tools-online-resources-for-smarter-safer-browsing-96-7/">digital tools online resources for smarter safer browsing 96</a> 
+<a href="https://forotesis.com/digital-tools-online-resources-navigating-the-modern-news-la-96-7/">digital tools online resources navigating the modern news la</a> 
+<a href="https://forotesis.com/discover-essential-digital-tools-online-resources-for-every-96-2/">discover essential digital tools online resources for every </a> 
 <a href="https://forotesis.com/discover-the-art-of-mindful-eating-transform-your-relationsh/">discover the art of mindful eating transform your relationsh</a> 
 <a href="https://forotesis.com/discover-the-best-browser-games-digital-tools-for-endless-en-96-2/">discover the best browser games digital tools for endless en</a> 
 <a href="https://forotesis.com/discover-the-best-digital-tools-online-resources-for-success-96-2/">discover the best digital tools online resources for success</a> 
@@ -54,8 +63,10 @@
 <a href="https://forotesis.com/guides-reviews-how-tos-a-practical-digital-decision-guide-96-4/">guides reviews how tos a practical digital decision guide 96</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-practical-map-of-the-useful-web-96-4/">guides reviews how tos a practical map of the useful web 96 </a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-practical-reader-s-map-of-the-web-96-4/">guides reviews how tos a practical reader s map of the web 9</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-a-practical-resource-roundup-96-4/">guides reviews how tos a practical resource roundup 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-reader-s-map-of-the-useful-web-96-4/">guides reviews how tos a reader s map of the useful web 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-roundup-for-smarter-decisions-96-4/">guides reviews how tos a roundup for smarter decisions 96 4</a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-a-smarter-learning-roundup-96-4/">guides reviews how tos a smarter learning roundup 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-a-smarter-tech-decision-roundup-96-4/">guides reviews how tos a smarter tech decision roundup 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-clear-answers-for-everyday-life-96-4/">guides reviews how tos clear answers for everyday life 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-for-finding-better-web-resources-96-4/">guides reviews how tos for finding better web resources 96 4</a> 
@@ -66,6 +77,7 @@
 <a href="https://forotesis.com/guides-reviews-how-tos-for-smarter-everyday-decisions-96-4/">guides reviews how tos for smarter everyday decisions 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-for-smarter-safer-decisions-96-4/">guides reviews how tos for smarter safer decisions 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-smart-answers-for-curious-readers-96-4/">guides reviews how tos smart answers for curious readers 96 </a> 
+<a href="https://forotesis.com/guides-reviews-how-tos-smart-lottery-resource-roundup-96-4/">guides reviews how tos smart lottery resource roundup 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-smarter-consumer-tech-choices-96-4/">guides reviews how tos smarter consumer tech choices 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-smarter-ways-to-learn-and-choose-96-4/">guides reviews how tos smarter ways to learn and choose 96 4</a> 
 <a href="https://forotesis.com/guides-reviews-how-tos-the-essential-reader-s-roundup-96-9/">guides reviews how tos the essential reader s roundup 96 9</a> 
@@ -560,7 +572,9 @@
 <a href="https://getolive.org/business-finance-productivity-a-practical-beginner-roundup-97-5/">business finance productivity a practical beginner roundup 9</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-browser-guide-97-5/">business finance productivity a practical browser guide 97 5</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-decision-guide-97-5/">business finance productivity a practical decision guide 97 </a> 
+<a href="https://getolive.org/business-finance-productivity-a-practical-growth-guide-97-5/">business finance productivity a practical growth guide 97 5</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-nigerian-guide-97-5/">business finance productivity a practical nigerian guide 97 </a> 
+<a href="https://getolive.org/business-finance-productivity-a-practical-reader-s-guide-97-5/">business finance productivity a practical reader s guide 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-reader-s-web-guide-97-5/">business finance productivity a practical reader s web guide</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-roundup-97-10/">business finance productivity a practical roundup 97 10</a> 
 <a href="https://getolive.org/business-finance-productivity-a-practical-roundup-97-5-2/">business finance productivity a practical roundup 97 5 2</a> 
@@ -575,6 +589,7 @@
 <a href="https://getolive.org/business-finance-productivity-a-smarter-decision-roundup-97-10/">business finance productivity a smarter decision roundup 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-a-useful-ideas-roundup-97-10/">business finance productivity a useful ideas roundup 97 10</a> 
 <a href="https://getolive.org/business-finance-productivity-budget-travel-and-flight-guide-97-5/">business finance productivity budget travel and flight guide</a> 
+<a href="https://getolive.org/business-finance-productivity-tools-seo-and-faqs-97-5/">business finance productivity tools seo and faqs 97 5</a> 
 <a href="https://getolive.org/business-finance-productivity-useful-online-tools-guides-97-5/">business finance productivity useful online tools guides 97 </a> 
 <a href="https://getolive.org/business-finance-productivity-your-practical-web-toolkit-97-5/">business finance productivity your practical web toolkit 97 </a> 
 <a href="https://getolive.org/choosing-the-right-online-learning-platform-a-practical-guid/">choosing the right online learning platform a practical guid</a> 
@@ -787,18 +802,3 @@
 <a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-16/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-17/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-18/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-19/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-2/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-20/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-21/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-22/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-23/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-24/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-25/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-3/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-4/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-5/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-6/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-7/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-8/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://getolive.org/mastering-digital-tools-online-resources-a-comprehensive-gui-97-6-9/">mastering digital tools online resources a comprehensive gui</a> 
