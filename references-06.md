@@ -2,6 +2,10 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
+<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
+<a href="https://alcobar85.xyz/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
+<a href="https://alcobar85.xyz/why-niche-blogs-still-matter-and-why-it-matters-2/">why niche blogs still matter and why it matters 2</a> 
 <a href="https://alcobar85.xyz/why-niche-blogs-still-matter-and-why-it-matters/">why niche blogs still matter and why it matters</a> 
 <a href="https://alcobar85.xyz/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
 <a href="https://alcobar85.xyz/why-niche-blogs-still-matter.htm">why niche blogs still matter</a> 
@@ -798,7 +802,3 @@
 <a href="https://algiamedical.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
 <a href="https://algiamedical.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
 <a href="https://algiamedical.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
-<a href="https://algiamedical.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
-<a href="https://algiamedical.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
-<a href="https://algiamedical.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
-<a href="https://algiamedical.com/understanding-cplemaire-a-practical-guide/">understanding cplemaire a practical guide</a> 

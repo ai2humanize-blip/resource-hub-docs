@@ -2,6 +2,29 @@
 
 [index](README.md) · [next ›](references-47.md) · [‹ prev](references-45.md)
 
+<a href="https://ipfs.filebase.io/ipfs/QmNashaZCJpUjMhu8AJyYEFvzQ454RK5s7KsUiT2H1J6wR">QmNashaZCJpUjMhu8AJyYEFvzQ454RK5s7KsUiT2H1J6wR</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNeQCA5A2YHrcHDbQ9aZEVidhgohFTHFSuNCtEsQKPpBt">QmNeQCA5A2YHrcHDbQ9aZEVidhgohFTHFSuNCtEsQKPpBt</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNi4JNHkU2t52r7Mxv6bA7xEmitzPby8NzonWvueuJvE4">QmNi4JNHkU2t52r7Mxv6bA7xEmitzPby8NzonWvueuJvE4</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT">QmNoccjGSRDW19AddSyf3k4K6YTzwGnqdmG38NWumJkivT</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE">QmNsTyejbDWT5x7BgLUSvLAEb8GrnqjGPhDqyPdtk259tE</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3">QmNxEFnSGvN1aMskEUbWxWgrSioZnq3XXwzMANSEABMne3</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP">QmNzvd9za5TeXkzCFiASjJCMcNpPLnWsaKRbeoHjqTFFJP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP">QmP1Dz7Xho7y7rqLxr3NgptNJUfZ51eG9PiGe7oBgQFJyP</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V">QmP2Bp6G2uU3x5AhyQ7f6aP6nXZfPGwk2GU3JRNcKbEM5V</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY">QmP8seqVAymeLknmAHvwrWXP2geaTRosYW5e42imDmDMiY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B">QmPGnP9UuDPcV1PhEZ54H1kBzYKhGf78SJKRVrdmCeCk8B</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX">QmPTZYCmEHGHyB6JcGAwfzoD5MikLmGag8AZct6jRbRzyX</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPU34QrHYAvu3LugT9ERWah6DrEtMYvhnLwq78BistxFb">QmPU34QrHYAvu3LugT9ERWah6DrEtMYvhnLwq78BistxFb</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPWBnXTubcpkb6HNJ7PHwrMkwUqAxLadtFCGCycgS3DNz">QmPWBnXTubcpkb6HNJ7PHwrMkwUqAxLadtFCGCycgS3DNz</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPhe8jRmXbxFZn1WD8Kk22EdJxkM7k8rMkVQMZjQxYgzm">QmPhe8jRmXbxFZn1WD8Kk22EdJxkM7k8rMkVQMZjQxYgzm</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPiWKjw7fSkDSCSAjfjRcakmNAS45SA1WiX1E9mLL46aY">QmPiWKjw7fSkDSCSAjfjRcakmNAS45SA1WiX1E9mLL46aY</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPom5pKmNMdGWy83px6VBmcCT85XxeBqJXL35sqJbEbQh">QmPom5pKmNMdGWy83px6VBmcCT85XxeBqJXL35sqJbEbQh</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmPsKsmLkivcTsiFUc3dPECD8jxXB5MbXJqxpWG3MkJG2S">QmPsKsmLkivcTsiFUc3dPECD8jxXB5MbXJqxpWG3MkJG2S</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQ1mjRxf89qJ9YpX3qhGeQeDeN4EAjiBr3orPABwXBayC">QmQ1mjRxf89qJ9YpX3qhGeQeDeN4EAjiBr3orPABwXBayC</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQ3hDnBhNqoz5gkVYhQxQaZ6uvpvjzNjkCDXpCtA4uF5o">QmQ3hDnBhNqoz5gkVYhQxQaZ6uvpvjzNjkCDXpCtA4uF5o</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQB3amsXmyxs6SqooL35pXFcUiNCoAQKSxrvXLKbc6GKk">QmQB3amsXmyxs6SqooL35pXFcUiNCoAQKSxrvXLKbc6GKk</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQCj5pxJbY1SSu4QpXneJLFUi2HS8uqYjdq387Z7RWgzF">QmQCj5pxJbY1SSu4QpXneJLFUi2HS8uqYjdq387Z7RWgzF</a> 
+<a href="https://ipfs.filebase.io/ipfs/QmQUbgrAvzE7NZE9vpCYXAfiyfXoFwWk2oinL6eYJdbpYe">QmQUbgrAvzE7NZE9vpCYXAfiyfXoFwWk2oinL6eYJdbpYe</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmQbDhmHiL7vckUS7cTd2vjFyuUQtVC3TpNPBfD7aK3zTx">QmQbDhmHiL7vckUS7cTd2vjFyuUQtVC3TpNPBfD7aK3zTx</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q">QmQnAb1gUd718MzzJMFo8WSN2zHXs1NkfggBh7PuTbSD8q</a> 
 <a href="https://ipfs.filebase.io/ipfs/QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj">QmQzbCHXdks895vV12TNRu2C1SkepmFx6eDiQU7JFsJDKj</a> 
@@ -779,26 +802,3 @@
 <a href="https://jiurui9.com/why-context-matters-when-reading-online-explained-simply/">why context matters when reading online explained simply</a> 
 <a href="https://jiurui9.com/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
 <a href="https://jiurui9.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
-<a href="https://jiurui9.com/why-niche-blogs-still-matter-explained-simply/">why niche blogs still matter explained simply</a> 
-<a href="https://jiurui9.com/why-primary-sources-matter-and-how-to-find-them-and-why-it-m/">why primary sources matter and how to find them and why it m</a> 
-<a href="https://jiurui9.com/why-primary-sources-matter-and-how-to-find-them-the-basics/">why primary sources matter and how to find them the basics</a> 
-<a href="https://jocular-beijinho-4734bf.netlify.app/understanding-the-impact-of-ai-on-modern-news-reporting-tren.html">understanding the impact of ai on modern news reporting tren</a> 
-<a href="https://jocular-kitten-439c7e.netlify.app/breaking-down-the-latest-media-trends-news-explainers-and-in.html">breaking down the latest media trends news explainers and in</a> 
-<a href="https://jocular-mochi-a6bb1f.netlify.app/thecryptoonline.html">thecryptoonline</a> 
-<a href="https://jocular-sorbet-c06007.netlify.app/verify-crypto-claim.html">verify crypto claim</a> 
-<a href="https://jocular-twilight-448119.netlify.app/understanding-today-s-news-landscape-analysis-trends-and-rel.html">understanding today s news landscape analysis trends and rel</a> 
-<a href="https://john-doe-1234-curated-web.static.hf.space/index.html">index</a> 
-<a href="https://jollibee7771.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://jollibee7771.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
-<a href="https://jollibee7771.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
-<a href="https://jollibee7771.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://jollibee7771.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
-<a href="https://jollibee7771.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
-<a href="https://jollibee7771.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
-<a href="https://jollibee7771.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
-<a href="https://jollibee7771.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://jollibee7771.xyz/hello-world/">hello world</a> 
-<a href="https://jollibee7771.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://jollibee7771.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://jollibee7771.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
-<a href="https://jollibee7771.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 

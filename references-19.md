@@ -2,6 +2,17 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cbdstent.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
+<a href="https://cbdstent.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
+<a href="https://cbdstent.com/getting-how-to-organize-the-information-you-find-online-right/">getting how to organize the information you find online righ</a> 
+<a href="https://cbdstent.com/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
+<a href="https://cbdstent.com/getting-practical-tips-for-naming-siblings-right/">getting practical tips for naming siblings right</a> 
+<a href="https://cbdstent.com/getting-the-value-of-slow-careful-reading-right-2/">getting the value of slow careful reading right 2</a> 
+<a href="https://cbdstent.com/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
+<a href="https://cbdstent.com/getting-understanding-digital-literacy-right/">getting understanding digital literacy right</a> 
+<a href="https://cbdstent.com/getting-what-makes-an-explainer-article-genuinely-useful-rig-2/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://cbdstent.com/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://cbdstent.com/getting-what-to-look-for-in-a-good-news-website-right/">getting what to look for in a good news website right</a> 
 <a href="https://cbdstent.com/getting-why-niche-blogs-still-matter-right/">getting why niche blogs still matter right</a> 
 <a href="https://cbdstent.com/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://cbdstent.com/guides-reviews-how-tos-50-resources-worth-bookmarking-85-5-2/">guides reviews how tos 50 resources worth bookmarking 85 5 2</a> 
@@ -520,6 +531,7 @@
 <a href="https://cbdstent.com/web-tech-content-roundup-crypto-xrp-casinos-and-reviews-85-4/">web tech content roundup crypto xrp casinos and reviews 85 4</a> 
 <a href="https://cbdstent.com/web-tech-content-roundup-security-crypto-and-finance-85-4/">web tech content roundup security crypto and finance 85 4</a> 
 <a href="https://cbdstent.com/web-tech-content-sea-breeze-seafood-and-lumora-85-4/">web tech content sea breeze seafood and lumora 85 4</a> 
+<a href="https://cbdstent.com/web-tech-content-sports-stats-and-viewing-essentials-85-4/">web tech content sports stats and viewing essentials 85 4</a> 
 <a href="https://cbdstent.com/web-tech-content-the-essential-brightstartnews-roundup-85-4/">web tech content the essential brightstartnews roundup 85 4</a> 
 <a href="https://cbdstent.com/what-ai-writing-and-image-tools-can-and-cannot-do/">what ai writing and image tools can and cannot do</a> 
 <a href="https://cbdstent.com/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
@@ -790,15 +802,3 @@
 <a href="https://cnlawblog.jpn.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
 <a href="https://cnlawblog.jpn.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
 <a href="https://cnlawblog.jpn.com/how-to-organize-the-information-you-find-online-2/">how to organize the information you find online 2</a> 
-<a href="https://cnlawblog.jpn.com/how-to-organize-the-information-you-find-online/">how to organize the information you find online</a> 
-<a href="https://cnlawblog.jpn.com/how-to-spot-low-quality-content-online-explained-simply/">how to spot low quality content online explained simply</a> 
-<a href="https://cnlawblog.jpn.com/how-to-tell-explainer-journalism-from-opinion-and-why-it-mat/">how to tell explainer journalism from opinion and why it mat</a> 
-<a href="https://cnlawblog.jpn.com/how-to-tell-explainer-journalism-from-opinion-explained-simp-2/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cnlawblog.jpn.com/how-to-tell-explainer-journalism-from-opinion-explained-simp/">how to tell explainer journalism from opinion explained simp</a> 
-<a href="https://cnlawblog.jpn.com/how-to-tell-explainer-journalism-from-opinion-the-basics/">how to tell explainer journalism from opinion the basics</a> 
-<a href="https://cnlawblog.jpn.com/how-to-tell-if-a-website-is-trustworthy/">how to tell if a website is trustworthy</a> 
-<a href="https://cnlawblog.jpn.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide-2/">how to use the web to learn a new skill a practical guide 2</a> 
-<a href="https://cnlawblog.jpn.com/how-to-use-the-web-to-learn-a-new-skill-a-practical-guide/">how to use the web to learn a new skill a practical guide</a> 
-<a href="https://cnlawblog.jpn.com/how-to-use-the-web-to-learn-a-new-skill-explained-simply/">how to use the web to learn a new skill explained simply</a> 
-<a href="https://cnlawblog.jpn.com/how-to-use-the-web-to-learn-a-new-skill-the-basics-2/">how to use the web to learn a new skill the basics 2</a> 
-<a href="https://cnlawblog.jpn.com/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 

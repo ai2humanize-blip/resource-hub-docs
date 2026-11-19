@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-04.md) · [‹ prev](references-02.md)
 
+<a href="https://77jili1.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://77jili1.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://77jili1.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://77jili1.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
@@ -554,6 +555,7 @@
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-1-resources-worth-bookmarking-75-5/">guides reviews how tos 1 resources worth bookmarking 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-50-resources-worth-bookmarking-75-5-2/">guides reviews how tos 50 resources worth bookmarking 75 5 2</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-50-resources-worth-bookmarking-75-5/">guides reviews how tos 50 resources worth bookmarking 75 5</a> 
+<a href="https://agriculture-lawyer.com/guides-reviews-how-tos-a-smarter-roundup-for-readers-75-5/">guides reviews how tos a smarter roundup for readers 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-essential-resources-for-readers-75-5/">guides reviews how tos essential resources for readers 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-for-smarter-online-decisions-75-5/">guides reviews how tos for smarter online decisions 75 5</a> 
 <a href="https://agriculture-lawyer.com/guides-reviews-how-tos-for-tutuapp-and-crypto-card-hub-75-5/">guides reviews how tos for tutuapp and crypto card hub 75 5</a> 
@@ -800,5 +802,3 @@
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-crypto-75-4/">mastering web tech content a comprehensive guide for crypto </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-75-4-2/">mastering web tech content a comprehensive guide for modern </a> 
 <a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-modern-75-4/">mastering web tech content a comprehensive guide for modern </a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-savvy-r-75-4/">mastering web tech content a comprehensive guide for savvy r</a> 
-<a href="https://agriculture-lawyer.com/mastering-web-tech-content-a-comprehensive-guide-for-smart-r-75-4-2/">mastering web tech content a comprehensive guide for smart r</a> 

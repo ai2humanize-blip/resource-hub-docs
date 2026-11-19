@@ -2,6 +2,27 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://forotesis.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-basics-of-staying-safe-while-browsing/">a closer look at the basics of staying safe while browsing</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://forotesis.com/a-closer-look-at-the-difference-between-skimming-and-deep-reading-online/">a closer look at the difference between skimming and deep re</a> 
+<a href="https://forotesis.com/a-closer-look-at-what-makes-an-explainer-article-genuinely-u/">a closer look at what makes an explainer article genuinely u</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-context-matters-when-reading-online-2/">a closer look at why context matters when reading online 2</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
+<a href="https://forotesis.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
+<a href="https://forotesis.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://forotesis.com/a-guide-to-names-that-mean-moon-star-and-sun-explained-simpl/">a guide to names that mean moon star and sun explained simpl</a> 
+<a href="https://forotesis.com/a-practical-guide-to-indonesian-government-documents-ktp-npw/">a practical guide to indonesian government documents ktp npw</a> 
+<a href="https://forotesis.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://forotesis.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://forotesis.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
+<a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://forotesis.com/air-quality-in-pune-what-affects-the-air-you-breathe/">air quality in pune what affects the air you breathe</a> 
+<a href="https://forotesis.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
+<a href="https://forotesis.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
 <a href="https://forotesis.com/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
 <a href="https://forotesis.com/boost-your-business-finance-productivity-with-smart-internet-96-6/">boost your business finance productivity with smart internet</a> 
 <a href="https://forotesis.com/boost-your-online-visibility-a-fresh-approach-to-seo-for-sma/">boost your online visibility a fresh approach to seo for sma</a> 
@@ -781,24 +802,3 @@
 <a href="https://getolive.org/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
 <a href="https://getolive.org/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
 <a href="https://getolive.org/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 
-<a href="https://getolive.org/how-to-find-reliable-how-to-guides-the-basics/">how to find reliable how to guides the basics</a> 
-<a href="https://getolive.org/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://getolive.org/how-to-organize-the-information-you-find-online-a-practical/">how to organize the information you find online a practical</a> 
-<a href="https://getolive.org/how-to-plan-a-memorable-event-a-step-by-step-guide/">how to plan a memorable event a step by step guide</a> 
-<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed-2/">how to read the news without getting overwhelmed 2</a> 
-<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed-3/">how to read the news without getting overwhelmed 3</a> 
-<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed-a-quick-gui/">how to read the news without getting overwhelmed a quick gui</a> 
-<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed-explained-s/">how to read the news without getting overwhelmed explained s</a> 
-<a href="https://getolive.org/how-to-read-the-news-without-getting-overwhelmed/">how to read the news without getting overwhelmed</a> 
-<a href="https://getolive.org/how-to-spot-low-quality-content-online-a-practical-guide/">how to spot low quality content online a practical guide</a> 
-<a href="https://getolive.org/how-to-spot-low-quality-content-online-a-quick-guide/">how to spot low quality content online a quick guide</a> 
-<a href="https://getolive.org/how-to-spot-low-quality-content-online-and-why-it-matters/">how to spot low quality content online and why it matters</a> 
-<a href="https://getolive.org/how-to-tell-explainer-journalism-from-opinion-a-practical-gu/">how to tell explainer journalism from opinion a practical gu</a> 
-<a href="https://getolive.org/how-to-tell-if-a-website-is-trustworthy-a-practical-guide/">how to tell if a website is trustworthy a practical guide</a> 
-<a href="https://getolive.org/how-to-tell-if-a-website-is-trustworthy-a-quick-guide/">how to tell if a website is trustworthy a quick guide</a> 
-<a href="https://getolive.org/how-to-tell-if-a-website-is-trustworthy-the-basics/">how to tell if a website is trustworthy the basics</a> 
-<a href="https://getolive.org/how-to-use-the-web-to-learn-a-new-skill-the-basics/">how to use the web to learn a new skill the basics</a> 
-<a href="https://getolive.org/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
-<a href="https://getolive.org/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
-<a href="https://getolive.org/independent-web-tech-and-content-sites-worth-bookmarking-a-c-97-2/">independent web tech and content sites worth bookmarking a c</a> 
-<a href="https://getolive.org/kerala-lottery-guessing-numbers/">kerala lottery guessing numbers</a> 

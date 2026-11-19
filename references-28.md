@@ -2,6 +2,23 @@
 
 [index](README.md) · [next ›](references-29.md) · [‹ prev](references-27.md)
 
+<a href="https://dev.to/ai2humanizeblip/why-niche-blogs-still-matter-in-the-web-tech-content-landscape-4ecm">why niche blogs still matter in the web tech content landsca</a> 
+<a href="https://dev.to/ai2humanizeblip/why-niche-digital-publications-are-winning-the-modern-newsroom-538j">why niche digital publications are winning the modern newsro</a> 
+<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-3op8">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://dev.to/ai2humanizeblip/why-primary-sources-matter-and-how-to-find-them-a-quick-guide-52g2">why primary sources matter and how to find them a quick guid</a> 
+<a href="https://dinxsh.xyz/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
+<a href="https://dinxsh.xyz/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
+<a href="https://dinxsh.xyz/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
+<a href="https://dinxsh.xyz/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
+<a href="https://dinxsh.xyz/bookmark-worthy-sites-across-topics/">bookmark worthy sites across topics</a> 
+<a href="https://dinxsh.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
+<a href="https://dinxsh.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://dinxsh.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://dinxsh.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
+<a href="https://dinxsh.xyz/hello-world/">hello world</a> 
+<a href="https://dinxsh.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://dinxsh.xyz/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
+<a href="https://dinxsh.xyz/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://dinxsh.xyz/navigating-niche-websites-a-readers-guide/">navigating niche websites a readers guide</a> 
 <a href="https://dinxsh.xyz/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
 <a href="https://dinxsh.xyz/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
@@ -785,20 +802,3 @@
 <a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-10/">mastering marketing seo growth strategies for success 90 1 1</a> 
 <a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-11/">mastering marketing seo growth strategies for success 90 1 1</a> 
 <a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-12/">mastering marketing seo growth strategies for success 90 1 1</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-13/">mastering marketing seo growth strategies for success 90 1 1</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-14/">mastering marketing seo growth strategies for success 90 1 1</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-15/">mastering marketing seo growth strategies for success 90 1 1</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-16/">mastering marketing seo growth strategies for success 90 1 1</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-17/">mastering marketing seo growth strategies for success 90 1 1</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-2/">mastering marketing seo growth strategies for success 90 1 2</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-3/">mastering marketing seo growth strategies for success 90 1 3</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-4/">mastering marketing seo growth strategies for success 90 1 4</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-5/">mastering marketing seo growth strategies for success 90 1 5</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-6/">mastering marketing seo growth strategies for success 90 1 6</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-7/">mastering marketing seo growth strategies for success 90 1 7</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-8/">mastering marketing seo growth strategies for success 90 1 8</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1-9/">mastering marketing seo growth strategies for success 90 1 9</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-90-1/">mastering marketing seo growth strategies for success 90 1</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-in-cry-90-1/">mastering marketing seo growth strategies for success in cry</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-in-the-90-1-2/">mastering marketing seo growth strategies for success in the</a> 
-<a href="https://ecomhuntreviews.com/mastering-marketing-seo-growth-strategies-for-success-in-the-90-1/">mastering marketing seo growth strategies for success in the</a> 
