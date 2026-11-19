@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://financieelveiligouderworden.com/web3-and-blockchain-policy-what-everyday-investors-should-kn/">web3 and blockchain policy what everyday investors should kn</a> 
+<a href="https://financieelveiligouderworden.com/what-a-seed-phrase-is-and-why-it-matters-for-self-custody/">what a seed phrase is and why it matters for self custody</a> 
+<a href="https://financieelveiligouderworden.com/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
+<a href="https://financieelveiligouderworden.com/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://financieelveiligouderworden.com/what-makes-an-explainer-article-genuinely-useful-a-practical/">what makes an explainer article genuinely useful a practical</a> 
+<a href="https://financieelveiligouderworden.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://financieelveiligouderworden.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://financieelveiligouderworden.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://financieelveiligouderworden.com/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://financieelveiligouderworden.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
+<a href="https://financieelveiligouderworden.com/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
+<a href="https://financieelveiligouderworden.com/what-to-know-about-how-to-organize-the-information-you-find/">what to know about how to organize the information you find</a> 
 <a href="https://financieelveiligouderworden.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://financieelveiligouderworden.com/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
 <a href="https://financieelveiligouderworden.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
@@ -245,12 +257,14 @@
 <a href="https://forotesis.com/making-sense-of-the-news-economy-policy-and-everyday-life/">making sense of the news economy policy and everyday life</a> 
 <a href="https://forotesis.com/making-the-most-of-independent-online-publishers/">making the most of independent online publishers</a> 
 <a href="https://forotesis.com/marketing-seo-growth-50-resources-worth-bookmarking-96-10/">marketing seo growth 50 resources worth bookmarking 96 10</a> 
+<a href="https://forotesis.com/marketing-seo-growth-50-resources-worth-bookmarking-96-5/">marketing seo growth 50 resources worth bookmarking 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-bookmark-worthy-reader-s-guide-96-5-2/">marketing seo growth a bookmark worthy reader s guide 96 5 2</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-bookmark-worthy-reader-s-guide-96-5/">marketing seo growth a bookmark worthy reader s guide 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-bookmark-worthy-reader-s-map-96-5/">marketing seo growth a bookmark worthy reader s map 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-bookmark-worthy-web-roundup-96-5/">marketing seo growth a bookmark worthy web roundup 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-card-game-content-playbook-96-5/">marketing seo growth a card game content playbook 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-15-site-roundup-96-10/">marketing seo growth a practical 15 site roundup 96 10</a> 
+<a href="https://forotesis.com/marketing-seo-growth-a-practical-content-roundup-96-5/">marketing seo growth a practical content roundup 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-guide-to-style-and-links-96-5/">marketing seo growth a practical guide to style and links 96</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-map-of-the-useful-web-96-5-2/">marketing seo growth a practical map of the useful web 96 5 </a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-map-of-the-useful-web-96-5/">marketing seo growth a practical map of the useful web 96 5</a> 
@@ -266,6 +280,7 @@
 <a href="https://forotesis.com/marketing-seo-growth-essential-strategies-for-business-succe-96-5/">marketing seo growth essential strategies for business succe</a> 
 <a href="https://forotesis.com/marketing-seo-growth-tracking-new-movies-and-shows-96-5/">marketing seo growth tracking new movies and shows 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-trusted-zakat-and-baby-name-guides-96-5/">marketing seo growth trusted zakat and baby name guides 96 5</a> 
+<a href="https://forotesis.com/marketing-seo-growth-turning-useful-topics-into-results-96-5/">marketing seo growth turning useful topics into results 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-urdu-resources-and-domain-signals-96-5/">marketing seo growth urdu resources and domain signals 96 5</a> 
 <a href="https://forotesis.com/master-business-finance-productivity-a-comprehensive-guide-96-6/">master business finance productivity a comprehensive guide 9</a> 
 <a href="https://forotesis.com/master-business-finance-productivity-essential-online-skills-96-6/">master business finance productivity essential online skills</a> 
@@ -707,6 +722,7 @@
 <a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6-4/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6-5/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6-6/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6-7/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://getolive.org/digital-tools-online-resources-a-practical-ai-guide-97-6/">digital tools online resources a practical ai guide 97 6</a> 
 <a href="https://getolive.org/digital-tools-online-resources-a-practical-roundup-97-6/">digital tools online resources a practical roundup 97 6</a> 
@@ -720,6 +736,8 @@
 <a href="https://getolive.org/digital-tools-online-resources-for-smarter-online-learning-97-6/">digital tools online resources for smarter online learning 9</a> 
 <a href="https://getolive.org/digital-tools-online-resources-for-smarter-safer-browsing-97-6/">digital tools online resources for smarter safer browsing 97</a> 
 <a href="https://getolive.org/digital-tools-online-resources-for-style-fashion-and-seo-97-6/">digital tools online resources for style fashion and seo 97 </a> 
+<a href="https://getolive.org/digital-tools-online-resources-for-tracking-new-movies-shows-97-6/">digital tools online resources for tracking new movies shows</a> 
+<a href="https://getolive.org/digital-tools-online-resources-for-zakat-and-baby-names-97-6/">digital tools online resources for zakat and baby names 97 6</a> 
 <a href="https://getolive.org/digital-tools-online-resources-the-practical-crypto-card-gui-97-6/">digital tools online resources the practical crypto card gui</a> 
 <a href="https://getolive.org/discover-the-best-digital-tools-online-resources-for-every-n-97-6/">discover the best digital tools online resources for every n</a> 
 <a href="https://getolive.org/discover-the-best-free-fonts-and-online-resources-for-your-w-97-6/">discover the best free fonts and online resources for your w</a> 
@@ -784,21 +802,3 @@
 <a href="https://getolive.org/exploring-web-tech-content-and-online-casino-news-a-comprehe-97-7/">exploring web tech content and online casino news a comprehe</a> 
 <a href="https://getolive.org/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://getolive.org/flight-deal-hunting-timing-tools-and-traps-to-avoid/">flight deal hunting timing tools and traps to avoid</a> 
-<a href="https://getolive.org/garbage-disposal-troubleshooting-the-basics-every-homeowner/">garbage disposal troubleshooting the basics every homeowner</a> 
-<a href="https://getolive.org/gender-neutral-baby-names-explained-explained-simply/">gender neutral baby names explained explained simply</a> 
-<a href="https://getolive.org/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
-<a href="https://getolive.org/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
-<a href="https://getolive.org/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
-<a href="https://getolive.org/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
-<a href="https://getolive.org/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
-<a href="https://getolive.org/getting-how-to-read-the-news-without-getting-overwhelmed-rig/">getting how to read the news without getting overwhelmed rig</a> 
-<a href="https://getolive.org/getting-how-to-spot-low-quality-content-online-right/">getting how to spot low quality content online right</a> 
-<a href="https://getolive.org/getting-how-to-tell-explainer-journalism-from-opinion-right/">getting how to tell explainer journalism from opinion right</a> 
-<a href="https://getolive.org/getting-making-sense-of-complex-topics-online-right-2/">getting making sense of complex topics online right 2</a> 
-<a href="https://getolive.org/getting-making-sense-of-complex-topics-online-right/">getting making sense of complex topics online right</a> 
-<a href="https://getolive.org/getting-the-value-of-slow-careful-reading-right/">getting the value of slow careful reading right</a> 
-<a href="https://getolive.org/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
-<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-2/">guides reviews how tos 50 resources worth bookmarking 97 3 2</a> 
-<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3-3/">guides reviews how tos 50 resources worth bookmarking 97 3 3</a> 
-<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-3/">guides reviews how tos 50 resources worth bookmarking 97 3</a> 
-<a href="https://getolive.org/guides-reviews-how-tos-50-resources-worth-bookmarking-97-8/">guides reviews how tos 50 resources worth bookmarking 97 8</a> 

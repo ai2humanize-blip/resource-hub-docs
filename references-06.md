@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-the-basics-of-staying-safe-while-browsing.htm">what to know about the basics of staying safe while browsing</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/top-digital-tools-online-resources-for-boosting-productivity-77-6/">top digital tools online resources for boosting productivity</a> 
 <a href="https://algiamedical.com/top-digital-tools-online-resources-for-job-seekers-and-stude-77-6/">top digital tools online resources for job seekers and stude</a> 
 <a href="https://algiamedical.com/top-digital-tools-online-resources-for-mastering-personal-fi-77-6/">top digital tools online resources for mastering personal fi</a> 
-<a href="https://algiamedical.com/top-digital-tools-online-resources-to-boost-your-productivit-77-6/">top digital tools online resources to boost your productivit</a> 
-<a href="https://algiamedical.com/transform-your-life-with-expert-insights-on-business-ai-and-77-10/">transform your life with expert insights on business ai and </a> 
-<a href="https://algiamedical.com/transform-your-life-with-insights-into-web-tech-and-content-77-7/">transform your life with insights into web tech and content </a> 

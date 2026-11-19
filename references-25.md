@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://cybinxo.com/what-to-know-about-the-value-of-slow-careful-reading/">what to know about the value of slow careful reading</a> 
+<a href="https://cybinxo.com/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
+<a href="https://cybinxo.com/what-to-know-about-understanding-how-search-engines-rank-pag/">what to know about understanding how search engines rank pag</a> 
 <a href="https://cybinxo.com/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://cybinxo.com/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
 <a href="https://cybinxo.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-researching-smarter-88-6/">web tech content a practical guide to researching smarter 88</a> 
 <a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-smarter-reading-88-6-2/">web tech content a practical guide to smarter reading 88 6 2</a> 
 <a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-smarter-reading-88-6/">web tech content a practical guide to smarter reading 88 6</a> 
-<a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-smarter-research-88-6/">web tech content a practical guide to smarter research 88 6</a> 
-<a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-tech-and-media-88-6/">web tech content a practical guide to tech and media 88 6</a> 
-<a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-the-crypto-card-hub-88-6/">web tech content a practical guide to the crypto card hub 88</a> 

@@ -440,9 +440,12 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-50-resources-worth-bookmarking-43-1.html">web tech content 50 resources worth bookmarking 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-digital-resource-roundup-43-1.html">web tech content a practical digital resource roundup 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-for-smart-readers-43-1.html">web tech content a practical guide for smart readers 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-apps-and-tech-43-1.html">web tech content a practical guide to apps and tech 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-reading-43-1.html">web tech content a practical guide to better online reading </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-resource-43-1.html">web tech content a practical guide to better online resource</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-research-42-2.html">web tech content a practical guide to better research 42 2</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-carmannews-43-1.html">web tech content a practical guide to carmannews 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-fonts-and-licensing-43-1.html">web tech content a practical guide to fonts and licensing 43</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-learning-online-43-1.html">web tech content a practical guide to learning online 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-online-information-43-1.html">web tech content a practical guide to online information 43 </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-online-learning-43-1.html">web tech content a practical guide to online learning 43 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-the-basics-of-staying-safe-while-browsing.htm">what to know about the basics of staying safe while browsing</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
