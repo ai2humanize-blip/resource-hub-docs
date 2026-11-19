@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
+<a href="https://algiamedical.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
+<a href="https://algiamedical.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 
 <a href="https://algiamedical.com/understanding-artpromptsgenerator-a-practical-guide/">understanding artpromptsgenerator a practical guide</a> 
 <a href="https://algiamedical.com/understanding-camocryptcom-a-practical-guide/">understanding camocryptcom a practical guide</a> 
 <a href="https://algiamedical.com/understanding-carmannews-a-practical-guide/">understanding carmannews a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-19/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-2/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-20/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-21/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-22/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://app.zentrack.net/mastering-digital-tools-online-resources-a-comprehensive-gui-25-3-23/">mastering digital tools online resources a comprehensive gui</a> 

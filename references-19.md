@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cbdstent.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
+<a href="https://cbdstent.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
+<a href="https://cbdstent.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
 <a href="https://cbdstent.com/getting-how-to-find-reliable-how-to-guides-right/">getting how to find reliable how to guides right</a> 
 <a href="https://cbdstent.com/getting-how-to-get-the-most-out-of-online-guides-right/">getting how to get the most out of online guides right</a> 
 <a href="https://cbdstent.com/getting-how-to-organize-the-information-you-find-online-right/">getting how to organize the information you find online righ</a> 
@@ -799,6 +802,3 @@
 <a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://cnlawblog.jpn.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
-<a href="https://cnlawblog.jpn.com/how-to-find-trustworthy-websites-and-tools-online/">how to find trustworthy websites and tools online</a> 
-<a href="https://cnlawblog.jpn.com/how-to-get-the-most-out-of-online-guides/">how to get the most out of online guides</a> 
-<a href="https://cnlawblog.jpn.com/how-to-organize-the-information-you-find-online-2/">how to organize the information you find online 2</a> 

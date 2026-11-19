@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/why-a-toilet-keeps-running-and-the-simple-parts-behind-it.htm">why a toilet keeps running and the simple parts behind it</a> 
+<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
+<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-and-why-it-matters-2.htm">why context matters when reading online and why it matters 2</a> 
 <a href="https://alcobar85.xyz/why-context-matters-when-reading-online-and-why-it-matters/">why context matters when reading online and why it matters</a> 
 <a href="https://alcobar85.xyz/why-context-matters-when-reading-online-the-basics/">why context matters when reading online the basics</a> 
 <a href="https://alcobar85.xyz/why-niche-blogs-still-matter-a-practical-guide/">why niche blogs still matter a practical guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/transforming-your-digital-life-top-guides-reviews-and-how-to-77-8/">transforming your digital life top guides reviews and how to</a> 
 <a href="https://algiamedical.com/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
 <a href="https://algiamedical.com/ultimate-guides-reviews-how-tos-your-go-to-resource-for-mast-77-8/">ultimate guides reviews how tos your go to resource for mast</a> 
-<a href="https://algiamedical.com/under-the-radar-web-resources-worth-bookmarking/">under the radar web resources worth bookmarking</a> 
-<a href="https://algiamedical.com/understanding-666game-a-practical-guide/">understanding 666game a practical guide</a> 
-<a href="https://algiamedical.com/understanding-aavotcom-a-practical-guide/">understanding aavotcom a practical guide</a> 

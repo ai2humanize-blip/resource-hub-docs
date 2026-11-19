@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smart-navigatio-86-7/">essential digital tools online resources for smart navigatio</a> 
+<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smarter-reading-86-7/">essential digital tools online resources for smarter reading</a> 
+<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smarter-researc-86-7-2/">essential digital tools online resources for smarter researc</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-smarter-researc-86-7/">essential digital tools online resources for smarter researc</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-virginia-childh-86-7/">essential digital tools online resources for virginia childh</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-to-safeguard-agains-86-7/">essential digital tools online resources to safeguard agains</a> 
@@ -799,6 +802,3 @@
 <a href="https://croginalcats.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
 <a href="https://croginalcats.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
 <a href="https://croginalcats.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
-<a href="https://croginalcats.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
-<a href="https://croginalcats.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
-<a href="https://croginalcats.xyz/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 

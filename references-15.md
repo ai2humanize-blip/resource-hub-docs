@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-7/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-8/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-9/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-7/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-content-a-comprehensi-82-2-2/">exploring the intersection of web tech content a comprehensi</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://casacours.uk.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
 <a href="https://casacours.uk.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 
-<a href="https://casacours.uk.com/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
-<a href="https://casacours.uk.com/what-to-know-about-why-context-matters-when-reading-online-2/">what to know about why context matters when reading online 2</a> 
-<a href="https://casacours.uk.com/what-to-know-about-why-context-matters-when-reading-online/">what to know about why context matters when reading online</a> 

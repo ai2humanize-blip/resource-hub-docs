@@ -438,6 +438,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/voozon.html">voozon</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-15-statscrop-sites-worth-exploring-43-1.html">web tech content 15 statscrop sites worth exploring 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-50-resources-worth-bookmarking-43-1.html">web tech content 50 resources worth bookmarking 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-digital-resource-roundup-43-1.html">web tech content a practical digital resource roundup 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-for-smart-readers-43-1.html">web tech content a practical guide for smart readers 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-reading-43-1.html">web tech content a practical guide to better online reading </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-resource-43-1.html">web tech content a practical guide to better online resource</a> 
@@ -455,6 +456,8 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-information-43-1.html">web tech content a smarter guide to online information 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-research-43-1.html">web tech content a smarter guide to online research 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-safer-guide-to-the-web-43-1.html">web tech content a smarter safer guide to the web 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-ai-gambling-and-crypto-essentials-43-1.html">web tech content ai gambling and crypto essentials 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-essential-online-resources-and-ad-buying-43-1.html">web tech content essential online resources and ad buying 43</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-14-sites-grouped-by-niche-43-1.html">web tech content roundup 14 sites grouped by niche 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-to-explore-43-1.html">web tech content roundup 15 useful sites to explore 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-worth-exploring-43-1.html">web tech content roundup 15 useful sites worth exploring 43 </a> 
@@ -799,6 +802,3 @@
 <a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
 <a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
 <a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
-<a href="https://alcobar85.xyz/why-a-toilet-keeps-running-and-the-simple-parts-behind-it.htm">why a toilet keeps running and the simple parts behind it</a> 
-<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
-<a href="https://alcobar85.xyz/why-context-matters-when-reading-online-and-why-it-matters-2.htm">why context matters when reading online and why it matters 2</a> 

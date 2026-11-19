@@ -2,6 +2,18 @@
 
 [index](README.md) · [next ›](references-39.md) · [‹ prev](references-37.md)
 
+<a href="https://fluffy-nasturtium-7550ff.netlify.app/simple-habits-of-a-smart-internet-reader-the-basics.html">simple habits of a smart internet reader the basics</a> 
+<a href="https://fluffy-shortbread-7621f0.netlify.app/navigating-the-future-cryptocurrency-bitcoin-and-blockchain-.html">navigating the future cryptocurrency bitcoin and blockchain</a> 
+<a href="https://fluffy-squirrel-cd78d3.netlify.app/marketcapitalize-com.html">marketcapitalize com</a> 
+<a href="https://forotesis.com/10-organic-living-tips-for-a-healthier-more-balanced-life/">10 organic living tips for a healthier more balanced life</a> 
+<a href="https://forotesis.com/a-beginner-s-guide-to-popular-card-games/">a beginner s guide to popular card games</a> 
+<a href="https://forotesis.com/a-closer-look-at-a-simple-framework-for-researching-any-topi/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://forotesis.com/a-closer-look-at-a-simple-framework-for-researching-any-topic-online/">a closer look at a simple framework for researching any topi</a> 
+<a href="https://forotesis.com/a-closer-look-at-building-a-healthy-daily-reading-habit/">a closer look at building a healthy daily reading habit</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-compare-sources-on-the-same-story/">a closer look at how to compare sources on the same story</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-evaluate-online-reviews-and-recommen/">a closer look at how to evaluate online reviews and recommen</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-fact-check-something-in-five-minutes/">a closer look at how to fact check something in five minutes</a> 
+<a href="https://forotesis.com/a-closer-look-at-how-to-find-balanced-coverage-of-a-topic/">a closer look at how to find balanced coverage of a topic</a> 
 <a href="https://forotesis.com/a-closer-look-at-how-to-get-the-most-out-of-online-guides/">a closer look at how to get the most out of online guides</a> 
 <a href="https://forotesis.com/a-closer-look-at-how-to-spot-low-quality-content-online/">a closer look at how to spot low quality content online</a> 
 <a href="https://forotesis.com/a-closer-look-at-how-to-tell-explainer-journalism-from-opini/">a closer look at how to tell explainer journalism from opini</a> 
@@ -20,6 +32,7 @@
 <a href="https://forotesis.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
 <a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-a-practical-guide/">a simple framework for researching any topic online a practi</a> 
 <a href="https://forotesis.com/a-simple-framework-for-researching-any-topic-online-the-basi/">a simple framework for researching any topic online the basi</a> 
+<a href="https://forotesis.com/ai-tools-for-marketing-seo-growth-a-practical-roundup-96-5/">ai tools for marketing seo growth a practical roundup 96 5</a> 
 <a href="https://forotesis.com/air-quality-in-pune-what-affects-the-air-you-breathe/">air quality in pune what affects the air you breathe</a> 
 <a href="https://forotesis.com/arcenturf-co-resource-1/">arcenturf co resource 1</a> 
 <a href="https://forotesis.com/bettingagescom-net-resource-1/">bettingagescom net resource 1</a> 
@@ -40,6 +53,7 @@
 <a href="https://forotesis.com/common-crypto-scams-and-how-to-avoid-them/">common crypto scams and how to avoid them</a> 
 <a href="https://forotesis.com/comprehensive-guides-reviews-and-how-tos-for-every-need-96-9/">comprehensive guides reviews and how tos for every need 96 9</a> 
 <a href="https://forotesis.com/cplemaire-quoi-sert-un-annuaire-du-turf/">cplemaire quoi sert un annuaire du turf</a> 
+<a href="https://forotesis.com/crypto-card-marketing-seo-growth-a-practical-roadmap-96-5/">crypto card marketing seo growth a practical roadmap 96 5</a> 
 <a href="https://forotesis.com/cyberkannadig/">cyberkannadig</a> 
 <a href="https://forotesis.com/decentralized-autonomous-organizations-daos-explained-simply/">decentralized autonomous organizations daos explained simply</a> 
 <a href="https://forotesis.com/demystifying-cryptocurrency-bitcoin-and-blockchain-a-compreh-96-5/">demystifying cryptocurrency bitcoin and blockchain a compreh</a> 
@@ -212,6 +226,7 @@
 <a href="https://forotesis.com/marketing-seo-growth-a-bookmark-worthy-reader-s-map-96-5/">marketing seo growth a bookmark worthy reader s map 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-bookmark-worthy-web-roundup-96-5/">marketing seo growth a bookmark worthy web roundup 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-15-site-roundup-96-10/">marketing seo growth a practical 15 site roundup 96 10</a> 
+<a href="https://forotesis.com/marketing-seo-growth-a-practical-guide-to-style-and-links-96-5/">marketing seo growth a practical guide to style and links 96</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-map-of-the-useful-web-96-5-2/">marketing seo growth a practical map of the useful web 96 5 </a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-map-of-the-useful-web-96-5/">marketing seo growth a practical map of the useful web 96 5</a> 
 <a href="https://forotesis.com/marketing-seo-growth-a-practical-map-of-useful-web-resources-96-5/">marketing seo growth a practical map of useful web resources</a> 
@@ -663,8 +678,11 @@
 <a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6-5/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6-6/">digital tools online resources 50 resources worth bookmarkin</a> 
 <a href="https://getolive.org/digital-tools-online-resources-50-resources-worth-bookmarkin-97-6/">digital tools online resources 50 resources worth bookmarkin</a> 
+<a href="https://getolive.org/digital-tools-online-resources-a-practical-roundup-97-6/">digital tools online resources a practical roundup 97 6</a> 
 <a href="https://getolive.org/digital-tools-online-resources-a-practical-roundup-guide-97-6/">digital tools online resources a practical roundup guide 97 </a> 
 <a href="https://getolive.org/digital-tools-online-resources-a-reader-s-map-of-the-web-97-6/">digital tools online resources a reader s map of the web 97 </a> 
+<a href="https://getolive.org/digital-tools-online-resources-for-smarter-air-quality-97-6/">digital tools online resources for smarter air quality 97 6</a> 
+<a href="https://getolive.org/digital-tools-online-resources-for-smarter-crypto-research-97-6/">digital tools online resources for smarter crypto research 9</a> 
 <a href="https://getolive.org/digital-tools-online-resources-for-smarter-online-learning-97-6/">digital tools online resources for smarter online learning 9</a> 
 <a href="https://getolive.org/digital-tools-online-resources-for-smarter-safer-browsing-97-6/">digital tools online resources for smarter safer browsing 97</a> 
 <a href="https://getolive.org/discover-the-best-digital-tools-online-resources-for-every-n-97-6/">discover the best digital tools online resources for every n</a> 
@@ -784,21 +802,3 @@
 <a href="https://getolive.org/how-to-create-a-sustainable-garden-a-step-by-step-guide/">how to create a sustainable garden a step by step guide</a> 
 <a href="https://getolive.org/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://getolive.org/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
-<a href="https://getolive.org/how-to-evaluate-online-reviews-and-recommendations-and-why-i-2/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://getolive.org/how-to-evaluate-online-reviews-and-recommendations-and-why-i-3/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://getolive.org/how-to-evaluate-online-reviews-and-recommendations-and-why-i/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://getolive.org/how-to-evaluate-online-reviews-and-recommendations-and-why-it-matters/">how to evaluate online reviews and recommendations and why i</a> 
-<a href="https://getolive.org/how-to-evaluate-online-reviews-and-recommendations-explained/">how to evaluate online reviews and recommendations explained</a> 
-<a href="https://getolive.org/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
-<a href="https://getolive.org/how-to-fact-check-something-in-five-minutes-a-practical-guid/">how to fact check something in five minutes a practical guid</a> 
-<a href="https://getolive.org/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
-<a href="https://getolive.org/how-to-fact-check-something-in-five-minutes-and-why-it-matte-2/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://getolive.org/how-to-fact-check-something-in-five-minutes-and-why-it-matte-3/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://getolive.org/how-to-fact-check-something-in-five-minutes-and-why-it-matte/">how to fact check something in five minutes and why it matte</a> 
-<a href="https://getolive.org/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://getolive.org/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://getolive.org/how-to-find-balanced-coverage-of-a-topic-a-practical-guide/">how to find balanced coverage of a topic a practical guide</a> 
-<a href="https://getolive.org/how-to-find-balanced-coverage-of-a-topic-a-quick-guide/">how to find balanced coverage of a topic a quick guide</a> 
-<a href="https://getolive.org/how-to-find-balanced-coverage-of-a-topic/">how to find balanced coverage of a topic</a> 
-<a href="https://getolive.org/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
-<a href="https://getolive.org/how-to-find-reliable-how-to-guides-a-practical-guide/">how to find reliable how to guides a practical guide</a> 

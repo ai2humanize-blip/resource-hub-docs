@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://croginalcats.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
+<a href="https://croginalcats.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
+<a href="https://croginalcats.xyz/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
 <a href="https://croginalcats.xyz/how-to-build-a-personal-reading-list-and-why-it-matters/">how to build a personal reading list and why it matters</a> 
 <a href="https://croginalcats.xyz/how-to-evaluate-online-reviews-and-recommendations/">how to evaluate online reviews and recommendations</a> 
 <a href="https://croginalcats.xyz/how-to-find-reliable-how-to-guides-explained-simply/">how to find reliable how to guides explained simply</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-4/">exploring the synergy of web tech and content in the digital</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3/">exploring the synergy of web tech and content in the digital</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-modern-26-3/">exploring the synergy of web tech and content in the modern </a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-today-s-dig-26-3/">exploring the synergy of web tech and content in today s dig</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-10/">exploring the synergy of web tech content a comprehensive ro</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-content-a-comprehensive-ro-26-3-2/">exploring the synergy of web tech content a comprehensive ro</a> 
