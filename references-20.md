@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cnlawblog.jpn.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
+<a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-a-practical-guide/">how to fact check something in five minutes a practical guid</a> 
+<a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
 <a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
 <a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
 <a href="https://cnlawblog.jpn.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-living-86-7/">essential digital tools online resources for modern living 8</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-producti-86-2/">essential digital tools online resources for modern producti</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-professi-86-2-2/">essential digital tools online resources for modern professi</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-professi-86-2/">essential digital tools online resources for modern professi</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-readers-86-7/">essential digital tools online resources for modern readers </a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-news-and-respon-86-7/">essential digital tools online resources for news and respon</a> 
