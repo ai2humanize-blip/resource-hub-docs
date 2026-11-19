@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
+<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
+<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 
 <a href="https://alcobar85.xyz/why-a-toilet-keeps-running-and-the-simple-parts-behind-it.htm">why a toilet keeps running and the simple parts behind it</a> 
 <a href="https://alcobar85.xyz/why-context-matters-when-reading-online-a-quick-guide/">why context matters when reading online a quick guide</a> 
 <a href="https://alcobar85.xyz/why-context-matters-when-reading-online-and-why-it-matters-2.htm">why context matters when reading online and why it matters 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/transforming-daily-life-how-ai-driven-apps-are-maximizing-di-77-10/">transforming daily life how ai driven apps are maximizing di</a> 
 <a href="https://algiamedical.com/transforming-daily-life-the-impact-of-ai-driven-apps-on-mode-77-9/">transforming daily life the impact of ai driven apps on mode</a> 
 <a href="https://algiamedical.com/transforming-your-digital-life-the-power-of-ai-powered-apps-77-9/">transforming your digital life the power of ai powered apps </a> 
-<a href="https://algiamedical.com/transforming-your-digital-life-top-guides-reviews-and-how-to-77-8/">transforming your digital life top guides reviews and how to</a> 
-<a href="https://algiamedical.com/ttweakflight-cc-resource-1/">ttweakflight cc resource 1</a> 
-<a href="https://algiamedical.com/ultimate-guides-reviews-how-tos-your-go-to-resource-for-mast-77-8/">ultimate guides reviews how tos your go to resource for mast</a> 

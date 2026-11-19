@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-20.md) · [‹ prev](references-18.md)
 
+<a href="https://cbdstent.com/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
+<a href="https://cbdstent.com/getting-a-simple-framework-for-researching-any-topic-online/">getting a simple framework for researching any topic online</a> 
+<a href="https://cbdstent.com/getting-building-a-healthy-daily-reading-habit-right-2/">getting building a healthy daily reading habit right 2</a> 
 <a href="https://cbdstent.com/getting-building-a-healthy-daily-reading-habit-right/">getting building a healthy daily reading habit right</a> 
 <a href="https://cbdstent.com/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
 <a href="https://cbdstent.com/getting-how-to-fact-check-something-in-five-minutes-right/">getting how to fact check something in five minutes right</a> 
@@ -799,6 +802,3 @@
 <a href="https://cnlawblog.jpn.com/how-to-evaluate-online-reviews-and-recommendations-the-basic/">how to evaluate online reviews and recommendations the basic</a> 
 <a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-a-practical-guide/">how to fact check something in five minutes a practical guid</a> 
 <a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-a-quick-guide/">how to fact check something in five minutes a quick guide</a> 
-<a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-explained-simply/">how to fact check something in five minutes explained simply</a> 
-<a href="https://cnlawblog.jpn.com/how-to-fact-check-something-in-five-minutes-the-basics/">how to fact check something in five minutes the basics</a> 
-<a href="https://cnlawblog.jpn.com/how-to-find-out-when-a-movie-or-show-releases-and-where-to-s/">how to find out when a movie or show releases and where to s</a> 

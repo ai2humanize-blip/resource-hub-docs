@@ -2,6 +2,15 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://feetfinder.uk.net/understanding-free-to-play-online-card-games/">understanding free to play online card games</a> 
+<a href="https://feetfinder.uk.net/understanding-odds-probability-and-responsible-play-in-numbe/">understanding odds probability and responsible play in numbe</a> 
+<a href="https://feetfinder.uk.net/using-a-crypto-card-for-travel-fees-fx-and-what-to-check/">using a crypto card for travel fees fx and what to check</a> 
+<a href="https://feetfinder.uk.net/walking-for-wellbeing-getting-started-the-right-way/">walking for wellbeing getting started the right way</a> 
+<a href="https://feetfinder.uk.net/what-makes-an-explainer-article-genuinely-useful-2/">what makes an explainer article genuinely useful 2</a> 
+<a href="https://feetfinder.uk.net/what-makes-an-explainer-article-genuinely-useful-a-quick-guide/">what makes an explainer article genuinely useful a quick gui</a> 
+<a href="https://feetfinder.uk.net/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
+<a href="https://feetfinder.uk.net/what-to-know-about-how-to-bookmark-and-revisit-useful-resources/">what to know about how to bookmark and revisit useful resour</a> 
+<a href="https://feetfinder.uk.net/what-to-know-about-how-to-compare-sources-on-the-same-story/">what to know about how to compare sources on the same story</a> 
 <a href="https://feetfinder.uk.net/what-to-know-about-how-to-evaluate-online-reviews-and-recomm/">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://feetfinder.uk.net/what-to-know-about-how-to-find-balanced-coverage-of-a-topic/">what to know about how to find balanced coverage of a topic</a> 
 <a href="https://feetfinder.uk.net/what-to-know-about-how-to-find-reliable-how-to-guides/">what to know about how to find reliable how to guides</a> 
@@ -793,12 +802,3 @@
 <a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-essential-tech-content-28-6/">navigating the web a curated guide to essential tech content</a> 
 <a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-tech-content-and-relia-28-6-2/">navigating the web a curated guide to tech content and relia</a> 
 <a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-tech-content-and-relia-28-6/">navigating the web a curated guide to tech content and relia</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-curated-guide-to-tech-content-and-usefu-28-6/">navigating the web a curated guide to tech content and usefu</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-essential-online-res-28-6-2/">navigating the web a practical guide to essential online res</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-essential-online-res-28-6-3/">navigating the web a practical guide to essential online res</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-essential-online-res-28-6/">navigating the web a practical guide to essential online res</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-reliable-tech-conten-28-6/">navigating the web a practical guide to reliable tech conten</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-trustworthy-tech-con-28-6/">navigating the web a practical guide to trustworthy tech con</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-a-practical-guide-to-valuable-online-reso-28-6/">navigating the web a practical guide to valuable online reso</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-habits-and-skills-for-smart-internet-read-28-6/">navigating the web habits and skills for smart internet read</a> 
-<a href="https://fideleturfturf.it.com/navigating-the-web-mastering-tech-content-and-digital-litera-28-6/">navigating the web mastering tech content and digital litera</a> 

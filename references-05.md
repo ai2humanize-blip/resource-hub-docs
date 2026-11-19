@@ -451,6 +451,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-smarter-browsing-43-1.html">web tech content a practical guide to smarter browsing 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-the-useful-web-43-1.html">web tech content a practical guide to the useful web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-map-of-the-useful-web-43-1.html">web tech content a practical map of the useful web 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-roundup-of-useful-guides-43-1.html">web tech content a practical roundup of useful guides 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-statscrop-site-roundup-43-1.html">web tech content a practical statscrop site roundup 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-reader-s-map-to-the-useful-web-43-1.html">web tech content a reader s map to the useful web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-information-43-1.html">web tech content a smarter guide to online information 43 1</a> 
@@ -458,10 +459,12 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-safer-guide-to-the-web-43-1.html">web tech content a smarter safer guide to the web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-ai-gambling-and-crypto-essentials-43-1.html">web tech content ai gambling and crypto essentials 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-essential-online-resources-and-ad-buying-43-1.html">web tech content essential online resources and ad buying 43</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-practical-guides-for-digital-life-43-1.html">web tech content practical guides for digital life 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-14-sites-grouped-by-niche-43-1.html">web tech content roundup 14 sites grouped by niche 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-to-explore-43-1.html">web tech content roundup 15 useful sites to explore 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-worth-exploring-43-1.html">web tech content roundup 15 useful sites worth exploring 43 </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-essential-tools-and-insights-43-1.html">web tech content roundup essential tools and insights 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-practical-ideas-for-better-work-43-1.html">web tech content roundup practical ideas for better work 43 </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-useful-online-resources-worth-bookmarking-43-1.html">web tech content useful online resources worth bookmarking 4</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-useful-websites-and-tools-round-up-43-1.html">web tech content useful websites and tools round up 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/what-are-reproducible-builds.html">what are reproducible builds</a> 
@@ -799,6 +802,3 @@
 <a href="https://alcobar85.xyz/what-to-know-about-what-makes-an-explainer-article-genuinely-2/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-what-makes-an-explainer-article-genuinely/">what to know about what makes an explainer article genuinely</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-what-to-look-for-in-a-good-news-website/">what to know about what to look for in a good news website</a> 
-<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-practical-guide/">what to look for in a good news website a practical guide</a> 
-<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-a-quick-guide/">what to look for in a good news website a quick guide</a> 
-<a href="https://alcobar85.xyz/what-to-look-for-in-a-good-news-website-explained-simply/">what to look for in a good news website explained simply</a> 

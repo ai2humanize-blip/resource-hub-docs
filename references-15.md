@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-4/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-5/">exploring the intersection of web tech and content a compreh</a> 
+<a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-6/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-7/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-8/">exploring the intersection of web tech and content a compreh</a> 
 <a href="https://captainjackinterview.com/exploring-the-intersection-of-web-tech-and-content-a-compreh-82-2-9/">exploring the intersection of web tech and content a compreh</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
 <a href="https://casacours.uk.com/what-makes-an-explainer-article-genuinely-useful/">what makes an explainer article genuinely useful</a> 
 <a href="https://casacours.uk.com/what-to-know-about-building-a-healthy-daily-reading-habit/">what to know about building a healthy daily reading habit</a> 
-<a href="https://casacours.uk.com/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
-<a href="https://casacours.uk.com/what-to-know-about-how-to-build-a-personal-reading-list/">what to know about how to build a personal reading list</a> 
-<a href="https://casacours.uk.com/what-to-know-about-how-to-tell-if-a-website-is-trustworthy/">what to know about how to tell if a website is trustworthy</a> 

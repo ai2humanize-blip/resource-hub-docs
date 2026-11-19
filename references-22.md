@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://croginalcats.xyz/how-brands-and-writers-collaborate-with-niche-media/">how brands and writers collaborate with niche media</a> 
+<a href="https://croginalcats.xyz/how-classic-card-games-are-played/">how classic card games are played</a> 
+<a href="https://croginalcats.xyz/how-common-devices-and-apps-actually-work/">how common devices and apps actually work</a> 
 <a href="https://croginalcats.xyz/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
 <a href="https://croginalcats.xyz/how-to-avoid-misinformation-and-hype/">how to avoid misinformation and hype</a> 
 <a href="https://croginalcats.xyz/how-to-build-a-personal-reading-list-a-quick-guide/">how to build a personal reading list a quick guide</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-modern-indu-26-3/">exploring the synergy of web tech and content in modern indu</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-2/">exploring the synergy of web tech and content in the digital</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-3/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3-4/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-digital-26-3/">exploring the synergy of web tech and content in the digital</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-in-the-modern-26-3/">exploring the synergy of web tech and content in the modern </a> 
