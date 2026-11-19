@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-25.md) · [‹ prev](references-23.md)
 
+<a href="https://cybinxo.com/business-finance-productivity-a-practical-crypto-round-up-87-5/">business finance productivity a practical crypto round up 87</a> 
 <a href="https://cybinxo.com/business-finance-productivity-a-practical-crypto-roundup-87-5-2/">business finance productivity a practical crypto roundup 87 </a> 
 <a href="https://cybinxo.com/business-finance-productivity-a-practical-crypto-roundup-87-5/">business finance productivity a practical crypto roundup 87 </a> 
 <a href="https://cybinxo.com/business-finance-productivity-a-practical-daily-roundup-87-5-2/">business finance productivity a practical daily roundup 87 5</a> 
@@ -801,4 +802,3 @@
 <a href="https://cybinxo.com/why-context-matters-when-reading-online/">why context matters when reading online</a> 
 <a href="https://cybinxo.com/why-explainer-journalism-matters-more-than-ever/">why explainer journalism matters more than ever</a> 
 <a href="https://cybinxo.com/why-general-interest-blogs-still-matter-in-a-niche-world/">why general interest blogs still matter in a niche world</a> 
-<a href="https://cybinxo.com/why-niche-blogs-still-matter-a-practical-guide-2/">why niche blogs still matter a practical guide 2</a> 

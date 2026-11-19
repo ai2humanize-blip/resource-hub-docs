@@ -2,6 +2,7 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cnlawblog.jpn.com/how-travel-esims-work-and-why-travellers-use-them-instead-of/">how travel esims work and why travellers use them instead of</a> 
 <a href="https://cnlawblog.jpn.com/idiominsider-net-resource-1/">idiominsider net resource 1</a> 
 <a href="https://cnlawblog.jpn.com/ivana-turf/">ivana turf</a> 
 <a href="https://cnlawblog.jpn.com/making-sense-of-complex-topics-online-explained-simply/">making sense of complex topics online explained simply</a> 
@@ -801,4 +802,3 @@
 <a href="https://crediblenews24.com/exploring-business-finance-productivity-essential-tools-and-86-6/">exploring business finance productivity essential tools and </a> 
 <a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-2-2/">exploring essential digital tools online resources for moder</a> 
 <a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-2/">exploring essential digital tools online resources for moder</a> 
-<a href="https://crediblenews24.com/exploring-essential-digital-tools-online-resources-for-moder-86-7-2/">exploring essential digital tools online resources for moder</a> 
