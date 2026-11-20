@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-evaluate-online-reviews-and-recomm.htm">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides.htm">what to know about how to get the most out of online guides</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi-2/">what to know about how to tell explainer journalism from opi</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/the-ultimate-guide-to-starting-a-home-based-online-business-77-7/">the ultimate guide to starting a home based online business </a> 
 <a href="https://algiamedical.com/the-value-of-slow-careful-reading-2/">the value of slow careful reading 2</a> 
 <a href="https://algiamedical.com/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 
-<a href="https://algiamedical.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
-<a href="https://algiamedical.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
-<a href="https://algiamedical.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 

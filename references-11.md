@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-12.md) · [‹ prev](references-10.md)
 
+<a href="https://autumnfallsinterview.com/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
+<a href="https://autumnfallsinterview.com/serpinsightlinkinsertion-overview-and-latest-updates/">serpinsightlinkinsertion overview and latest updates</a> 
+<a href="https://autumnfallsinterview.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 
 <a href="https://autumnfallsinterview.com/simple-habits-of-a-smart-internet-reader-the-basics-2/">simple habits of a smart internet reader the basics 2</a> 
 <a href="https://autumnfallsinterview.com/simple-habits-of-a-smart-internet-reader-the-basics/">simple habits of a smart internet reader the basics</a> 
 <a href="https://autumnfallsinterview.com/smart-ways-to-learn-and-research-on-the-web/">smart ways to learn and research on the web</a> 
@@ -799,6 +802,3 @@
 <a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-2-10/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-2-11/">mastering digital tools online resources a comprehensive gui</a> 
 <a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-2-12/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-2-13/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-2-2/">mastering digital tools online resources a comprehensive gui</a> 
-<a href="https://bandemusic.com/mastering-digital-tools-online-resources-a-comprehensive-gui-81-2-3/">mastering digital tools online resources a comprehensive gui</a> 

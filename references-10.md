@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-11.md) · [‹ prev](references-09.md)
 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-read-crypto-news-without-getting-hyped-3ca615d6bd428160b319e109f0e36370">How to read crypto news without getting hyped 3ca615d6bd4281</a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-read-the-news-without-getting-overwhelmed-the-basics-401615d6bd428152a64ec538c48687b5">How to read the news without getting overwhelmed the basics </a> 
+<a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-3d1615d6bd4281f3b1f5eef504115123">How to spot low quality content online 3d1615d6bd4281f3b1f5e</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-a-practical-guide-3d1615d6bd4281d494a8dde3d1675366">How to spot low quality content online a practical guide 3d1</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-spot-low-quality-content-online-and-why-it-matters-3d1615d6bd4281e9ada1f4d02ae4dd4e">How to spot low quality content online and why it matters 3d</a> 
 <a href="https://automatic-meeting-203.notion.site/p/How-to-tell-if-a-website-is-trustworthy-401615d6bd4281268aebe8cb9833cbde">How to tell if a website is trustworthy 401615d6bd4281268aeb</a> 
@@ -799,6 +802,3 @@
 <a href="https://autumnfallsinterview.com/recognizing-credible-experts-online-a-quick-guide/">recognizing credible experts online a quick guide</a> 
 <a href="https://autumnfallsinterview.com/rep-res-pour-s-informer-sereinement-sur-les-courses/">rep res pour s informer sereinement sur les courses</a> 
 <a href="https://autumnfallsinterview.com/revolutionizing-daily-life-mastering-apps-for-productivity-l-80-10/">revolutionizing daily life mastering apps for productivity l</a> 
-<a href="https://autumnfallsinterview.com/robthecoins-xyz-resource-1/">robthecoins xyz resource 1</a> 
-<a href="https://autumnfallsinterview.com/serpinsightlinkinsertion-overview-and-latest-updates/">serpinsightlinkinsertion overview and latest updates</a> 
-<a href="https://autumnfallsinterview.com/simple-habits-of-a-smart-internet-reader-explained-simply/">simple habits of a smart internet reader explained simply</a> 

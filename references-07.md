@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-08.md) · [‹ prev](references-06.md)
 
+<a href="https://algiamedical.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
+<a href="https://algiamedical.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
+<a href="https://algiamedical.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
 <a href="https://algiamedical.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
 <a href="https://algiamedical.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
 <a href="https://algiamedical.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://app.zentrack.net/mastering-business-finance-productivity-with-ai-and-everyday-25-2/">mastering business finance productivity with ai and everyday</a> 
 <a href="https://app.zentrack.net/mastering-business-finance-productivity-with-ai-art-prompt-g-25-2/">mastering business finance productivity with ai art prompt g</a> 
 <a href="https://app.zentrack.net/mastering-business-finance-productivity-your-ultimate-guide-25-2/">mastering business finance productivity your ultimate guide </a> 
-<a href="https://app.zentrack.net/mastering-crypto-essential-terms-news-and-wallet-safety-for-25-2/">mastering crypto essential terms news and wallet safety for </a> 
-<a href="https://app.zentrack.net/mastering-crypto-market-data-a-comprehensive-guide-to-price-25-2/">mastering crypto market data a comprehensive guide to price </a> 
-<a href="https://app.zentrack.net/mastering-daily-results-a-comprehensive-guide-to-business-fi-25-2/">mastering daily results a comprehensive guide to business fi</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide-2/">how to bookmark and revisit useful resources a quick guide 2</a> 
+<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-a-quick-guide/">how to bookmark and revisit useful resources a quick guide</a> 
+<a href="https://cnlawblog.jpn.com/how-to-bookmark-and-revisit-useful-resources-explained-simpl/">how to bookmark and revisit useful resources explained simpl</a> 
 <a href="https://cnlawblog.jpn.com/how-to-build-a-capsule-wardrobe-that-actually-works/">how to build a capsule wardrobe that actually works</a> 
 <a href="https://cnlawblog.jpn.com/how-to-build-a-personal-reading-list/">how to build a personal reading list</a> 
 <a href="https://cnlawblog.jpn.com/how-to-build-a-weekly-cleaning-routine-that-actually-sticks/">how to build a weekly cleaning routine that actually sticks</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/discover-the-best-digital-tools-online-resources-for-success-86-2/">discover the best digital tools online resources for success</a> 
 <a href="https://crediblenews24.com/discover-the-best-guides-reviews-and-how-tos-on-newsgiga-86-9/">discover the best guides reviews and how tos on newsgiga 86 </a> 
 <a href="https://crediblenews24.com/discover-the-best-independent-digital-tools-online-resources-86-2/">discover the best independent digital tools online resources</a> 
-<a href="https://crediblenews24.com/discover-the-best-online-resources-for-business-finance-prod-86-6/">discover the best online resources for business finance prod</a> 
-<a href="https://crediblenews24.com/discover-unique-event-ideas-and-planning-tips-for-memorable/">discover unique event ideas and planning tips for memorable</a> 
-<a href="https://crediblenews24.com/embracing-organic-living-a-holistic-approach-to-health-and-w/">embracing organic living a holistic approach to health and w</a> 

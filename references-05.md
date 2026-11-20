@@ -462,6 +462,8 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-statscrop-site-roundup-43-1.html">web tech content a practical statscrop site roundup 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-travel-planning-roundup-43-1.html">web tech content a practical travel planning roundup 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-reader-s-map-to-the-useful-web-43-1.html">web tech content a reader s map to the useful web 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-roundup-of-essential-resources-43-1.html">web tech content a roundup of essential resources 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-roundup-of-result-checking-resources-43-1.html">web tech content a roundup of result checking resources 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-information-43-1.html">web tech content a smarter guide to online information 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-research-43-1.html">web tech content a smarter guide to online research 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-safer-guide-to-the-web-43-1.html">web tech content a smarter safer guide to the web 43 1</a> 
@@ -472,6 +474,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-free-browser-games-and-666game-guide-43-1.html">web tech content free browser games and 666game guide 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-practical-guides-faqs-number-games-43-1.html">web tech content practical guides faqs number games 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-practical-guides-for-digital-life-43-1.html">web tech content practical guides for digital life 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-practical-resources-for-digital-work-43-1.html">web tech content practical resources for digital work 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-14-sites-grouped-by-niche-43-1.html">web tech content roundup 14 sites grouped by niche 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-to-explore-43-1.html">web tech content roundup 15 useful sites to explore 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-worth-exploring-43-1.html">web tech content roundup 15 useful sites worth exploring 43 </a> 
@@ -799,6 +802,3 @@
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-explained-s-2.htm">what makes an explainer article genuinely useful explained s</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
-<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
