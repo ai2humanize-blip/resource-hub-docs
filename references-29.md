@@ -549,6 +549,7 @@
 <a href="https://emiamedical.com/digital-tools-online-resources-a-practical-guide-92-1/">digital tools online resources a practical guide 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-practical-news-guide-92-1/">digital tools online resources a practical news guide 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-practical-research-guide-92-1/">digital tools online resources a practical research guide 92</a> 
+<a href="https://emiamedical.com/digital-tools-online-resources-a-practical-roundup-92-1-2/">digital tools online resources a practical roundup 92 1 2</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-practical-roundup-92-1/">digital tools online resources a practical roundup 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smart-reader-s-guide-92-1/">digital tools online resources a smart reader s guide 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-online-guide-92-1-2/">digital tools online resources a smarter online guide 92 1 2</a> 
@@ -559,6 +560,7 @@
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-research-guide-92-1/">digital tools online resources a smarter research guide 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-way-to-browse-92-1/">digital tools online resources a smarter way to browse 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-a-smarter-way-to-learn-92-1/">digital tools online resources a smarter way to learn 92 1</a> 
+<a href="https://emiamedical.com/digital-tools-online-resources-for-better-decisions-92-1/">digital tools online resources for better decisions 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-for-better-online-research-92-1/">digital tools online resources for better online research 92</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-for-better-safer-reading-92-1/">digital tools online resources for better safer reading 92 1</a> 
 <a href="https://emiamedical.com/digital-tools-online-resources-for-better-smarter-reading-92-1/">digital tools online resources for better smarter reading 92</a> 
@@ -800,5 +802,3 @@
 <a href="https://emiamedical.com/marketing-seo-growth-a-practical-guide-to-better-decisions-92-9/">marketing seo growth a practical guide to better decisions 9</a> 
 <a href="https://emiamedical.com/marketing-seo-growth-a-practical-guide-to-crypto-topics-92-9/">marketing seo growth a practical guide to crypto topics 92 9</a> 
 <a href="https://emiamedical.com/marketing-seo-growth-a-practical-guide-to-digital-growth-92-9/">marketing seo growth a practical guide to digital growth 92 </a> 
-<a href="https://emiamedical.com/marketing-seo-growth-a-practical-guide-to-digital-trust-92-9/">marketing seo growth a practical guide to digital trust 92 9</a> 
-<a href="https://emiamedical.com/marketing-seo-growth-a-practical-guide-to-modern-topics-92-9/">marketing seo growth a practical guide to modern topics 92 9</a> 

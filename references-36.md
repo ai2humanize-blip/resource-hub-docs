@@ -2,6 +2,11 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://feetfinder.uk.net/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
+<a href="https://feetfinder.uk.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
+<a href="https://feetfinder.uk.net/google-stacking-2/">google stacking 2</a> 
+<a href="https://feetfinder.uk.net/google-stacking/">google stacking</a> 
+<a href="https://feetfinder.uk.net/hot-wallets-vs-cold-wallets-how-crypto-storage-choices-diffe/">hot wallets vs cold wallets how crypto storage choices diffe</a> 
 <a href="https://feetfinder.uk.net/how-baby-name-popularity-shifts-over-time/">how baby name popularity shifts over time</a> 
 <a href="https://feetfinder.uk.net/how-popular-baby-names-change-over-the-decades-and-why-it-ma/">how popular baby names change over the decades and why it ma</a> 
 <a href="https://feetfinder.uk.net/how-the-independent-web-still-delivers-value/">how the independent web still delivers value</a> 
@@ -797,8 +802,3 @@
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-28-6-6/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-28-6/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-evaluati-28-6/">mastering web tech content a comprehensive guide to evaluati</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-learning-28-6/">mastering web tech content a comprehensive guide to learning</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-28-6-2/">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-28-6-3/">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-28-6-4/">mastering web tech content a comprehensive guide to navigati</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-navigati-28-6-5/">mastering web tech content a comprehensive guide to navigati</a> 

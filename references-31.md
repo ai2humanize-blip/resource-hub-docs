@@ -2,6 +2,8 @@
 
 [index](README.md) · [next ›](references-32.md) · [‹ prev](references-30.md)
 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4a7b73a/banner-ad-sites.html">banner ad sites</a> 
+<a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4b10c55/editorial-standards.html">editorial standards</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4be92f2/simple-habits-of-a-smart-internet-reader-and-why-it-matters.html">simple habits of a smart internet reader and why it matters</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4c405ea/viirelaid-empire-bigwater-transform-viirelaid-into-carbon-ne.html">viirelaid empire bigwater transform viirelaid into carbon ne</a> 
 <a href="https://esm.sh/gh/ai2humanize-blip/linkstack-pages@4cc5b9e/mycoinpartner.html">mycoinpartner</a> 
@@ -800,5 +802,3 @@
 <a href="https://esm.sh/ls-banner-ad-sites-muxnix7z@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-banner-ad-sites-muxnj5nc@1.0.0/index.html">index</a> 
 <a href="https://esm.sh/ls-base64url-explained-muy1sieb@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-base64url-explained-muy1tbpa@1.0.0/index.html">index</a> 
-<a href="https://esm.sh/ls-base64url-explained-muy1ts7b@1.0.0/index.html">index</a> 
