@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://feetfinder.uk.net/getting-how-to-tell-if-a-website-is-trustworthy-right/">getting how to tell if a website is trustworthy right</a> 
+<a href="https://feetfinder.uk.net/getting-how-to-use-the-web-to-learn-a-new-skill-right/">getting how to use the web to learn a new skill right</a> 
+<a href="https://feetfinder.uk.net/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://feetfinder.uk.net/getting-what-makes-an-explainer-article-genuinely-useful-rig/">getting what makes an explainer article genuinely useful rig</a> 
 <a href="https://feetfinder.uk.net/getting-why-primary-sources-matter-and-how-to-find-them-righ/">getting why primary sources matter and how to find them righ</a> 
 <a href="https://feetfinder.uk.net/google-stacking-2/">google stacking 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-28-6-3/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-28-6-4/">mastering web tech content a comprehensive guide to digital </a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-28-6-5/">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-28-6-6/">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-digital-28-6/">mastering web tech content a comprehensive guide to digital </a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-to-evaluati-28-6/">mastering web tech content a comprehensive guide to evaluati</a> 
