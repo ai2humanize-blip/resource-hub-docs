@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-26.md) · [‹ prev](references-24.md)
 
+<a href="https://cybinxo.com/what-to-know-about-how-to-organize-the-information-you-find-online/">what to know about how to organize the information you find </a> 
+<a href="https://cybinxo.com/what-to-know-about-how-to-read-the-news-without-getting-over/">what to know about how to read the news without getting over</a> 
+<a href="https://cybinxo.com/what-to-know-about-how-to-spot-low-quality-content-online/">what to know about how to spot low quality content online</a> 
 <a href="https://cybinxo.com/what-to-know-about-the-value-of-slow-careful-reading-2/">what to know about the value of slow careful reading 2</a> 
 <a href="https://cybinxo.com/what-to-know-about-the-value-of-slow-careful-reading-3/">what to know about the value of slow careful reading 3</a> 
 <a href="https://cybinxo.com/what-to-know-about-the-value-of-slow-careful-reading-4/">what to know about the value of slow careful reading 4</a> 
@@ -799,6 +802,3 @@
 <a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-reading-online-88-6/">web tech content a practical guide to reading online 88 6</a> 
 <a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-reading-smarter-88-6-2/">web tech content a practical guide to reading smarter 88 6 2</a> 
 <a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-reading-smarter-88-6-3/">web tech content a practical guide to reading smarter 88 6 3</a> 
-<a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-reading-smarter-88-6-4/">web tech content a practical guide to reading smarter 88 6 4</a> 
-<a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-reading-smarter-88-6-5/">web tech content a practical guide to reading smarter 88 6 5</a> 
-<a href="https://cymbaltareviews.com/web-tech-content-a-practical-guide-to-reading-smarter-88-6/">web tech content a practical guide to reading smarter 88 6</a> 

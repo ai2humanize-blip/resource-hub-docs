@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/what-to-know-about-how-to-evaluate-online-reviews-and-recomm.htm">what to know about how to evaluate online reviews and recomm</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides.htm">what to know about how to get the most out of online guides</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi-2/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/the-value-of-slow-careful-reading-and-why-it-matters/">the value of slow careful reading and why it matters</a> 
 <a href="https://algiamedical.com/the-value-of-slow-careful-reading/">the value of slow careful reading</a> 
 <a href="https://algiamedical.com/thedigitalweekly-overview-and-latest-updates/">thedigitalweekly overview and latest updates</a> 
-<a href="https://algiamedical.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
-<a href="https://algiamedical.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
-<a href="https://algiamedical.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 

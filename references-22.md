@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://croginalcats.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://croginalcats.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
+<a href="https://croginalcats.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://croginalcats.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
 <a href="https://croginalcats.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
 <a href="https://croginalcats.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-5/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-6/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-7/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-8/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-9/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3/">exploring the synergy of web tech and content a comprehensiv</a> 
