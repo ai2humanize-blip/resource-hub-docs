@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-17.md) · [‹ prev](references-15.md)
 
+<a href="https://casacours.uk.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
+<a href="https://casacours.uk.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
+<a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 
 <a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters/">understanding digital literacy and why it matters</a> 
 <a href="https://casacours.uk.com/understanding-digital-literacy/">understanding digital literacy</a> 
 <a href="https://casacours.uk.com/understanding-fabric-types-and-how-to-care-for-them/">understanding fabric types and how to care for them</a> 
@@ -799,6 +802,3 @@
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-for-authors-and-book-publishe-83-3/">mastering marketing seo growth for authors and book publishe</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-navigating-the-best-online-re-83-3-2/">mastering marketing seo growth navigating the best online re</a> 
 <a href="https://cbd-stone.com/mastering-marketing-seo-growth-navigating-the-best-online-re-83-3/">mastering marketing seo growth navigating the best online re</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-navigating-the-web-for-succes-83-3/">mastering marketing seo growth navigating the web for succes</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-business-succe-83-3-2/">mastering marketing seo growth strategies for business succe</a> 
-<a href="https://cbd-stone.com/mastering-marketing-seo-growth-strategies-for-business-succe-83-3/">mastering marketing seo growth strategies for business succe</a> 

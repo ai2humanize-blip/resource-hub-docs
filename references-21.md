@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://crediblenews24.com/discover-the-best-digital-tools-online-resources-for-success-86-2/">discover the best digital tools online resources for success</a> 
+<a href="https://crediblenews24.com/discover-the-best-guides-reviews-and-how-tos-on-newsgiga-86-9/">discover the best guides reviews and how tos on newsgiga 86 </a> 
+<a href="https://crediblenews24.com/discover-the-best-independent-digital-tools-online-resources-86-2/">discover the best independent digital tools online resources</a> 
 <a href="https://crediblenews24.com/discover-the-best-online-resources-for-business-finance-prod-86-6/">discover the best online resources for business finance prod</a> 
 <a href="https://crediblenews24.com/discover-unique-event-ideas-and-planning-tips-for-memorable/">discover unique event ideas and planning tips for memorable</a> 
 <a href="https://crediblenews24.com/embracing-organic-living-a-holistic-approach-to-health-and-w/">embracing organic living a holistic approach to health and w</a> 
@@ -799,6 +802,3 @@
 <a href="https://croginalcats.xyz/building-a-personal-toolkit-of-web-resources/">building a personal toolkit of web resources</a> 
 <a href="https://croginalcats.xyz/choosing-ai-art-prints-formats-licensing-and-honest-labellin/">choosing ai art prints formats licensing and honest labellin</a> 
 <a href="https://croginalcats.xyz/clear-explainers-on-everyday-news-topics-what-to-know/">clear explainers on everyday news topics what to know</a> 
-<a href="https://croginalcats.xyz/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
-<a href="https://croginalcats.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
-<a href="https://croginalcats.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 

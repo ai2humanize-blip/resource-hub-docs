@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-modern-82-6/">exploring the best digital tools online resources for modern</a> 
+<a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-sports-82-1/">exploring the best digital tools online resources for sports</a> 
+<a href="https://captainjackinterview.com/exploring-the-best-independent-web-tech-content-resources-82-7/">exploring the best independent web tech content resources 82</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-independent-web-tech-content-resources-in-82-7/">exploring the best independent web tech content resources in</a> 
 <a href="https://captainjackinterview.com/exploring-the-depths-of-hindu-astrology-panchang-choghadiya-82-2/">exploring the depths of hindu astrology panchang choghadiya </a> 
 <a href="https://captainjackinterview.com/exploring-the-dynamic-world-of-web-tech-and-content-82-2/">exploring the dynamic world of web tech and content 82 2</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/understanding-baby-name-origins-across-cultures-and-language-2/">understanding baby name origins across cultures and language</a> 
 <a href="https://casacours.uk.com/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
 <a href="https://casacours.uk.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 
-<a href="https://casacours.uk.com/understanding-crypto-market-data-price-volume-and-market-cap/">understanding crypto market data price volume and market cap</a> 
-<a href="https://casacours.uk.com/understanding-digital-literacy-a-practical-guide/">understanding digital literacy a practical guide</a> 
-<a href="https://casacours.uk.com/understanding-digital-literacy-and-why-it-matters-2/">understanding digital literacy and why it matters 2</a> 

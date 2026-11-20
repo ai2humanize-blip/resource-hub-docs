@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
+<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-explained-s-2.htm">what makes an explainer article genuinely useful explained s</a> 
+<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-the-basics/">what makes an explainer article genuinely useful the basics</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-a-simple-framework-for-researching-any-to/">what to know about a simple framework for researching any to</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-bookmark-and-revisit-useful-resour/">what to know about how to bookmark and revisit useful resour</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/the-ultimate-guide-to-essential-digital-tools-online-resourc-77-6-2/">the ultimate guide to essential digital tools online resourc</a> 
 <a href="https://algiamedical.com/the-ultimate-guide-to-essential-digital-tools-online-resourc-77-6/">the ultimate guide to essential digital tools online resourc</a> 
 <a href="https://algiamedical.com/the-ultimate-guide-to-news-analysis-guides-reviews-and-how-t-77-8/">the ultimate guide to news analysis guides reviews and how t</a> 
-<a href="https://algiamedical.com/the-ultimate-guide-to-starting-a-home-based-online-business-77-7/">the ultimate guide to starting a home based online business </a> 
-<a href="https://algiamedical.com/the-value-of-slow-careful-reading-2/">the value of slow careful reading 2</a> 
-<a href="https://algiamedical.com/the-value-of-slow-careful-reading-a-practical-guide/">the value of slow careful reading a practical guide</a> 

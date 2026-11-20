@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://croginalcats.xyz/common-home-repairs-you-can-safely-do-yourself/">common home repairs you can safely do yourself</a> 
+<a href="https://croginalcats.xyz/comparing-crypto-cards-fees-rewards-and-what-to-check-first/">comparing crypto cards fees rewards and what to check first</a> 
+<a href="https://croginalcats.xyz/consumer-technology-tips-and-useful-app-guides-what-to-know/">consumer technology tips and useful app guides what to know</a> 
 <a href="https://croginalcats.xyz/contributing-to-specialist-publications-what-to-know/">contributing to specialist publications what to know</a> 
 <a href="https://croginalcats.xyz/cryptocurrency-security-and-staying-safe-online-what-to-know/">cryptocurrency security and staying safe online what to know</a> 
 <a href="https://croginalcats.xyz/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-latest-trends-in-web-tech-content-crypto-etfs-26-3/">exploring the latest trends in web tech content crypto etfs </a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-10/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-11/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-2/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-3/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-4/">exploring the synergy of web tech and content a comprehensiv</a> 

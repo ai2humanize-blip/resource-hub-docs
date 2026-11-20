@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-14.md) · [‹ prev](references-12.md)
 
+<a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-explained-simply-8aaff8fe/">a simple framework for researching any topic online explaine</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-explained-simply-cf9efd35/">a simple framework for researching any topic online explaine</a> 
+<a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-explained-simply/">a simple framework for researching any topic online explaine</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-the-basics-ad5432b2/">a simple framework for researching any topic online the basi</a> 
 <a href="https://boostelearning.mataroa.blog/blog/a-simple-framework-for-researching-any-topic-online-the-basics/">a simple framework for researching any topic online the basi</a> 
 <a href="https://boostelearning.mataroa.blog/blog/aavotcom-3d84f4f4/">aavotcom 3d84f4f4</a> 
@@ -799,6 +802,3 @@
 <a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-quick-guide-97221a6f/">understanding how search engines rank pages a quick guide 97</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-quick-guide-e27ed6a7/">understanding how search engines rank pages a quick guide e2</a> 
 <a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-a-quick-guide/">understanding how search engines rank pages a quick guide</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-and-why-it-matters-5baf198f/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages-and-why-it-matters/">understanding how search engines rank pages and why it matte</a> 
-<a href="https://boostelearning.mataroa.blog/blog/understanding-how-search-engines-rank-pages/">understanding how search engines rank pages</a> 
