@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
+<a href="https://alcobar85.xyz/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
+<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-and-why-it/">what makes an explainer article genuinely useful and why it</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-explained-s-2.htm">what makes an explainer article genuinely useful explained s</a> 
 <a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-explained-s/">what makes an explainer article genuinely useful explained s</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/the-future-of-communication-how-apps-are-transforming-digita/">the future of communication how apps are transforming digita</a> 
 <a href="https://algiamedical.com/the-rise-of-ai-powered-apps-transforming-the-digital-landsca/">the rise of ai powered apps transforming the digital landsca</a> 
 <a href="https://algiamedical.com/the-rise-of-digital-minimalism-how-to-declutter-your-digital/">the rise of digital minimalism how to declutter your digital</a> 
-<a href="https://algiamedical.com/the-ultimate-guide-to-essential-digital-tools-online-resourc-77-6-2/">the ultimate guide to essential digital tools online resourc</a> 
-<a href="https://algiamedical.com/the-ultimate-guide-to-essential-digital-tools-online-resourc-77-6/">the ultimate guide to essential digital tools online resourc</a> 
-<a href="https://algiamedical.com/the-ultimate-guide-to-news-analysis-guides-reviews-and-how-t-77-8/">the ultimate guide to news analysis guides reviews and how t</a> 

@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-16.md) · [‹ prev](references-14.md)
 
+<a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-crypto-82-1/">exploring the best digital tools online resources for crypto</a> 
+<a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-modern-82-1-2/">exploring the best digital tools online resources for modern</a> 
+<a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-modern-82-1/">exploring the best digital tools online resources for modern</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-modern-82-6/">exploring the best digital tools online resources for modern</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-digital-tools-online-resources-for-sports-82-1/">exploring the best digital tools online resources for sports</a> 
 <a href="https://captainjackinterview.com/exploring-the-best-independent-web-tech-content-resources-82-7/">exploring the best independent web tech content resources 82</a> 
@@ -799,6 +802,3 @@
 <a href="https://casacours.uk.com/tlt-ng-resource-2/">tlt ng resource 2</a> 
 <a href="https://casacours.uk.com/todaykeralalotteryresult-net-resource-2/">todaykeralalotteryresult net resource 2</a> 
 <a href="https://casacours.uk.com/ttweakflight-cc-resource-2/">ttweakflight cc resource 2</a> 
-<a href="https://casacours.uk.com/understanding-baby-name-origins-across-cultures-and-language-2/">understanding baby name origins across cultures and language</a> 
-<a href="https://casacours.uk.com/understanding-baby-name-origins-across-cultures-and-language/">understanding baby name origins across cultures and language</a> 
-<a href="https://casacours.uk.com/understanding-cpm-viewability-and-ad-fraud-in-display-advert/">understanding cpm viewability and ad fraud in display advert</a> 

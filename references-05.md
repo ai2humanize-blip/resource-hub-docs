@@ -459,6 +459,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-the-useful-web-43-1.html">web tech content a practical guide to the useful web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-map-of-the-useful-web-43-1.html">web tech content a practical map of the useful web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-roundup-for-better-work-43-1.html">web tech content a practical roundup for better work 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-roundup-for-digital-life-43-1.html">web tech content a practical roundup for digital life 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-roundup-of-answers-43-1.html">web tech content a practical roundup of answers 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-roundup-of-digital-resources-43-1.html">web tech content a practical roundup of digital resources 43</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-roundup-of-useful-guides-43-1.html">web tech content a practical roundup of useful guides 43 1</a> 
@@ -472,6 +473,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-safer-guide-to-the-web-43-1.html">web tech content a smarter safer guide to the web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-ai-gambling-and-crypto-essentials-43-1.html">web tech content ai gambling and crypto essentials 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-common-questions-and-practical-guides-43-1.html">web tech content common questions and practical guides 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-crypto-cards-compared-for-everyday-use-43-1.html">web tech content crypto cards compared for everyday use 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-essential-online-resources-and-ad-buying-43-1.html">web tech content essential online resources and ad buying 43</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-essential-resources-for-better-workflows-43-1.html">web tech content essential resources for better workflows 43</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-free-browser-games-and-666game-guide-43-1.html">web tech content free browser games and 666game guide 43 1</a> 
@@ -479,6 +481,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-practical-guides-for-digital-life-43-1.html">web tech content practical guides for digital life 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-practical-resources-for-digital-work-43-1.html">web tech content practical resources for digital work 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-14-sites-grouped-by-niche-43-1.html">web tech content roundup 14 sites grouped by niche 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-places-to-explore-43-1.html">web tech content roundup 15 useful places to explore 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-to-explore-43-1.html">web tech content roundup 15 useful sites to explore 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-15-useful-sites-worth-exploring-43-1.html">web tech content roundup 15 useful sites worth exploring 43 </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-roundup-essential-tools-and-insights-43-1.html">web tech content roundup essential tools and insights 43 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://alcobar85.xyz/what-is-a-panchang-tithi-nakshatra-yoga-and-karana-explained/">what is a panchang tithi nakshatra yoga and karana explained</a> 
 <a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined-2/">what is zakat and how the nisab threshold is determined 2</a> 
 <a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined-3/">what is zakat and how the nisab threshold is determined 3</a> 
-<a href="https://alcobar85.xyz/what-is-zakat-and-how-the-nisab-threshold-is-determined/">what is zakat and how the nisab threshold is determined</a> 
-<a href="https://alcobar85.xyz/what-makes-a-multi-topic-blog-worth-following/">what makes a multi topic blog worth following</a> 
-<a href="https://alcobar85.xyz/what-makes-an-explainer-article-genuinely-useful-a-quick-gui/">what makes an explainer article genuinely useful a quick gui</a> 
