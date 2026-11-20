@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-23.md) · [‹ prev](references-21.md)
 
+<a href="https://croginalcats.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
+<a href="https://croginalcats.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
+<a href="https://croginalcats.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 
 <a href="https://croginalcats.xyz/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
 <a href="https://croginalcats.xyz/getting-the-difference-between-skimming-and-deep-reading-onl/">getting the difference between skimming and deep reading onl</a> 
 <a href="https://croginalcats.xyz/getting-understanding-how-search-engines-rank-pages-right/">getting understanding how search engines rank pages right</a> 
@@ -799,6 +802,3 @@
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-8/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3-9/">exploring the synergy of web tech and content a comprehensiv</a> 
 <a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-comprehensiv-26-3/">exploring the synergy of web tech and content a comprehensiv</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-curated-reso-26-3-2/">exploring the synergy of web tech and content a curated reso</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-a-curated-reso-26-3/">exploring the synergy of web tech and content a curated reso</a> 
-<a href="https://cyberkannadig.it.com/exploring-the-synergy-of-web-tech-and-content-for-digital-su-26-3/">exploring the synergy of web tech and content for digital su</a> 

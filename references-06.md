@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-07.md) · [‹ prev](references-05.md)
 
+<a href="https://alcobar85.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
+<a href="https://alcobar85.xyz/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-simple-habits-of-a-smart-internet-reader/">what to know about simple habits of a smart internet reader</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-the-basics-of-staying-safe-while-browsing.htm">what to know about the basics of staying safe while browsing</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-understanding-digital-literacy/">what to know about understanding digital literacy</a> 
@@ -799,6 +802,3 @@
 <a href="https://algiamedical.com/thefontworld-net-resource-1/">thefontworld net resource 1</a> 
 <a href="https://algiamedical.com/tlt-ng-resource-1/">tlt ng resource 1</a> 
 <a href="https://algiamedical.com/todaykeralalotteryresult-net-resource-1/">todaykeralalotteryresult net resource 1</a> 
-<a href="https://algiamedical.com/top-digital-tools-online-resources-for-boosting-productivity-77-6/">top digital tools online resources for boosting productivity</a> 
-<a href="https://algiamedical.com/top-digital-tools-online-resources-for-job-seekers-and-stude-77-6/">top digital tools online resources for job seekers and stude</a> 
-<a href="https://algiamedical.com/top-digital-tools-online-resources-for-mastering-personal-fi-77-6/">top digital tools online resources for mastering personal fi</a> 

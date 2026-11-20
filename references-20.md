@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-21.md) · [‹ prev](references-19.md)
 
+<a href="https://cnlawblog.jpn.com/how-to-choose-a-baby-name-meaning-origin-and-sound/">how to choose a baby name meaning origin and sound</a> 
+<a href="https://cnlawblog.jpn.com/how-to-compare-sources-on-the-same-story/">how to compare sources on the same story</a> 
+<a href="https://cnlawblog.jpn.com/how-to-evaluate-a-display-ad-placement-before-you-buy/">how to evaluate a display ad placement before you buy</a> 
 <a href="https://cnlawblog.jpn.com/how-to-evaluate-an-ai-tool-before-you-rely-on-it/">how to evaluate an ai tool before you rely on it</a> 
 <a href="https://cnlawblog.jpn.com/how-to-evaluate-online-reviews-and-recommendations-a-practic/">how to evaluate online reviews and recommendations a practic</a> 
 <a href="https://cnlawblog.jpn.com/how-to-evaluate-online-reviews-and-recommendations-a-quick-g/">how to evaluate online reviews and recommendations a quick g</a> 
@@ -799,6 +802,3 @@
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-2026-a-comprehe-86-7-2/">essential digital tools online resources for 2026 a comprehe</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-2026-a-comprehe-86-7-3/">essential digital tools online resources for 2026 a comprehe</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-2026-a-comprehe-86-7/">essential digital tools online resources for 2026 a comprehe</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-crypto-enthusia-86-7/">essential digital tools online resources for crypto enthusia</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-informed-resear-86-7/">essential digital tools online resources for informed resear</a> 
-<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-learning-and-re-86-7/">essential digital tools online resources for learning and re</a> 

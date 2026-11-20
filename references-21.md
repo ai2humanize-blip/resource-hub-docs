@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-22.md) · [‹ prev](references-20.md)
 
+<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-crypto-enthusia-86-7/">essential digital tools online resources for crypto enthusia</a> 
+<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-informed-resear-86-7/">essential digital tools online resources for informed resear</a> 
+<a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-learning-and-re-86-7/">essential digital tools online resources for learning and re</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-living-86-7/">essential digital tools online resources for modern living 8</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-producti-86-2/">essential digital tools online resources for modern producti</a> 
 <a href="https://crediblenews24.com/essential-digital-tools-online-resources-for-modern-professi-86-2-2/">essential digital tools online resources for modern professi</a> 
@@ -799,6 +802,3 @@
 <a href="https://croginalcats.xyz/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://croginalcats.xyz/finding-guest-posting-sites-and-blogger-outreach-what-to-kno/">finding guest posting sites and blogger outreach what to kno</a> 
 <a href="https://croginalcats.xyz/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
-<a href="https://croginalcats.xyz/free-browser-games-you-can-play-without-an-account-what-to-k/">free browser games you can play without an account what to k</a> 
-<a href="https://croginalcats.xyz/general-daily-news-explainers-what-to-know/">general daily news explainers what to know</a> 
-<a href="https://croginalcats.xyz/general-interest-explainers-across-many-topics-what-to-know/">general interest explainers across many topics what to know</a> 

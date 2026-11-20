@@ -444,6 +444,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-reading-43-1.html">web tech content a practical guide to better online reading </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-online-resource-43-1.html">web tech content a practical guide to better online resource</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-research-42-2.html">web tech content a practical guide to better research 42 2</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-better-search-43-1.html">web tech content a practical guide to better search 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-carmannews-43-1.html">web tech content a practical guide to carmannews 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-fonts-and-licensing-43-1.html">web tech content a practical guide to fonts and licensing 43</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-learning-online-43-1.html">web tech content a practical guide to learning online 43 1</a> 
@@ -452,6 +453,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-reading-online-43-1.html">web tech content a practical guide to reading online 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-reading-smarter-43-1.html">web tech content a practical guide to reading smarter 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-smarter-browsing-43-1.html">web tech content a practical guide to smarter browsing 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-smarter-publishing-43-1.html">web tech content a practical guide to smarter publishing 43 </a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-guide-to-the-useful-web-43-1.html">web tech content a practical guide to the useful web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-map-of-the-useful-web-43-1.html">web tech content a practical map of the useful web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-practical-roundup-of-useful-guides-43-1.html">web tech content a practical roundup of useful guides 43 1</a> 
@@ -462,6 +464,7 @@
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-guide-to-online-research-43-1.html">web tech content a smarter guide to online research 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-a-smarter-safer-guide-to-the-web-43-1.html">web tech content a smarter safer guide to the web 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-ai-gambling-and-crypto-essentials-43-1.html">web tech content ai gambling and crypto essentials 43 1</a> 
+<a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-common-questions-and-practical-guides-43-1.html">web tech content common questions and practical guides 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-essential-online-resources-and-ad-buying-43-1.html">web tech content essential online resources and ad buying 43</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-free-browser-games-and-666game-guide-43-1.html">web tech content free browser games and 666game guide 43 1</a> 
 <a href="https://ai2humanize-blip.github.io/linkstack-pages/web-tech-content-practical-guides-faqs-number-games-43-1.html">web tech content practical guides faqs number games 43 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-evaluate-online-reviews-and-recomm.htm">what to know about how to evaluate online reviews and recomm</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-get-the-most-out-of-online-guides.htm">what to know about how to get the most out of online guides</a> 
 <a href="https://alcobar85.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi-2/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-how-to-tell-explainer-journalism-from-opi/">what to know about how to tell explainer journalism from opi</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-making-sense-of-complex-topics-online/">what to know about making sense of complex topics online</a> 
-<a href="https://alcobar85.xyz/what-to-know-about-recognizing-credible-experts-online/">what to know about recognizing credible experts online</a> 
