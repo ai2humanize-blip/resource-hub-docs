@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-35.md) · [‹ prev](references-33.md)
 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-seasonal-style-transitions/">a practical guide to seasonal style transitions</a> 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-understanding-off-page-seo/">a practical guide to understanding off page seo</a> 
+<a href="https://fabbusinesssolutions.com/a-practical-guide-to-useful-online-resources/">a practical guide to useful online resources</a> 
 <a href="https://fabbusinesssolutions.com/a-practical-introduction-to-travel-insurance-for-internation/">a practical introduction to travel insurance for internation</a> 
 <a href="https://fabbusinesssolutions.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://fabbusinesssolutions.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabulouspoetry.it.com/marketing-seo-growth-50-resources-worth-bookmarking-27-4-9/">marketing seo growth 50 resources worth bookmarking 27 4 9</a> 
 <a href="https://fabulouspoetry.it.com/marketing-seo-growth-50-resources-worth-bookmarking-27-4/">marketing seo growth 50 resources worth bookmarking 27 4</a> 
 <a href="https://fabulouspoetry.it.com/marketing-seo-growth-a-practical-content-roundup-27-4/">marketing seo growth a practical content roundup 27 4</a> 
-<a href="https://fabulouspoetry.it.com/marketing-seo-growth-a-practical-cross-site-roundup-27-4/">marketing seo growth a practical cross site roundup 27 4</a> 
-<a href="https://fabulouspoetry.it.com/marketing-seo-growth-a-practical-crypto-card-hub-roundup-27-4/">marketing seo growth a practical crypto card hub roundup 27 </a> 
-<a href="https://fabulouspoetry.it.com/marketing-seo-growth-a-practical-digital-growth-roundup-27-4/">marketing seo growth a practical digital growth roundup 27 4</a> 

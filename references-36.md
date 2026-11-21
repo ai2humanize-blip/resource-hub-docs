@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://feetfinder.uk.net/custodial-vs-self-custodial-crypto-cards-explained/">custodial vs self custodial crypto cards explained</a> 
+<a href="https://feetfinder.uk.net/digital-literacy-vetting-sources-and-tools/">digital literacy vetting sources and tools</a> 
+<a href="https://feetfinder.uk.net/direct-ad-buys-vs-programmatic-a-practical-comparison/">direct ad buys vs programmatic a practical comparison</a> 
 <a href="https://feetfinder.uk.net/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
 <a href="https://feetfinder.uk.net/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
 <a href="https://feetfinder.uk.net/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
@@ -799,6 +802,3 @@
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-13/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-14/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-2/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-3/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-4/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-5/">mastering web tech content a comprehensive guide for the mod</a> 
