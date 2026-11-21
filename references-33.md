@@ -737,8 +737,11 @@
 <a href="https://ezoterizm.com/web-tech-and-organic-living-expert-insights-and-holistic-hea-93-6/">web tech and organic living expert insights and holistic hea</a> 
 <a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1-2/">web tech content 50 resources worth bookmarking 93 1 2</a> 
 <a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1-3/">web tech content 50 resources worth bookmarking 93 1 3</a> 
+<a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1-4/">web tech content 50 resources worth bookmarking 93 1 4</a> 
+<a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1-5/">web tech content 50 resources worth bookmarking 93 1 5</a> 
 <a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1/">web tech content 50 resources worth bookmarking 93 1</a> 
 <a href="https://ezoterizm.com/web-tech-content-a-practical-guide-to-digital-life-93-6/">web tech content a practical guide to digital life 93 6</a> 
+<a href="https://ezoterizm.com/web-tech-content-a-practical-guide-to-essential-topics-93-1/">web tech content a practical guide to essential topics 93 1</a> 
 <a href="https://ezoterizm.com/web-tech-content-a-practical-newsgiga-roundup-93-6/">web tech content a practical newsgiga roundup 93 6</a> 
 <a href="https://ezoterizm.com/web-tech-content-a-practical-roundup-for-digital-readers-93-6/">web tech content a practical roundup for digital readers 93 </a> 
 <a href="https://ezoterizm.com/web-tech-content-android-blockchain-and-crypto-insights-93-1/">web tech content android blockchain and crypto insights 93 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabbusinesssolutions.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
 <a href="https://fabbusinesssolutions.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
 <a href="https://fabbusinesssolutions.com/a-practical-guide-to-choosing-everyday-ai-tools/">a practical guide to choosing everyday ai tools</a> 
-<a href="https://fabbusinesssolutions.com/a-practical-guide-to-following-new-movie-and-series-releases/">a practical guide to following new movie and series releases</a> 
-<a href="https://fabbusinesssolutions.com/a-practical-guide-to-reading-cryptocurrency-price-informatio/">a practical guide to reading cryptocurrency price informatio</a> 
-<a href="https://fabbusinesssolutions.com/a-practical-guide-to-reading-football-league-tables-and-stan/">a practical guide to reading football league tables and stan</a> 
