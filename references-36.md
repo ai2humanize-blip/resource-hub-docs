@@ -2,6 +2,9 @@
 
 [index](README.md) · [next ›](references-37.md) · [‹ prev](references-35.md)
 
+<a href="https://feetfinder.uk.net/everyday-reference-tools-dictionaries-calendars-and-converte/">everyday reference tools dictionaries calendars and converte</a> 
+<a href="https://feetfinder.uk.net/everyday-tools-and-guides-worth-knowing/">everyday tools and guides worth knowing</a> 
+<a href="https://feetfinder.uk.net/finding-signal-in-a-noisy-internet/">finding signal in a noisy internet</a> 
 <a href="https://feetfinder.uk.net/getting-a-simple-framework-for-researching-any-topic-online-right/">getting a simple framework for researching any topic online </a> 
 <a href="https://feetfinder.uk.net/getting-how-to-avoid-misinformation-and-hype-right/">getting how to avoid misinformation and hype right</a> 
 <a href="https://feetfinder.uk.net/getting-how-to-compare-sources-on-the-same-story-right/">getting how to compare sources on the same story right</a> 
@@ -799,6 +802,3 @@
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-3/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-4/">mastering web tech content a comprehensive guide for the mod</a> 
 <a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-5/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-6/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-7/">mastering web tech content a comprehensive guide for the mod</a> 
-<a href="https://fideleturfturf.it.com/mastering-web-tech-content-a-comprehensive-guide-for-the-mod-28-6-8/">mastering web tech content a comprehensive guide for the mod</a> 
