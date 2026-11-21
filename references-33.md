@@ -739,11 +739,14 @@
 <a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1-3/">web tech content 50 resources worth bookmarking 93 1 3</a> 
 <a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1-4/">web tech content 50 resources worth bookmarking 93 1 4</a> 
 <a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1-5/">web tech content 50 resources worth bookmarking 93 1 5</a> 
+<a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1-6/">web tech content 50 resources worth bookmarking 93 1 6</a> 
+<a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1-7/">web tech content 50 resources worth bookmarking 93 1 7</a> 
 <a href="https://ezoterizm.com/web-tech-content-50-resources-worth-bookmarking-93-1/">web tech content 50 resources worth bookmarking 93 1</a> 
 <a href="https://ezoterizm.com/web-tech-content-a-practical-guide-to-digital-life-93-6/">web tech content a practical guide to digital life 93 6</a> 
 <a href="https://ezoterizm.com/web-tech-content-a-practical-guide-to-essential-topics-93-1/">web tech content a practical guide to essential topics 93 1</a> 
 <a href="https://ezoterizm.com/web-tech-content-a-practical-newsgiga-roundup-93-6/">web tech content a practical newsgiga roundup 93 6</a> 
 <a href="https://ezoterizm.com/web-tech-content-a-practical-roundup-for-digital-readers-93-6/">web tech content a practical roundup for digital readers 93 </a> 
+<a href="https://ezoterizm.com/web-tech-content-a-practical-roundup-for-safer-digital-life-93-1/">web tech content a practical roundup for safer digital life </a> 
 <a href="https://ezoterizm.com/web-tech-content-android-blockchain-and-crypto-insights-93-1/">web tech content android blockchain and crypto insights 93 1</a> 
 <a href="https://ezoterizm.com/web-tech-content-attention-spikes-and-retention-economics-93-1/">web tech content attention spikes and retention economics 93</a> 
 <a href="https://ezoterizm.com/web-tech-content-bitcoin-market-signals-and-risk-93-1/">web tech content bitcoin market signals and risk 93 1</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabbusinesssolutions.com/a-closer-look-at-the-difference-between-skimming-and-deep-re/">a closer look at the difference between skimming and deep re</a> 
 <a href="https://fabbusinesssolutions.com/a-closer-look-at-the-value-of-slow-careful-reading/">a closer look at the value of slow careful reading</a> 
 <a href="https://fabbusinesssolutions.com/a-closer-look-at-why-context-matters-when-reading-online/">a closer look at why context matters when reading online</a> 
-<a href="https://fabbusinesssolutions.com/a-closer-look-at-why-primary-sources-matter-and-how-to-find/">a closer look at why primary sources matter and how to find</a> 
-<a href="https://fabbusinesssolutions.com/a-curated-look-at-handy-web-services/">a curated look at handy web services</a> 
-<a href="https://fabbusinesssolutions.com/a-practical-guide-to-choosing-everyday-ai-tools/">a practical guide to choosing everyday ai tools</a> 
