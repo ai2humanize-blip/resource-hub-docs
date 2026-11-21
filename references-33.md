@@ -742,8 +742,11 @@
 <a href="https://ezoterizm.com/web-tech-content-a-practical-newsgiga-roundup-93-6/">web tech content a practical newsgiga roundup 93 6</a> 
 <a href="https://ezoterizm.com/web-tech-content-a-practical-roundup-for-digital-readers-93-6/">web tech content a practical roundup for digital readers 93 </a> 
 <a href="https://ezoterizm.com/web-tech-content-android-blockchain-and-crypto-insights-93-1/">web tech content android blockchain and crypto insights 93 1</a> 
+<a href="https://ezoterizm.com/web-tech-content-attention-spikes-and-retention-economics-93-1/">web tech content attention spikes and retention economics 93</a> 
 <a href="https://ezoterizm.com/web-tech-content-bitcoin-market-signals-and-risk-93-1/">web tech content bitcoin market signals and risk 93 1</a> 
 <a href="https://ezoterizm.com/web-tech-content-bitcoin-web3-and-crypto-essentials-93-1/">web tech content bitcoin web3 and crypto essentials 93 1</a> 
+<a href="https://ezoterizm.com/web-tech-content-crypto-markets-and-digital-trends-93-1/">web tech content crypto markets and digital trends 93 1</a> 
+<a href="https://ezoterizm.com/web-tech-content-practical-guides-for-crypto-and-online-play-93-1/">web tech content practical guides for crypto and online play</a> 
 <a href="https://ezoterizm.com/web-tech-content-roundup-xrp-casinos-and-smart-guides-93-1/">web tech content roundup xrp casinos and smart guides 93 1</a> 
 <a href="https://ezoterizm.com/what-a-seed-phrase-is-and-why-it-matters-for-self-custody/">what a seed phrase is and why it matters for self custody</a> 
 <a href="https://ezoterizm.com/what-makes-an-explainer-article-genuinely-useful-a-quick-gui-2/">what makes an explainer article genuinely useful a quick gui</a> 
@@ -799,6 +802,3 @@
 <a href="https://fabbusinesssolutions.com/a-practical-introduction-to-travel-insurance-for-internation/">a practical introduction to travel insurance for internation</a> 
 <a href="https://fabbusinesssolutions.com/a-readers-map-to-useful-corners-of-the-web/">a readers map to useful corners of the web</a> 
 <a href="https://fabbusinesssolutions.com/a-roundup-of-practical-online-reads/">a roundup of practical online reads</a> 
-<a href="https://fabbusinesssolutions.com/a-simple-framework-for-researching-any-topic-online-a-quick/">a simple framework for researching any topic online a quick</a> 
-<a href="https://fabbusinesssolutions.com/a-simple-framework-for-researching-any-topic-online-explaine-2/">a simple framework for researching any topic online explaine</a> 
-<a href="https://fabbusinesssolutions.com/a-simple-framework-for-researching-any-topic-online-explaine/">a simple framework for researching any topic online explaine</a> 
